@@ -7,6 +7,162 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 02:57
+---
+
+## ChizBergerz — post 46289
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46289_1778455673.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه داداش تو نمیدونی جمهوری اسلامی خیلی خوب داره دووم میاره جلو آمریکا و اسرائیل، اینم سندش:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46288
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46288_1778455673.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae20
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## ChizBergerz — post 46287
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46287_1778455675.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه کاندومم نمیشه یکبار مصرف کرد، باید بعد استفاده بشوریمش رو بند آویزون کنیم...
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71208
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71208_1778455675.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امید جان همین الان
+۲۱.۴۰ دقیقه شب
+دوبار صدای انفجار آمد
+بین دزفول اندیمشک
+پادگان چهارم شکاری یا ۲۹۲ زرهی
+
+اولش پدافند کار می‌کرد بعد ۵ دقیقه صدای ص انفجار آمد.
+</div>
+
+## rodast_omiddana — post 71207
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71207_1778455675.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨‏کانال ۱۴ اسرائیل: نتانیاهو پس از دریافت پاسخ ایران کنفرانس با دروزی‌ها را متوقف کرد تا تماس تلفنی با ترامپ برقرار کند
+</div>
+
+## rodast_omiddana — post 71206
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71206_1778455675.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 ترامپ:
+من همین الان پاسخ «نمایندگان» به اصطلاح ایران را خواندم. این را دوست ندارم — کاملاً غیرقابل قبول است! از توجه شما به این موضوع سپاسگزارم.
+</div>
+
+## SportBaadNews — post 251333
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251333_1778455676.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔻خواستگاری یه بارسا فن از دوست دخترش تو بازی امشب
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336550
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336550_1778455677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در شبکه‌های اجتماعی، به همراه تصاویر دریافتی، نشان می‌دهد یکی از حامیان جمهوری اسلامی روز یک‌شنبه ۲۰ اردیبهشت وارد تجمع ضدحکومتی ایرانیان در تورنتو شده و سپس پرچم جمهوری اسلامی را برافراشته و تکان می‌دهد.
+بر اساس گزارش‌های منتشرشده، در پی این حمله، دست‌کم یک نفر زخمی شده و به چندین خودرو آسیب وارد شده است.
+
+عکس از پیمان خواجه‌حسنی، خبرنگار
+</div>
+
+## IranIntlTV — post 336549
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336549_1778455679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، ‌سنتکام، نوشت که تمرین‌‌های تفنگداران دریایی آمریکا تضمین می‌کند که آن‌ها در صورت فرا خوانده شدن برای پیاده شدن بر عرشه کشتی‌‌های متخلف در طول محاصره ایران توسط ایالات متحده آماده باشند.
+
+سنتکام در این ارتباط، تصاویری از تمرین‌های تفنگداران دریایی بر روی عرشه ناو تریپولی را در شبکه اجتماعی ایکس منتشر کرد.
+https://iranintl.com/202605106827
+</div>
+
+## IranIntlTV — post 336548
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336548_1778455680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع «یک ملت گروگان» در واشینگتن به اردوان روزبه، خبرنگار ایران‌اینترنشنال، گفت: «افتخار می‌کنیم که در حمایت از مردم ایران و به نمایندگی از آن‌ها در این مراسم شرکت کنیم.»
+
+او افزود: «امروز همچنین روز مادر در آمریکاست و می‌خواهیم به مادران ایران، به‌ویژه مادرانی که فرزندانشان را از دست داده‌اند، ادای احترام کنیم. حداقل کاری که می‌توانستیم انجام دهیم، حضور در این مراسم بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336547
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336547_1778455681.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیسون برادسکی، مدیر سیاست‌گذاری اتحاد علیه ایران هسته‌ای، در مورد تماس تلفنی دونالد ترامپ و بنیامین نتانیاهو در مورد پاسخ جمهوری اسلامی نوشت: «تغییر وضع موجود ضروری است. محاصره لازم است، اما کافی نیست.»
+
+او در شبکه اجتماعی ایکس تاکید کرد ترکیب محاصره با اقدام نظامی مهم خواهد بود.
+
+برادسکی همچنین اشاره کرد: «برخلاف تصوری که رسانه‌ها و برخی مفسران ایجاد کرده‌اند، رییس‌جمهور همچنان نشان می‌دهد که به هیچ توافقی با رژیم ایران، صرف نظر از شرایط، مشتاق نیست. اگر او واقعا برای هر توافقی مشتاق بود، مدت‌ها پیش توافقی حاصل شده بود.»
+https://iranintl.com/202605105974
+</div>
+
+## IranIntlTV — post 336546
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336546_1778455682.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «سفر ترامپ به پکن می‌تواند پیام هشدار جدی‌تری برای تهران داشته باشد. به‌ویژه با توجه به تهدید دوباره ترامپ به بمباران شدیدتر در صورت عدم توافق. اعلام مذاکره ترامپ و شی جین‌ پینگ درباره جمهوری اسلامی، احتمال شکل‌گیری معامله و بده‌بستان میان واشینگتن و پکن بر سر پرونده ایران را پررنگ‌تر کرده است.»
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 02:10
 ---
 
