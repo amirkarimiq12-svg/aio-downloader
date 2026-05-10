@@ -7,6 +7,809 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 02:01
+---
+
+## VahidOOnLine — post 239404
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239404_1778452261.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندزی گراهام در واکنش به گمانه‌زنی‌ها درباره توافق احتمالی با ایران، در حساب کاربری خود در شبکه ایکس نوشت
+
+او تأکید کرد تعلیق موقت غنی‌سازی بدون نابودی کامل زیرساخت‌ها و توانمندی‌ها، عملاً بازگشت به توافق برجام خواهد بود.
+
+گراهام افزود هرگونه مخالفت تهران با برچیدن کامل ظرفیت غنی‌سازی از سوی آمریکا «قاطعانه رد خواهد شد». او در بخش دیگری از پیام خود از حمایت دونالد ترامپ قدردانی کرد و آن را برای خود «بسیار ارزشمند» خواند.
+
+گراهام گفت به اعتماد ترامپ، چه به‌عنوان سناتور و چه به‌عنوان دوست، افتخار می‌کند و از همراهی با او در آنچه «بزرگ‌ترین بازگشت سیاسی در تاریخ آمریکا» توصیف کرد، ابراز خرسندی کرد.
+
+وی همچنین تأکید کرد در سنای آمریکا برای پیشبرد دستورکار ترامپ جهت «امن‌تر و ثروتمندتر کردن آمریکا» تلاش خواهد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239403
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239403_1778452262.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل در مصاحبه با برنامه ۶۰‌ دقیقه سی‌بی‌اس در پاسخ به مجری که از او پرسید چه طرحی را برای خارج کردن ذخایر اورانیوم غنی‌شده از ایران متصور است گفت: باید نیروها وارد شوند و ذخایر را بردارند و از ایران بیرون ببرند. او گفت که در دیدار اخیر با دونالد ترامپ، رئیس‌جمهوری آمریکا به او گفته است که می‌خواهد نیروها را وارد کند و این کار را به طور فیزیکی انجام دهد. نتانیاهو گفت اگر توافقی باشد و نیروها بتوانند براساس آن وارد شوند و ذخایر را خارج کنند، مشکلی نیست. نخست‌وزیر اسرائیل در پاسخ به مجری که از او پرسید اگر توافقی در کار نباشد، آیا از نیروی زمینی استفاده می‌شود؟ گفت: در مورد برنامه‌ها و طرح‌های نظامی صحبت نمی‌کند. او همچنین گفت که بازه زمانی را نیز در این مورد ارایه نمی‌دهد. نتانیاهو این ماموریت را «به‌شدت مهم» توصیف کرد. او در همین بخش مصاحبه تاکید کرد که برنامه هسته‌ای ایران به دلیل حمله‌ها آسیب دیده اما هنوز همه ظرفیت غنی‌سازی از بین نرفته و تاسیسات غنی‌سازی باید برچیده شوند. او همچنین به نیروهای نیابتی جمهوری اسلامی اشاره کرد و آن را یکی دیگر از مشکلات باقی‌مانده درباره رژیم ایران توصیف کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239402
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239402_1778452262.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «نیویورک تایمز»، تیم فوتبال بارسلونا با پیروزی ۲ بر صفر در مقابل رقیب دیرینه خود، رئال مادرید، برای دومین سال پیاپی به مقام قهرمانی لالیگا دست یافت. در این دیدار سرنوشت‌ساز که در فضای پرالتهاب ال‌کلاسیکو برگزار شد، مارکوس رشفورد با یک ضربه آزاد تماشایی در دقایق ابتدایی قفل دروازه کهکشانی‌ها را شکست و در ادامه فران تورس با به ثمر رساندن گل دوم، پیروزی و قهرمانی آبی‌اناری‌ها را قطعی کرد. شاگردان هانسی فلیک در حالی که تنها به یک امتیاز برای تثبیت جایگاه خود نیاز داشتند، موفق شدند برای نخستین بار در تاریخ این رقابت‌ها، جشن قهرمانی خود را با پیروزی در دربی بزرگ اسپانیا مقابل چشمان هوادارانشان برپا کنند؛ این در حالی بود که بازیکنان دو تیم علی‌رغم درگیری‌های معمول مسابقه، در پایان بازی با روحیه ورزشی به خوش‌وبش و دست دادن با یکدیگر پرداختند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239401
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239401_1778452262.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی اعلام کرد دولت دونالد ترامپ از «همه ایده‌ها» برای کاهش قیمت بنزین استقبال می‌کند؛ از جمله تعلیق مالیات فدرال بر سوخت.
+
+این اظهارات در شرایطی مطرح شده که قیمت بنزین در آمریکا افزایش یافته و میانگین ملی آن روز یکشنبه به ۴.۵۲ دلار در هر گالن رسیده است.
+
+به گزارش ان‌بی‌سی، این رقم نشان می‌دهد بهای بنزین از زمان آغاز جنگ ایران در نهم اسفند بیش از ۵۰ درصد رشد کرده است.
+
+رایت در پاسخ به پرسشی درباره تعلیق مالیات فدرال بنزین، که حدود ۱۸ سنت در هر گالن است، گفت دولت از هر اقدامی که بتواند قیمت‌ها را در جایگاه‌های سوخت کاهش دهد و فشار بر مصرف‌کنندگان را کم کند، حمایت می‌کند.
+
+او همچنین درباره احتمال رسیدن قیمت‌ها به ۵ دلار در هر گالن از پیش‌بینی خودداری کرد و گفت تعیین قیمت انرژی در کوتاه‌مدت یا میان‌مدت دشوار است.
+
+رایت افزود تمرکز دولت بر پایان دادن به درگیری چند دهه‌ای با جمهوری اسلامی است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## ChizBergerz — post 46286
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46286_1778452263.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اينقدر چالش نكردن كه ازش ويروس موش به وجود اومد
+😂
+😂
+
+لبیک یا مقوا
+✊
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیفیت و جزئیات پشم ریزون GTA VI 😳😳 @ChizBergerz
+</div>
+
+## ChizBergerz — post 46284
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46284_1778452264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیفیت و جزئیات پشم ریزون GTA VI 😳😳
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏تا پارسال هرکی مهاجرت کرده به معنای واقعی کلمه "فلنگ" رو بسته.
+</div>
+
+## ChizBergerz — post 46282
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46282_1778452265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حداقل ۲۰۰ تا کودک توی دی‌ماه کشته شدن، اون‌وقت تو واسه نوه‌‌ی خامنه‌ای قاتل که اگه بزرگ میشد مثل پدر و پدربزرگش قاتل مردم ایران میشد گریه میکنی حرومی؟!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46281
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46281_1778452266.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حقیقت تجمعات شبانه حکومتی‌های زنازاده:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46280
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46280_1778452267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت پرستوهای نظام تو تجمعات شبانه حکومتی‌ها:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46279
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46279_1778452269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس کمتر دیده شده پدر، در آغوش پسر: 😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46278
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46278_1778452269.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم شد زندگیِ نداشته ما...
+
+به جرئت میشه گفت جوونای ۲۰ـ۳۰ سال ایرانی مظلوم ترین نسل تاریخن، هیچی از جوونی نفهمیدن...
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46277
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46277_1778452270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محصول جدید کارخانجات میهن: 😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46276
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46276" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46275
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46275_1778452271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge20
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46274
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46274_1778452271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشخصه کُتلت شدن موش‌علی درس عبرتی برای کیم جون کون و بقیه دیکتاتورا شده :)))
+
+کره شمالی توی قانون اساسیش داره قانونی رو اضافه میکنه که درصورتی که رهبر این کشور "کیم جونگ اون" توسط کشوری ترور و کشته بشه، کره شمالی با بمب اتم از اون کشور انتقام بگیره.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46273
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46273_1778452272.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این روزا وضعیت توییتر جوریه که همه دارن موش‌تباه مقوایی رو مسخره میکنن: 😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46272
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46272_1778452273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای حکومتی‌های بی‌حجاب نوحه ساختن! «هرکسی که چادریه تاج‌سرمونه و مث خواهرمونه، کم‌حجابیم که اومده میون میدون، نور چشممون و دختر کشورمونه. آخه کی میگه ظاهر آدما ملاکه؟ در اصل ملاک آدمیت دلِ پاکه.» + مادرجنده‌ها پس چرا سال ۱۴۰۱ مردمی که علیه حجاب اجباری قیام…
+</div>
+
+## ChizBergerz — post 46271
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46271_1778452274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نرخ تورم فروردین ۱۴۰۵ منتشر شد.
+(درصد افزایش قیمت اجناس نسبت به فروردین ۱۴۰۴):
+روغن جامد ۳۷۵%
+روغن مایع ۳۰۸%
+برنج خارجی ۲۰۸%
+مرغ ۱۹۱%
+برنج ایرانی ۱۷۳%
+تخم مرغ ماشینی ۱۷۰%
++ حتی طلا و دلارم انقدر رشد نداشتن که مواد غذایی داشته!
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46270
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46270_1778452275.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستانی که دنبال کون آخوند نگران بودن ایران سوریه بشه، سوریه با سوییفت، ویزا و مستر کارت به جهان وصل شد!
+
++ راستی طالبان هم داره اینترنت 5G بدون فیلتر رو تو افغانستان گسترش میده!
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46269
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46269_1778452276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دست خدا کلک زد
+خامنه‌ای کپک زد
+😂
+😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46268
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46268_1778452276.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمو مراد طبق معمول عالیییی نواخت😂🔥
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46267
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46267" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## rodast_omiddana — post 71202
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_مواضع جدید ترامپ و نتانیاهو برای حمله جدید به رژیم_جنگ دوباره قطعی است و احتمال سقوط رژیم بالاست
+</div>
+
+## rodast_omiddana — post 71201
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_مواضع جدید ترامپ و نتانیاهو برای حمله جدید به رژیم_جنگ دوباره قطعی است و احتمال سقوط رژیم بالاست
+</div>
+
+## rodast_omiddana — post 71197
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 #خبر_فوری | یک زیردریایی کلاس اوهایوی نیروی دریایی ایالات متحده امروز در حال ورود به خلیج جبل‌الطارق مشاهده شد، در مسیر ورود به دریای مدیترانه.
+
+کلاس اوهایو از بزرگ‌ترین و توانمندترین زیردریایی‌های ناوگان ایالات متحده هستند. آن‌ها می‌توانند تا ۲۴ موشک بالستیک تریددنت II D5 را حمل کنند (در پیکربندی SSBN) یا در نوع موشک هدایت‌شونده خود (SSGN) تا ۱۵۴ موشک کروز تاماهاوک را حمل کنند. آن‌ها عنصر کلیدی بازدارندگی هسته‌ای استراتژیک آمریکا و قابلیت‌های نمایش قدرت آن هستند.
+</div>
+
+## rodast_omiddana — post 71196
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*مواضع جدید ترامپ و نتانیاهو برای حمله جدید به رژیم
+*جنگ دوباره قطعی است و احتمال سقوط رژیم بالاست
+لینک یوتیوب:
+https://www.youtube.com/watch?v=d_1sGDOKG9I
+</div>
+
+## rodast_omiddana — post 71195
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71195_1778452278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ ویدیویی رو بازنشر کرده که مربوط به برنامه مارک لوین هست..
+جایی که مهمان برنامه میگه:
+"ازسرگیری اقدام نظامی، بهترین گزینه برای مقابله با ایرانه"
+</div>
+
+## rodast_omiddana — post 71194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 کنسرتهای شاهین نجفی برای عادی سازی شرایط
+پاس گل مرتضی نجفی به رژیم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=GQcSxaQv1HI
+</div>
+
+## rodast_omiddana — post 71193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 برنامه امشب تا یک ساعت و نیم دیگه:
+*مواضع جدید ترامپ و نتانیاهو برای حمله جدید به رژیم
+*جنگ دوباره قطعی است و احتمال سقوط رژیم بالاست
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71192
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71192_1778452278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 رئیس‌جمهور ترامپ کلیپ‌هایی از مارک لوین منتشر می‌کند که استدلال می‌کند فشار بر جمهوری اسلامی باید ادامه یابد
+و این را پیشنهاد می‌دهد ممکن است یک دور دیگر مبارزه اجتناب‌ناپذیر باشد تا موقعیت آمریکا را پیش از مذاکرات تقویت کند.
+</div>
+
+## rodast_omiddana — post 71191
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71191_1778452278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 ترامپ همین الان این را منتشر کرد
+</div>
+
+## rodast_omiddana — post 71190
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71190_1778452278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خبرنگار:
+«آیا درست است که بگوییم شما معتقدید عملیات‌های رزمی تمام شده‌اند، اما...»
+
+ترامپ:
+«نه، من چنین چیزی نگفتم. گفتم آن‌ها شکست خورده‌اند، اما این به معنای پایان کار نیست. ما می‌توانیم دو هفته دیگر ادامه دهیم و هر هدفی را مورد حمله قرار دهیم.اهداف مشخصی داشتیم که می‌خواستیم آن‌ها را بزنیم و احتمالاً حدود ۷۰ درصد آن‌ها را انجام داده‌ایم.»
+</div>
+
+## rodast_omiddana — post 71189
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71189_1778452278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دوستانی که نگران بودند ایران سوریه بشه، سوریه با سوییفت، ویزا و مستر به جهان وصل شد
+</div>
+
+## rodast_omiddana — post 71188
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71188_1778452279.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حمید رسایی، مادر ج.ن.ده:
+تمام تلاشم رو میکنم تا اینترنت بین الملل وصل نشه.
+</div>
+
+## rodast_omiddana — post 71187
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 آخرین جزئیات از تصمیم ترامپ برای طولانی شدن جنگ
+لینک یوتیوب:
+https://www.youtube.com/watch?v=D00q9mEO8cA
+</div>
+
+## rodast_omiddana — post 71186
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71186_1778452279.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 بچه شیعه پفیوز 😏
+</div>
+
+## rodast_omiddana — post 71185
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71185_1778452281.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مرتض(شاهین) نجفی عادی سازی نکن و فرافکنی هم نکن
+آورین
+</div>
+
+## rodast_omiddana — post 71184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 آنالیز یاوه های حمزه صفوی و محمد فاضلی در قالب روشنفکری
+لینک یوتیوب:
+https://www.youtube.com/watch?v=6UA47MPeUjI
+</div>
+
+## rodast_omiddana — post 71183
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71183_1778452282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 این دو هرزه مجید واشقانی و متین ستوده دوساعت نشستن و حرف مفت میزنند و مردمی که قربانی شیعه گری رژیم هستند را به باد انتقاد گرفتن، بدون اینکه اشاره به علت ماجرا که جمهوری اسلامی هست بکنند..
+من اعتقاد دارم این دو نفر مادر ج.ن.ده هستند، آیا شما با من هم نظر هستید؟
+(امشب در برنامم به بخشی از حرفهاشون میپردازم)
+</div>
+
+## mamlekate — post 103499
+
+<div align="center">
+  <a href="telegram/content/mamlekate_103499_1778452283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📞 دزفول توی جاده کمربندی سمت زیبا شهر ساعت ۹:۳۰ شب
+
+
+📞 دزفول از ساعت ۹و نیم صدای ضدهوایی و چند انفجار شنیده شد
+
+@mamlekate
+</div>
+
+## SportBaadNews — post 251332
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251332_1778452284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 گاوی: به وینیسیوس گفتم: "خفه شو حرف نزن"
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251331
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251331_1778452285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 بهترین بازیکن زمین طبق معمول
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⏺ میتونید با رفرال گیری کانفیگ رایگان دریافت کنید ، اختصاصی اسپورت 
+👇
+
+
+🤖 @Confingfreeirbot
+</div>
+
+## SportBaadNews — post 251329
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251329_1778452285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ پپ گواردیولا قهرمانی بارسلونا رو تبریک گفت
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251325
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251325_1778452286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعداد برد هانسی فلیک تو ال کلاسیکو چنتاس وینی جان؟
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251324
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251324_1778452286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🇪🇸 لواندوفسکی با قهرمانی امشب بارسلونا به عدد 13 قهرمانی لیگ رسید که بیشترین تعداد در تاریخ 5 لیگ معتبر اروپاست
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251323
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251323_1778452287.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺اگه امشب بارسلونا در الکلاسیکو برنده از زمین بیرون بیاد تعداد بردهای بارسا با رئال مادرید مساوی میشه 
+💀
+💀
+💀 
+📊 آمار الکلاسیکوهای رسمی تا امروز: 
+📆 263 بازی 
+🇪🇸 105 برد و 439 گل زده برای بارسلونا 
+🤝 52 بازی مساوی 
+🇪🇸 106 برد و 444 گل زده برای رئال مادرید @SportBaadNews
+</div>
+
+## SportBaadNews — post 251322
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251322_1778452287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید آخرین قهرمانی لواندوفسکی با بارسلونا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251321
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251321_1778452287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکوس رشفورد در اکتبر زمانی که رئال مادرید در ال‌کلاسیکو پیروز شد و پنج امتیاز از بارسلونا جلو بود در لیگ گفت:
+‏"این یک ماراتن است، نه یک دوی سرعت!"
+اون امشب با درخشش باعث پیروزی تیمش و قهرمانی اون شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251320
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251320_1778452288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ | باشگاه رئال مادرید قهرمانی بارسلونا رو تبریک گفت
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251319
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251319_1778452288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251318
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251318_1778452288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عشقتون قهرمانی بارسارو تبریک گفت
+😌
+😌
+😌
+😌
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251316
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه منطقی نگاه کنیم، اسکواد و کادر فنی رئالم خوبه، فقط
+
+1 مدیر 1 مربی 5 دفاع وسط 2 دفاع راست 2 دفاع چپ 1 الی 2 هافبک دفاعی 3 الی 4 هافبک وسط 2 وینگر چپ 2 وینگر راست 2 مهاجم نوک 1 مربی بدنساز 4 استعدادیاب 1 مدیر ورزشی 1 کمک مربی 1 مربی ریکاوری 1 مربی دروازه بانان حداقل 12 تحلیلگر فنی 4 دستیار مربی 3 پزشک 1 ادمین پیج اینستاگرام 1 مدیر تولید محتوا 1 کنترل کننده‌ی محتوای شبکه باشگاه
+
+کم داره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251315
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251315_1778452289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافینیا داره طبل میزنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب عزیزای دل بارسایی یه امشبو بیخیال دنیا شادی کنیم که از فردا دوباره باید برگردیم سر بدبختی های خودمون و برا دلار و اینترنت حرص بزنیم
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251307
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251307_1778452289.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 فووووووری ترامپپپپپ:
+پیشنهاد ایران قابل قبول نیست
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئالیا تک تک دارن میرن به بازیکنا بارسا تبریک میگن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251304
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251304_1778452289.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨پایان بازی | 
+⚽️
+2️⃣×
+0️⃣
+⚽️
+
+
+🔴 بارسلونا با برد تو الکلاسیکو قهرمان فصل 2025/26 لالیگا شد 🔥🏆
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوادارا بارسا توپ ساحلی انداختن وسط زمین 😂😂😂😂
+</div>
+
+## SportBaadNews — post 251295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از جالبی های صداسیما اینه که تبلیغ وان ایکس بت کنار تبلیغ تشک ایندکس کنار زمینه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336544
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336544" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: دست رد ترامپ بر پیشنهاد جمهوری‌اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336543
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336543_1778452290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ از دریافت پاسخ تهران به طرح پیشنهادی ایالات متحده خبر داد و آن را غیرقابل قبول خواند.
+
+این اظهارات ترامپ با واکنش‌های گسترده‌ای در شبکه‌های اجتماعی و رسانه‌ها همراه شده است.
+
+جزییات بیشتر در گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336542
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336542_1778452291.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندزی گراهام در واکنش به گمانه‌زنی‌ها درباره توافق احتمالی با ایران، در حساب کاربری خود در شبکه ایکس نوشت این ایده که جمهوری اسلامی در چارچوب یک توافق مذاکره‌شده، تأسیسات غنی‌سازی خود را به‌طور کامل برچیند، منطقی نیست.
+
+او تأکید کرد تعلیق موقت غنی‌سازی بدون نابودی کامل زیرساخت‌ها و توانمندی‌ها، عملاً بازگشت به توافق برجام خواهد بود.
+
+گراهام افزود هرگونه مخالفت تهران با برچیدن کامل ظرفیت غنی‌سازی از سوی آمریکا «قاطعانه رد خواهد شد». او در بخش دیگری از پیام خود از حمایت دونالد ترامپ قدردانی کرد و آن را برای خود «بسیار ارزشمند» خواند.
+
+گراهام گفت به اعتماد ترامپ، چه به‌عنوان سناتور و چه به‌عنوان دوست، افتخار می‌کند و از همراهی با او در آنچه «بزرگ‌ترین بازگشت سیاسی در تاریخ آمریکا» توصیف کرد، ابراز خرسندی کرد.
+
+وی همچنین تأکید کرد در سنای آمریکا برای پیشبرد دستورکار ترامپ جهت «امن‌تر و ثروتمندتر کردن آمریکا» تلاش خواهد کرد.
+https://iranintl.com/202605106523
+</div>
+
+## IranIntlTV — post 336541
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336541_1778452292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس رایت، وزیر انرژی آمریکا، در گفت‌وگو با شبکه ان‌بی‌سی اعلام کرد دولت دونالد ترامپ از «همه ایده‌ها» برای کاهش قیمت بنزین استقبال می‌کند؛ از جمله تعلیق مالیات فدرال بر سوخت.
+
+این اظهارات در شرایطی مطرح شده که قیمت بنزین در آمریکا افزایش یافته و میانگین ملی آن روز یکشنبه به ۴.۵۲ دلار در هر گالن رسیده است.
+
+به گزارش ان‌بی‌سی، این رقم نشان می‌دهد بهای بنزین از زمان آغاز جنگ ایران در نهم اسفند بیش از ۵۰ درصد رشد کرده است.
+
+رایت در پاسخ به پرسشی درباره تعلیق مالیات فدرال بنزین، که حدود ۱۸ سنت در هر گالن است، گفت دولت از هر اقدامی که بتواند قیمت‌ها را در جایگاه‌های سوخت کاهش دهد و فشار بر مصرف‌کنندگان را کم کند، حمایت می‌کند.
+
+او همچنین درباره احتمال رسیدن قیمت‌ها به ۵ دلار در هر گالن از پیش‌بینی خودداری کرد و گفت تعیین قیمت انرژی در کوتاه‌مدت یا میان‌مدت دشوار است.
+
+رایت افزود تمرکز دولت بر پایان دادن به درگیری چند دهه‌ای با جمهوری اسلامی است.
+https://iranintl.com/202605106125
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 01:32
 ---
 
