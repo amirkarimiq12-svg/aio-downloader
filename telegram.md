@@ -7,6 +7,675 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 20:07
+---
+
+## rodast_omiddana — post 71238
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71238_1778517470.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 ترامپ:
+"من این هفته قراره رو در رو با رئیس‌جمهور چین،شی جین‌پینگ،درباره ایران حرف بزنم
+ایران کشور خیلی قشنگیه، ولی یه سری آدم‌ها اون رو اداره می‌کنن که شاید اصلاً نباید اونجا باشن"
+</div>
+
+## rodast_omiddana — post 71237
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71237_1778517473.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سی‌ان‌ان: تا آخر هفته پیشرفت قابل توجهی در گفت‌وگوهای واشینگتن و تهران رخ نخواهد داد
+</div>
+
+## rodast_omiddana — post 71236
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71236_1778517473.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 برآوردهای من نشان میده ترامپ از چین برگرده روز جمعه یا شنبه این هفته یا هفته بعدش حملات به جمهوری اسلامی را آغاز خواهد کرد..
+به نظرم جنگ بعدی تا قبل از 4 خرداد یعنی قبل از 25 می انجام میشه..
+</div>
+
+## rodast_omiddana — post 71235
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71235_1778517473.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم
+</div>
+
+## rodast_omiddana — post 71234
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71234_1778517474.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+"آتش‌بس به طرز باورنکردنی ضعیف است
+بعد از خواندن آن مزخرفاتی که برای ما فرستادند، حتی خواندنش را تمام نکردم. به نظر من آتش‌بس در وضعیت اضطراری است."
+</div>
+
+## rodast_omiddana — post 71233
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71233_1778517477.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+من از کردها بسیار ناامید شده‌ام، ما به آنها سلاح دادیم تا داخل ایران تحویل دهند، اما آنها آن‌ها را نگه داشتند.
+</div>
+
+## rodast_omiddana — post 71232
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71232_1778517480.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+"الان گروه بزرگی از ژنرال‌ها منتظر من هستند؛ جلسه‌ای که درباره کشور کاملاً دوست‌داشتنی ایران برگزار می‌شود."
+"آنها چقدر احمق هستند؟ آدم‌های احمق. آنها فکر می‌کنند که خب، من از این خسته می‌شوم، حوصله‌ام سر می‌رود، تحت فشار قرار می‌گیرم."
+</div>
+
+## rodast_omiddana — post 71231
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71231_1778517481.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ:
+اگر توافق حاصل نشود، ما ایران را به گونه‌ای هدف قرار خواهیم داد که قبلاً ندیده‌ اند
+</div>
+
+## rodast_omiddana — post 71230
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71230_1778517481.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 عاقبت توهم و رجزخوانی..
+این واقعیت میدانی ست به ادعاهای تحلیلگران رژیم توجه نکنید به میدان نگاه کنید..
+</div>
+
+## rodast_omiddana — post 71229
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71229_1778517482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+"خیلی‌ها میپرسند: آیا برای ایران برنامه‌ای دارید؟
+البته که برنامه دارم. من بهترین برنامه تاریخ را برای انها دارم"
+</div>
+
+## rodast_omiddana — post 71228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 اعتراف جواد موگویی: مذهبیا باوری به قدرت سپاه ندارند
+لینک یوتیوب:
+https://www.youtube.com/watch?v=evEEtMLzdRE
+</div>
+
+## rodast_omiddana — post 71227
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71227_1778517482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وبسایت خبرآنلاین در گزارشی میدانی در گفت‌وگو با مستاجران و مشاوران املاک نوشت فایل‌های اجاره خانه در تهران کمیاب‌ شده و قیمت‌ها در همه مناطق افزایش یافته است؛ بسیاری از مالکان و مستاجران با افزایش ۲۰ تا ۴۰ درصدی قراردادها را تمدید کرده‌اند.
+</div>
+
+## rodast_omiddana — post 71226
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71226_1778517482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آسوشیتدپرس: ترامپ از درخواست جمهوری اسلامی برای دریافت غرامت جنگی ترامپ ناراضی است
+</div>
+
+## rodast_omiddana — post 71225
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71225_1778517482.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ چهارشنبه میره چین و جمعه بر میگرده..
+لازمه بگم آمریکا همیشه جمعه یا شنبه ها حمله میکنه یا اینکه دیگه در جریان هستید؟..
+</div>
+
+## rodast_omiddana — post 71224
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71224_1778517483.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 شبکه 14 اسرائیل:
+"تو حمله بعدی اهدافمون شامل موارد زیر میشه:
+تاسیسات انرژی و صنعت پتروشیمی
+صنعت خودروسازی و پایگاه‌ های موشک بالستیک
+صنعت نفت و صنعت فولاد"
+</div>
+
+## KiriMohems — post 47361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ کون طاقچه‌ای: تیم ملی لاس بازی (مذاکره کننده) جمهوری اسلامی به ما گفته که آمریکا باید اورانیوم غنی‌شده رو خارج کنه، چون جمهوری اسلامی فناوری انجام این کار رو نداره ، یهو همه چیز رو بگا میده #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر توافقی حاصل نشود، ما ایران را به گونه‌ای هدف قرار خواهیم داد که قبلاً ندیده‌ اند #Berlin @Kirimohems
+</div>
+
+## KiriMohems — post 47359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: اگر توافقی حاصل نشود، ما ایران را به گونه‌ای هدف قرار خواهیم داد که قبلاً ندیده‌ اند
+
+#Berlin
+@Kirimohems
+</div>
+
+## SportBaadNews — post 251356
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251356_1778517483.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 ترامپ: بعد از سند آشغالی که ایرانیا واسمون فرستادن آتش بس فقط یک درصد احتمال داره زنده بمونه @SportBaadNews
+</div>
+
+## SportBaadNews — post 251355
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251355_1778517483.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 ترامپ: بعد از سند آشغالی که ایرانیا واسمون فرستادن آتش بس فقط یک درصد احتمال داره زنده بمونه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251354
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251354_1778517484.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 شزنی تو جشن قهرمانی بارسا بساطو به راه کرده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251353
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251353_1778517487.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ: انقد به مذاکرات ادامه میدیم تا بالاخره رژیم تسلیم بشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251352
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251352_1778517487.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی الکلاسیکوی رفت لیگ بعد از اینکه رئال مادرید تونست بارسلونا رو شکست بده بلینگهام پست گذاشت و کپشنشو نوشت: "حرف مفت"، این در جواب مصاحبه‌ی قبل بازی یامال بود که گفته بود: "مادرید میدزده و بعد اعتراض میکنه" حالا یامال بعد از قهرمانی بارسلونا در جواب همون…
+</div>
+
+## SportBaadNews — post 251350
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251350_1778517488.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی الکلاسیکوی رفت لیگ بعد از اینکه رئال مادرید تونست بارسلونا رو شکست بده بلینگهام پست گذاشت و کپشنشو نوشت: "حرف مفت"، این در جواب مصاحبه‌ی قبل بازی یامال بود که گفته بود: "مادرید میدزده و بعد اعتراض میکنه" حالا یامال بعد از قهرمانی بارسلونا در جواب همون پست بلینگهام استوری زده:"حرف مفت" 
+😂
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336677
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336677_1778517489.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ از وجود اختلاف در داخل جمهوری اسلامی بر سر توافق با آمریکا سخن گفت و افزود گروهی از مقام‌های «میانه‌رو» خواهان توافق هستند اما «دیوانه‌ها» می‌خواهند جنگ ادامه پیدا کند.
+او هشدار داد در صورت وقوع درگیری، «این یک جنگ خیلی سریع خواهد بود».
+
+ترامپ گفت جمهوری اسلامی ابتدا با انتقال اورانیوم غنی‌شده از ایران موافقت کرده بود اما بعدا موضع خود را تغییر داد و این موضوع در سند ارسالی تهران به واشینگتن گنجانده نشد.
+
+او افزود مقام‌های جمهوری اسلامی به آمریکا گفته بودند: «شما مجبورید آن را تحویل بگیرید.»
+
+او در بخشی از صحبت‌های خود اضافه کرد واشینگتن قرار بود همراه با طرف ایرانی در روند انتقال مشارکت کند اما تهران بعدا نظرش را عوض کرد.
+
+رییس‌جمهوری آمریکا گفت سند پیشنهادی جمهوری اسلامی پس از چهار روز تاخیر به واشینگتن ارسال شد؛ در حالی که به گفته او تهیه آن «فقط ۱۰ دقیقه» زمان نیاز داشت.
+
+ترامپ افزود: «آنها تضمین دادند که برای مدت بسیار طولانی سلاح هسته‌ای نخواهند داشت، اما نمی‌توانند به نتیجه برسند.»
+https://iranintl.com/202605119981
+</div>
+
+## IranIntlTV — post 336676
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336676_1778517490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پس از نارضایتی کامل رییس‌جمهور آمریکا از پاسخ تهران به پیشنهاد واشینگتن برای توافق، سخنگوی وزارت خارجه گفت جمهوری اسلامی فعلا درباره برنامه هسته‌ای‌اش مذاکره نمی‌کند. همزمان نخست‌وزیر اسرائیل تدارک برگزاری یک نشست امنیتی را دیده است.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 336675
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336675_1778517493.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پس از نارضایتی کامل رییس‌جمهور آمریکا از پاسخ تهران به پیشنهاد واشینگتن برای توافق، سخنگوی وزارت خارجه گفت جمهوری اسلامی فعلا درباره برنامه هسته‌ای‌اش مذاکره نمی‌کند. همزمان نخست‌وزیر اسرائیل تدارک برگزاری یک نشست امنیتی را دیده است.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 336674
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336674_1778517496.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ با «آشغال» خواندن پیشنهاد توافق تهران گفت آتش‌بس به‌شدت شکننده است. او در ادامه گفت: «آتش‌بس در اغما قرار دارد، به آن اکسیژن وصل کرده‌اند و تنها یک درصد شانس بقا دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336673
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336673_1778517497.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، درباره مقامات جمهوری اسلامی گفت: «آن‌ها فکر می‌کنند من خسته خواهم شد، اما هیچ فشاری روی من نیست.» او همچنین پیشنهاد توافق جمهوری اسلامی را «احمقانه» توصیف کرد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336672
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336672_1778517500.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با سی‌بی‌اس نیوز درباره پاسخ اخیر تهران به پیشنهاد صلح آمریکا گفت که جمهوری اسلامی در برنامه هسته‌ای خود امتیازاتی داده اما «کافی نبوده» و هنوز «پیشنهاد آن‌ها بسیار ضعیف و غیرقابل قبول» است.
+https://iranintl.com/202605110573
+</div>
+
+## IranIntlTV — post 336671
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | دوشنبه ۲۱ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336670
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336670_1778517501.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در واکنش به اظهارات بنیامین نتانیاهو که گفته بود «هیچ‌کس پیش‌بینی کامل و دقیقی» درباره تنگه هرمز نداشت، گفت: «من داشتم. من می‌دانستم آن‌ها تنگه هرمز را بسته‌اند. این تنها سلاحی است که دارند.»
+ترامپ افزود آمریکا می‌توانست در چارچوب «پروژه آزادی» این گذرگاه را باز کند و گفت این عملیات می‌تواند از سر گرفته شود و در آن صورت «بسیار شدیدتر» خواهد بود.
+https://iranintl.com/202605119757
+</div>
+
+## IranIntlTV — post 336669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻کسب‌وکارها یکی پس از دیگری سقوط می‌کنند
+
+همزمان با تداوم قطعی اینترنت، فشارهای اقتصادی و پیامدهای جنگ، بسیاری از کسب‌وکارها در شهرهای مختلف با کاهش فروش، تعدیل نیرو و حتی خطر تعطیلی مواجه شده‌اند. صاحبان کسب‌وکارها در پیام‌هایی به ایران‌اینترنشنال، وضعیت کنونی را یکی از دشوارترین دوره‌های سال‌های اخیر توصیف کردند.
+
+یک مدرس کاشت ناخن و مانیکور از توقف کسب‌وکار خود از اسفندماه سال گذشته تاکنون خبر داد.
+
+به گفته این شهروند، گرچه مردمی که از تامین نیازهای اولیه خود درمانده شده‌اند، کمتر به خدمات زیبایی می‌پردازند، اما عوامل دیگری نیز در این رکود موثر است؛ از جمله قطعی اینترنت که موجب شده تا او کسب درآمد از طریق فروش پکیج‌های آموزشی را از دست بدهد.
+
+او همچنین توضیح داد از همان زمان تاکنون آنتن دستگاه کارتخوانش قطع شده است و در پاسخ به پیگیری‌هایش گفته‌اند سیگنال دستگاه کارتخوان «مشاغل غیرضروری» به دلایل «امنیتی» تا اطلاع ثانوی قطع خواهد بود.
+
+بحران در صنایع پتروشیمی و بنادر
+
+افزون بر این، پیام‌های رسیده به ایران‌اینترنشنال حاکی از موج گسترده بیکاری و ورشکستگی در کسب‌وکارهای صنعتی و خدماتی وابسته به صنایع سنگین است.
+
+بسیاری از فعالان این حوزه‌ها که تعدیل، اخراج یا بیکار شده‌اند، گفتند همچون دیگر صنف‌هایی که با مشکل اقتصادی مواجه شده‌اند، به مشاغلی نظیر رانندگی در اسنپ یا کارهایی روی آورده‌اند که امنیت شغلی پایین‌تری دارند.
+
+یک شهروند شاغل در حوزه صنعت گفت: «هر کیلو پروفیل پیش از جنگ تا حدود قیمت ۷۰ هزارتومان خریدوفروش می‌شد، اما اکنون قیمت آن به ۱۵۵ هزار تومان رسیده است. به دلیل همین افزایش قیمت مدت سه‌ ماه است که بیکاریم و توان پرداخت هزینه مواد اولیه را نداریم.»
+
+قیمت پروفیل، به‌عنوان ماده اولیه ساخت‌وساز در صنایع طی یک‌سال گذشته افزایش قیمتی ۱۲۰ تا ۱۶۰ درصدی را تجربه کرده است.
+
+مخاطب دیگری که فعال در صنف کابینت‌سازی است، نیز گفت قیمت هر ورق ام‌دی‎‌اف از ۳ میلیون تومان در سال ۱۴۰۴ به ۱۵ تا ۱۷ میلیون تومان در سال جدید رسیده است.
+
+این شهروند با اشاره به رشد ۴۰۰ تا ۴۷۰ درصدی قیمت مواد اولیه، گفت در چنین شرایطی دیگر امکان ادامه کار و پرداخت اجاره محل کسب وجود ندارد.
+
+پیش از این نیز شهروندان از بحران بیکاری در مشاغل مرتبط با پتروشیمی و نبود ورق آهن و مواد پتروشیمی در شهرهایی از جمله اصفهان خبر داده بودند که باعث تعطیلی بسیاری از کارگاه‌های صنعتی شده است.
+
+علاوه بر صنایع، گزارش‌هایی نیز از موج توقف کسب و کارها و تعدیل نیرو در بنادر به دست ایران‌اینترنشنال رسیده است.
+
+یکی از کارکنان بندر رجایی گفت بسیاری از کارگران این منطقه اقتصادی تعدیل شده‌اند و آنها که همچنان سر کار مانده‌اند، حقوق‌هایشان به‌صورت مرتب پرداخت نمی‌شود و بندر بسیار خلوت شده است.
+
+بندر رجایی یکی از مهم‌ترین بنادر تجاری ایران است که اردیبهشت سال ۱۴۰۴ با آنچه انفجار یکی از کانتینرهای حامل مواد شیمیایی خطرناک، از جمله سدیم پرکلرات اعلام شد، دچار آتش‌سوزی شد و به مرگ ده‌ها نفر انجامید.
+
+بسیاری از شرکت‌های پیمانکاری وابسته به این بندر پس از انفجار و تا پیش از جنگ نیز با مشکلات اقتصادی بسیاری دست به گریبان بوده‌اند.
+
+شهروند دیگری از سربندر در پیامی مشابه نوشت تمامی شرکت‌های بندر نیروهای خود را تعدیل کرده‌اند و حقوق افرادی که کماکان بر سر کار مانده‌اند هم به درستی پرداخت نمی‌شود.
+
+پایگاه خبری رویداد ۲۴ نیز ۱۷ اردیبهشت در گزارشی درباره وضعیت مجموعه فولاد مبارکه پس از حملات آمریکا و اسرائیل نوشت که با وجود اطمینان‌دهی اولیه به کارکنان مبنی بر پرداخت بدون مشکل حقوق،دستمزد نیروها به حداقل دستمزد مصوب اداره کار تقلیل یافته است و بسیاری از نیروهای متخصص به رانندگی در تاکسی‌های اینترنتی روی آورده‌اند.
+
+رستوران‌ها تحت تاثیر گرانی
+
+صنف رستوران و غذاخوری‌ها نیز از جمله کسب و کارهایی هستند که با افزایش قیمت مواد اولیه و فشارهای اقتصادی آسیب زیادی دیده‌اند.
+
+یکی از مخاطبان ایران‌اینترنشنال که صاحب یک رستوران فست‌فود در لاهیجان است، نوشت: «مواد اولیه ساندویچی که اکنون به مبلغ ۱۰۰ هزارتومان فروخته می‌شود، چند روز بعد ۱۱۰ هزار تومان خریداری می‌شود. پس ناچار به افزایش قیمت روزانه هستیم که هم موجب نارضایتی مشتری است و هم خود از این مساله آسیب دیده‌ایم.»
+
+رستوران‌دار دیگری از کیش نیز گفت اول ناچار شد بیش از ۱۰ نفر از نیروهایش را تعدیل کند و حالا چاره‌ای جز تعطیلی برایش نمانده است.
+هم‌زمان، برخی مخاطبان از افزایش قیمت فست‌فود خبر دادند.
+
+بر اساس این گزارش‌ها، قیمت یک ساندویچ به‌طور متوسط به ۵۰۰ هزار تومان و یک پیتزا به یک میلیون و ۲۰۰ هزار تومان رسیده است.
+
+🔗 وب‌سایت ایران اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336668
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336668_1778517502.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۱ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 336667
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336667_1778517504.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از رد پیشنهاد دیپلماتیک جدید جمهوری اسلامی از سوی دونالد ترامپ، سناتورها در کنگره آمریکا به ابراز نظر و واکنش پرداختند. سناتور لیندسی گراهام از احیای پروژه آزادی پلاس حمایت کرد.
+
+مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336666
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336666_1778517506.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحولات تازه در سوریه دوباره توجه کاربران شبکه‌های اجتماعی را جلب کرده است. بازگشت سوئیفت و شبکه‌های مالی بین‌المللی و همچنین افزایش بازگشت مهاجران سوری به کشورشان، از جمله موضوعاتی است که در رسانه‌های اجتماعی مورد توجه قرار گرفته است.
+
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336665
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336665_1778517509.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه گاردین در گزارشی از احتمال افزایش تهدیدهای امنیتی مرتبط با جمهوری اسلامی همزمان با جام جهانی ۲۰۲۶ در آمریکا خبر داد.
+
+گفت‌وگو با محمد تقوی، ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336664
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336664_1778517512.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی و سیاست خارجی مجلس، به نقل از محمد اسلامی، رییس سازمان انرژی اتمی، در جلسه کمیسیون امنیت ملی مجلس، گفت: موضوع «فناوری» هسته‌ای در دستور کار مذاکرات قرار ندارد و غنی‌سازی قابل مذاکره نیست.
+
+رضایی افزود اعضای کمیسیون بر ضرورت حفاظت از مراکز هسته‌ای، برخورد با «دشمن» و بی‌فایده بودن عضویت در ان‌پی‌تی‌ «پیمان منع گسترش سلاح‌های هسته‌ای»‌ تاکید کردند و خواستار حفظ «دستاوردهای» هسته‌ای شدند.
+https://iranintl.com/202605113202
+</div>
+
+## IranIntlTV — post 336663
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336663_1778517513.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تداوم انسداد تنگه هرمز و کاهش ذخایر انرژی، بازارهای جهانی را با خطر رکود و اختلال در فعالیت پالایشگاه‌ها روبه‌رو کرده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336662
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336662_1778517515.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد نیروهای آمریکایی تاکنون ۶۲ کشتی تجاری را مجبور به تغییر مسیر کرده و چهار کشتی را برای اجرای محاصره از کار انداخته‌اند.
+
+سنتکام با انتشار تصویری از یکی از ناوشکن‌های آمریکا در ایکس نوشت: ناو «دیلبرت دی‌بلک» در حال نظارت بر آب‌های منطقه‌ای در دریای عرب است و در اجرای محاصره دریایی آمریکا علیه جمهوری اسلامی مشارکت دارد.
+https://iranintl.com/202605110754
+</div>
+
+## IranIntlTV — post 336661
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336661_1778517515.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدعلی عزیز جعفری که از سال ۱۳۸۶ تا ۱۳۹۸ فرمانده کل سپاه پاسداران بود، بر پنج شرط جمهوری اسلامی برای مذاکره با آمریکا تاکید کرد.
+
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، درباره پیشینه و جایگاه عزیز جعفری، اهمیت اظهارنظر او و نیز شرط‌های تهران برای مذاکره با واشینگتن توضیح می‌دهد.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336660
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336660_1778517518.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های اسرائیلی خبر دادند، بنیامین نتانیاهو، نخست‌وزیر این کشور، دوشنبه ۲۱ اردیبهشت نشست امنیتی برگزار می‌کند. همزمان دونالد ترامپ از گفت‌وگوی تلفنی با بنیامین نتایاهو خبر داد.
+
+گفت‌وگو با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336659
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336659_1778517520.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیش از ۷۳ روز است که میلیون‌ها نفر در ایران با قطع اینترنت مواجه هستند. به گفته بسیاری از شهروندان، این وضعیت زندگی، کار، درمان و آرامش روانی آن‌ها را مختل کرده است.
+
+گفت‌وگو با سحر تحویلی، کارشناس ارشد هوش مصنوعی و فناوری
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 13931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/rsDox1i9jQs?feature=share»
+</div>
+
+## Persian_Trend_Official — post 13930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/rsDox1i9jQs?feature=share
+</div>
+
+## Persian_Trend_Official — post 13929
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13929_1778517523.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: آتش‌بس تو وضعیت حیاتیه
+
+💢 این وضعیت به طرز باورنکردنی ضعیفه. بعد از خوندن اون مزخرفات "پیشنهاد ایران" حتی وقت نکردم کاملش رو بخونم
+
+💢 این پیشنهاد خیلی ضعیفه و عملاً امید زیادی به ادامه آتش‌بس وجود نداره
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13928
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13928_1778517528.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: ما ۴ روز برای سندی از ایران منتظر ماندیم که تنظیم آن بیش از ۱۰ دقیقه زمان نمی‌برد
+
+🔹آن‌ها ۲ روز پیش با خارج‌کردن اورانیوم‌ها موافقت کردند اما بعداً نظرشان تغییر کرد، چون آن را در پیام ارسالی به ما نیاوردند.
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13927
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13927_1778517530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اوکراین و آلمان تولید مشترک پهپادهای دوربرد را آغاز می‌کنند
+
+💢اوکراین و آلمان از آغاز همکاری مشترک برای تولید پهپادهای تهاجمی دوربرد خبر دادند.
+
+بر اساس گزارش‌ها:
+
+▪️ برد این پهپادها تا حدود ۱۵۰۰ کیلومتر خواهد بود
+
+▪️ هدف از این همکاری، افزایش توان حملات عمقی و دوربرد عنوان شده است
+
+▪️ این پروژه بخشی از گسترش همکاری‌های نظامی و صنعتی میان برلین و کی‌یف محسوب می‌شود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: گروه بزرگی از ژنرال‌ها منتظرند تا در مورد ایران با من ملاقات کنند 🔹ما در حال حاضر نمی‌دانیم چگونه می‌توانیم ایران را برای ادامه حذف بقایای هسته‌ای متقاعد کنیم و این موضوع را به مذاکرات بیشتر موکول خواهیم کرد. ▪️اگر توافقی حاصل نشود، ما ایران را به…
+</div>
+
+## Persian_Trend_Official — post 13925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: گروه بزرگی از ژنرال‌ها منتظرند تا در مورد ایران با من ملاقات کنند
+
+🔹ما در حال حاضر نمی‌دانیم چگونه می‌توانیم ایران را برای ادامه حذف بقایای هسته‌ای متقاعد کنیم و این موضوع را به مذاکرات بیشتر موکول خواهیم کرد.
+
+▪️اگر توافقی حاصل نشود، ما ایران را به گونه‌ای هدف قرار خواهیم داد که قبلاً ندیده‌اند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13924
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13924_1778517531.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹اسرائیل به فارسی
+
+💢جمهوری اسلامی ورشکسته شده و قادر به پرداخت حقوق به مزدوران داخلی خود نیست...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13923
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13923_1778517532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: ایران از آمریکا خواسته «گرد و غبار هسته‌ای» را جمع‌آوری کند
+
+💢دونالد ترامپ مدعی شد مذاکره‌کنندگان ایرانی به او گفته‌اند آمریکا باید مواد رادیواکتیو باقی‌مانده در تأسیسات هسته‌ای تخریب‌شده ایران را خارج کند، زیرا تهران فناوری لازم برای استخراج و پاکسازی آن را در اختیار ندارد.
+
+ترامپ در توصیف این مواد از عبارت «گرد و غبار هسته‌ای» استفاده کرده است.
+
+📌 این ادعا تاکنون از سوی منابع رسمی ایران تأیید نشده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: احتمال ازسرگیری «پروژه آزادی» با ابعادی گسترده‌تر
+
+💢دونالد ترامپ اعلام کرد در حال بررسی ازسرگیری «پروژه آزادی» است، اما این بار نه فقط برای اسکورت کشتی‌ها در تنگه هرمز، بلکه در قالبی گسترده‌تر.
+
+💢او همچنین مدعی شد:
+«رهبران تندروی ایران در نهایت تسلیم خواهند شد.»
+
+«با ایران تعامل خواهیم کرد تا زمانی که به توافق برسیم.»
+
+📌 این اظهارات در حالی مطرح می‌شود که فضای مذاکرات و تنش‌های منطقه‌ای همچنان ناپایدار و مبهم باقی مانده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 17:38
 ---
 
