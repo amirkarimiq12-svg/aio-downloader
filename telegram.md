@@ -7,6 +7,477 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 23:42
+---
+
+## ChizBergerz — post 46306
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46306_1778530348.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوت فتیشا بیان بالا.
+
+سیدنی سوئینی تو قسمت جدید سریال ایفوریا پاهای خودشو میخوره!
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم
+*دارم میرم چین تا کار رژیم را تمام کنم
+لینک برنامه:
+https://www.youtube.com/watch?v=skIwNDUA6UQ
+</div>
+
+## KiriMohems — post 47369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌱 اطلاعیه ویژه کاربران گرامی
+
+به پاس همراهی و اعتماد ارزشمند شما عزیزان، طرح ویژه حجم هدیه برای تعداد محدودی از کاربران فعال شده است.
+🔹 این طرح فقط برای ۲۰۰ نفر اول قابل فعال‌سازی خواهد بود.
+
+
+🎁 5 گیگابایت + 1 گیگابایت هدیه
+
+📌 مجموع حجم دریافتی: 6 گیگابایت
+
+
+✅ قیمت 
+🏷 : 1/900/000 تومان
+
+
+🎁 10 گیگابایت + 2 گیگابایت هدیه
+
+📌 مجموع حجم دریافتی: 12 گیگابایت
+
+
+✅ قیمت 
+🏷 3/500/000 تومان
+
+✨ حجم هدیه به‌صورت خودکار پس از فعال‌سازی سرویس به حساب شما اضافه خواهد شد.
+
+از همراهی و اعتماد همیشگی شما صمیمانه سپاسگزاریم 🌱❤️
+
+
+⭐️ @expressuport | پشتیبانی و خرید
+
+✅️ @vpn_express_sup_bot | ربات فروش
+</div>
+
+## KiriMohems — post 47368
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47368_1778530350.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدئویی از چرت‌ نعشگی ترامپ در جلسه کاخ سفید
+
+کصکش انگاری دو تخت افغانی زده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47367
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47367_1778530351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خوش‌چشم:
+
+این دفعه جوری اسرائیل رو میزنیم که هوش مصنوعی اسرائیل بگا بره
+یه جای دیگه هم تو اسرائیل میزنیم که نمیتونم بگم کجاست ولی بیچارشون میکنه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47366
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47366_1778530352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ : آتش‌بس با ایران مثل بیماریه که داره از کونش تنفس میکنه، تو ضعیف‌ترین حالت ممکنشه!
+ایران یه جواب کسشر فرستاد، که تا آخرشو نخوندم چون وقتم رو فقط هدر میداد.
+اونا خیلی احمقن، فکر میکنن من خسته میشم، حوصلم سر میره یا تحت فشار قرار می‌گیرم! اصلا هیچ فشاری نیست، ما پیروزی کاملی خواهیم داشت.
+تو ایران هم میانه‌رو هست هم دیوونه؛ میانه‌روها احترام بیشتری دارن ولی دیوونه‌ها میخوان تا آخر بجنگن؛ میانه‌روها میخوان توافق کنن ولی از دیوونه‌ها می‌ترسن!
+فکر می‌کنم رسیدن به توافق کاملاً ممکنه. من 4-5 بار با اینا مذاکره کردم.
+مدام نظرشون عوض میشه. رهبری‌شون خیلی بی‌تعهد و غیرقابل اعتماده.
+باهاشون توافق میکنی، بعد فرداش یه سند می‌فرستن که پنج روز طول میکشه برسه درحالی که تو 20 دقیقه میشه همون رو نوشت.
+کردها فقط می‌گیرن؛ من خیلی ازشون ناامید شدم. ما یه سری اسلحه و مهمات فرستادیم [واسه معترضان ایرانی] که باید تحویل داده میشد، ولی خودشون نگهش داشتن.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47365
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47365_1778530353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :g21🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## SportBaadNews — post 251365
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251365_1778530354.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ کوپه: همین فردا ممکنه قرارداد خرید باشگاه سویا توسط راموس نهایی شه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251364
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251364_1778530355.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣 ترامپ: اگر توافقی حاصل نشود، ما ایران را به گونه‌ای هدف قرار خواهیم داد که قبلاً ندیده‌ اند
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251363
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251363_1778530355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ یامال هم یه کیت دستش گرفته که روش نوشته شده «خداروشکر مادریدیستا نیستم»
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251362
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251362_1778530355.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+💍 پدری به این شکل وسط جشن بارسا از رشفورد خواستگاری کرد و دستشو بوسید 😂😂😂
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336706
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336706_1778530357.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصطفی دانشگر، تحلیل‌گر سیاسی، گفت: «تلاش تهران برای امتیاز ندادن به واشینگتن در مساله هسته‌ای، بیش از آن‌که بر پشتوانه‌ای مشخص استوار باشد، ناشی از توهم و اشتباه محاسباتی است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336705
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336705_1778530358.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ائتلاف منطقه‌ای علیه تهران در حال شکل‌گیری است. تام کاتن، سناتور جمهوری‌خواه، گفت کشورهای عربی دیگر از آمریکا برای صلح کمک نمی‌خواهند، بلکه به‌دنبال همکاری نظامی علیه جمهوری اسلامی هستند.
+
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336704
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336704_1778530360.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس نیوز به نقل از مقام‌های آمریکایی گزارش داد که پاکستان به‌طور غیررسمی اجازه داده است برخی هواپیماهای نظامی ایران در فرودگاه‌های این کشور مستقر شوند؛ اقدامی که احتمالا آن‌ها را از حملات هوایی آمریکا مصون می‌سازد.
+براساس این گزارش، ایران همچنین برخی هواپیماهای غیرنظامی خود را به افغانستان منتقل کرده است، هرچند مشخص نیست که آیا در میان آن‌ها هواپیماهای نظامی نیز وجود دارد یا خیر.
+https://iranintl.com/202605113219
+</div>
+
+## IranIntlTV — post 336703
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336703_1778530360.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید با تیم امنیتی و فرماندهان نظامی آمریکا درباره ادامه مسیر جنگ با جمهوری اسلامی جلسه برگزار می‌کند. او گفته در داخل حکومت ایران اختلاف وجود دارد؛ «میانه‌روها» دنبال توافق‌اند اما «دیوانه‌ها» می‌خواهند جنگ ادامه پیدا کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336702
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336702" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: جلسه ترامپ و فرماندهان ارتش در کاخ سفید در مورد ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336701
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336701_1778530362.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وخیم‌ترین اوضاع اقتصاد ایران بعد از قحطی جنگ جهانی
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/r1t36aJQtRA
+@iranintltv
+</div>
+
+## IranIntlTV — post 336700
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336700" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: وخیم‌ترین اوضاع اقتصاد ایران بعد از قحطی جنگ جهانی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336699
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336699_1778530364.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایالات متحده تحریم‌های جدیدی مرتبط با جمهوری اسلامی علیه سه فرد و ۹ نهاد، از جمله چهار نهاد مستقر در هنگ‌کنگ، ۴ نهاد در امارات متحده عربی و یک نهاد در عمان وضع کرد.
+
+طبق این گزارش، محمدرضا اشرفی، صمد فتحی سلامی و احمد محمدی‌زاده به دلیل ارتباط با سپاه پاسداران تحریم شده‌اند.
+https://iranintl.com/202605111289
+</div>
+
+## IranIntlTV — post 336698
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336698" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: ترامپ: احتمال باقی ماندن آتش‌بس یک درصد است، پیشنهاد تهران احمقانه بود
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336697
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336697_1778530365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس در شبکه ایکس نوشت نیروهای مسلح جمهوری اسلامی آماده «پاسخگویی درس‌آموز» به هر حمله‌ای هستند؛ ما برای تمام گزینه‌ها آماده هستیم، «شگفت‌زده خواهند شد.»
+
+او افزود: «استراتژی اشتباه و تصمیم‌های اشتباه، همیشه نتیجه اشتباه خواهد داشت، همه دنیا قبلا این را فهمیده‌اند.»
+https://iranintl.com/202605113220
+</div>
+
+## IranIntlTV — post 336696
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336696_1778530365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336695
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336695_1778530366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336694
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336694_1778530367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهیر شهیدثالث، روزنامه‌نگار و تحلیل‌گر سیاسی، درباره طرح پیشنهادی تهران برای توافق با واشینگتن گفت: «چه دونالد ترامپ در کاخ سفید باشد و چه فردی دیگر، مساله اصلی درخواست جمهوری اسلامی برای به‌رسمیت شناختن حاکمیتش بر تنگه هرمز است.» او تاکید کرد: «هیچ رییس‌جمهوری در آمریکا زیر بار چنین درخواستی نخواهد رفت.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 13947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ادعای سی‌بی‌اس درباره پرواز هواپیماهای ایرانی به پاکستان
+
+به گزارش سی‌بی‌اس به نقل از مقامات آمریکایی، چند روز پس از اعلام آتش‌بس میان ایران و آمریکا در اوایل آوریل، چند فروند هواپیمای ایرانی به پایگاه هوایی «نور خان» نیروی هوایی پاکستان در نزدیکی راولپندی اعزام شده‌اند.
+
+بر اساس این ادعا:
+
+این پایگاه یک مرکز نظامی مهم در حومه اسلام‌آباد/راولپندی محسوب می‌شود.
+
+در میان هواپیماهای اعزامی، یک فروند C-130 هرکولس نیروی هوایی ایران نیز دیده شده است
+
+📌 این گزارش هنوز به‌طور مستقل تأیید نشده و جزئیات رسمی از سوی ایران یا پاکستان منتشر نشده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13946
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13946_1778530369.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 آتش سوزی در پالایشگاه اوکلاهامای آمریکا
+
+💢منابع خبری از وقوع آتش‌سوزی در پالایشگاه شرکت اچ‌اف سینکلر در تولسا، در اوکلاهمای آمریکا خبر دادند.
+
+💢در جریان این حادثه دود سیاه عظیمی از این تأسیسات  نفتی به آسمان برخاست.
+
+💢مقامات هنوز علت این آتش سوزی یا اینکه آیا کسی آسیب دیده است یا خیر را اعلام نکرده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ۶۰ نماینده حزب کارگر خواستار کناره‌گیری استارمر شدند
+
+شبکه «اسکای‌نیوز» گزارش داد تاکنون ۶۰ نماینده حزب کارگر بریتانیا خواستار کناره‌گیری «کی یر استارمر» نخست‌وزیر این کشور شده‌اند.
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13944
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13944_1778530370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر دفاع بلژیک
+
+💢به فرانسه و انگلیس برای پاکسازی تنگه هرمز از مین‌های دریایی و بازگشت به دریانوردی آزاد خواهیم پیوست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت خزانه داری آمریکا اطلاع داده که تحریم های جدیدی علیه افراد مرتبط با جمهوری اسلامی اعمال کرده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13942
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13942_1778530370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌ان‌ان: جزئیات بخشی از جدیدترین پیشنهاد ایران که ترامپ آن را رد کرد را منتشر نمود
+
+💢 دریافت غرامت بابت خسارات جنگی
+
+💢 به رسمیت شناختن حاکمیت ایران بر تنگه هرمز
+
+💢 پایان دزدی دریایی آمریکا علیه کشتی‌های ایرانی
+
+💢 آزادسازی دارایی‌های مسدود شده ایران
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/rsDox1i9jQs?feature=share
+</div>
+
+## Persian_Trend_Official — post 13940
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13940_1778530371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴محمد باقر قالیباف
+
+‏💢نیروهای مسلح ما آمادهٔ پاسخگویی درس‌آموز به هر تجاوزی هستند؛ استراتژی اشتباه و تصمیم‌های اشتباه، همیشه نتیجهٔ اشتباه خواهد داشت، همهٔ دنیا قبلاً این را فهمیده‌اند.
+‏ما برای تمام گزینه‌ها آماده هستیم؛ شگفت‌زده خواهند شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 21:55
 ---
 
