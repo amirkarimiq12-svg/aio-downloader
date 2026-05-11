@@ -7,6 +7,341 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 10:12
+---
+
+## arianheidarii — post 20032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی آریان حیدری pinned «http://ble.ir/arianheidariioriginal»
+</div>
+
+## arianheidarii — post 20031
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️با توجه به شرایط ، حتماً عضو باشید 👆🏼
+</div>
+
+## arianheidarii — post 20030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+http://ble.ir/arianheidariioriginal
+</div>
+
+## arianheidarii — post 20029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👇🏼کانال استاد آریان حیدری در اپلیکیشن بله :
+</div>
+
+## arianheidarii — post 20028
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥جلسه‌ی اول کلاس آنلاین حسابان ویژه امتحان نهایی دوازدهم :
+
+https://www.aparat.com/v/vcy39kw
+</div>
+
+## KiriMohems — post 47342
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47342_1778481749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#صبحانه_عن_گیزشی
+
+امروز
+گلدان های لبخند را
+در حیاط چهره بگذار
+بگذار رهگذرانِ سیس کیری با دیدن حیاط چهره‌ات بگویند:
+"توش باشه بخندی"
+کونِ لَقِشان، برنده ی اصلی تو هستی
+چشم های عاشقت را آب بزن
+پلکهای خسته را لوله کن
+و یکجا در ماتحت بدخواهایت فرو کُن
+نان تازه ای از سر کوچه نشاط بگیر
+سر همان کوچه بایست و از رهگذران این سوال را بکن: "ببخشید اسم این کوچه چیست؟"
+آنها در جواب می‌گویند: "نشاط"
+تو نیز به آن‌ها بگو: "کیر تو چشات"
+و بنشین بخند
+و عشق بنوش
+و به همه سلام بگو و سلام و کیرخر بشنو
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251334
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251334_1778481750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙️ مکالمه جالب لوئیس انریکه با خبرنگار بعد از بازی دیشب تیمش:
+انریکه: بارسا و رئال چند چندن؟
+خبرنگار: 2-0
+انریکه: ایول، همینه…
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336595
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336595_1778481751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نرگس محمدی، برنده جایزه نوبل صلح، پس از صدور دستور توقف اجرای حکم برای انجام روند درمان، در بیمارستان پارس تهران بستری شد. بنیاد نرگس اعلام کرد این انتقال با «تودیع وثیقه سنگین» انجام شده است.
+
+گفت‌وگو با ایمان آقایاری، فعال سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336594
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336594_1778481754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در مصاحبه با شبکه سی‌بی‌اس با اشاره به توانمندی‌های هسته‌ای تهران گفت اسرائیل بخش زیادی از آن‌ها را تضعیف کرده، اما همچنان بخشی از این تهدیدها باقی مانده و باید اقدامات بیشتری انجام شود.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336593
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336593_1778481756.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد یک نفتکش وی‌ال‌سی‌سی به نام «آگویس فانوریوس ۱» که حامل نفت خام عراق است، یکشنبه با هماهنگی تهران و از مسیر تعیین‌شده از سوی جمهوری اسلامی در تنگه هرمز عبور کرد.
+https://iranintl.com/202605119586
+</div>
+
+## IranIntlTV — post 336592
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336592_1778481757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مخالف جمهوری اسلامی در واشینگتن دی‌سی، در اعتراض به اعدام، سرکوب معترضان و قطع اینترنت در ایران تظاهرات کردند.
+
+اردوان روزبه، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336591
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336591" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | دوشنبه ۲۱ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336590
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336590_1778481759.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با حملات پهپادی جمهوری اسلامی به شماری از کشورهای عربی حاشیه خلیج فارس، رسانه‌های اسرائیلی از شکننده بودن آتش‌بس موقت میان جمهوری اسلامی و آمریکا گزارش دادند
+
+گزارش اشکان صفایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336589
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336589_1778481761.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، صبح دوشنبه، ۲۱ اردیبهشت از اجرای حکم اعدام عرفان شکورزاده، زندانی سیاسی، با اتهام «همکاری با سرویس‌های اطلاعاتی آمریکا و اسرائیل» خبر داد.
+
+میزان در گزارش خود نوشت بر اساس محتویات پرونده، عرفان شکورزاده «به عنوان پروژه» و با توجه به تخصصش، جذب یکی از سازمان‌های مهم علمی فعال در حوزه ماهواره شده بود.
+
+شکورزاده بهمن‌ماه ۱۴۰۳ از سوی اطلاعات سپاه با اتهام «جاسوسی و همکاری با کشورهای متخاصم» بازداشت و به اعدام محکوم شد و حکم صادر شده علیه او به‌تازگی در دیوان عالی کشور تایید شده بود.
+iranintl.com/202605113252
+</div>
+
+## IranIntlTV — post 336588
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336588_1778481762.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی مطهری، نایب‌رییس پیشین مجلس شورای اسلامی گفت: «ما داریم کار بزرگی انجام می‌دهیم که در تاریخ ثبت خواهد شد و آن این است که داریم دنیا را از شر ترامپ و نتانیاهو نجات می‌دهیم و انشاالله به نتیجه برسیم.»
+
+مطهری ادامه داد: «داریم جور دنیا را به دوش می‌کشیم در مقابله با این دو آدم روانی و در واقع، ما دنیا را از شر این دو نفر نجات می‌دهیم.»
+
+او افزود: «دنیا دوست دارد که یک منجی داشته باشد که دنیا را از دست اینها نجات دهد و به نظر می‌رسد این منجی ملت ایران است.»
+https://iranintl.com/202605116290
+</div>
+
+## IranIntlTV — post 336587
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336587_1778481763.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن لندن در حمایت از فراخوان شاهزاده رضا پهلوی و در اعتراض به تشدید اعدام‌ها، سرکوب و قطع اینترنت در ایران تجمع کردند.
+
+جزییات بیشتر در گزارش آیدین مقیمی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336585
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336585_1778481764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به‌دنبال فراخوان شاهزاده رضا پهلوی با عنوان «یک ملت در گروگان»، ایرانیان مقیم استکهلم یک‌شنبه ۲۰ اردیبهشت تجمع اعتراضی برگزار کردند.
+
+گزارش مهران عباسیان، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336584
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336584_1778481766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم واشینگتن دی‌سی در پاسخ به فراخوان شاهزاده رضا پهلوی برای اعتراض به خاموشی سراسری اینترنت در ایران، بازداشت‌های گسترده و اعدام بی‌وقفه معترضان تجمع کردند.
+
+اردوان روزبه، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336583
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336583_1778481769.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین شریعتمداری، نماینده رهبر کشته‌شده جمهوری اسلامی در روزنامه کیهان نوشت: «حضور ناوهای فرانسه و بریتانیا یا هر کشور دیگری برای همراهی با آمریکا در مقابله با حق قانونی ما در حاکمیت بر تنگه هرمز دخالت آشکار در امور حاکمیتی ماست... و مقابله پیشدستانه با این ناو‌های جنگی حق طبیعی و شناخته‌شده ماست.»
+
+او ادامه داد: «حضور ناوهای فرانسه و بریتانیا در تنگه هرمز، اعلام جنگ با جمهوری اسلامی خواهد بود.»
+
+او افزود: «این ناوها در تیررس موشک‌های دوربرد ما قرار دارند و علاوه‌ برآن، دریای سرخ و باب‌المندب نیز در سلطه موشکی انصارالله یمن است.»
+https://iranintl.com/202605111247
+</div>
+
+## IranIntlTV — post 336582
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336582_1778481769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻محمد تقوی، ایران اینترنشنال در برنامه هت‌تریک درباره تهدیدهای مهدی تاج علیه فیفا و آمریکا گفت: «مهدی تاج و مسئولان جمهوری اسلامی دچار خودشاخ‌پنداری شده‌اند. حرف‌هایی که رییس فدراسیون فوتبال می‌زند، از همان نوع حرف‌هایی است که مسئولان سیاسی جمهوری اسلامی می‌زنند. تیم ملی به جام جهانی نرود، تیم‌های دیگر آماده‌ای هستند که جایگزین شوند.»
+
+🔹تماشای نسخه کامل هت‌تریک؛👇
+https://youtu.be/lCFOAQeAUng
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 336581
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336581_1778481771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در حالی که مقام‌های آمریکایی اعلام کردند عناصر وابسته به سپاه پاسداران به‌عنوان هیات همراه تیم ملی فوتبال حق حضور در آمریکا را ندارند، مهدی تاج، رییس فدراسیون فوتبال، در گفت‌وگو با صداوسیمای جمهوری اسلامی از شروط خود برای فیفا پیش از اعزام به جام جهانی گفت.
+
+🔹توضیحات مزدک میرزایی، ایران اینترنشنال در برنامه هت‌تریک
+
+🔹تماشای نسخه کامل هت‌تریک؛👇
+https://youtu.be/lCFOAQeAUng
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 336580
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336580_1778481773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۱ اردیبهشت
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 13872
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13872_1778481775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰بلومبرگ:
+
+بیش از ۴۰ کشور قرار است روز دوشنبه برای بحث در مورد مشارکت‌های نظامی در یک ماموریت به رهبری اروپا جهت اسکورت کشتی‌های تجاری از تنگه هرمز پس از برقراری آتش‌بس پایدار، دیدار کنند.
+
+عملیات دفاعی دریایی پیشنهادی که به رهبری بریتانیا و فرانسه است.
+
+انتظار می‌رود شامل عملیات پاک‌سازی مین، اسکورت‌های دریایی و پلیس هوایی باشد که هدف آن حفاظت و اطمینان‌بخشی به کشتی‌رانی تجاری در منطقه است.
+﻿
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13871
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13871_1778481776.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران به فرانسه و بریتانیا هشدار داد هرگونه حضور نظامی در تنگه هرمز با پاسخ مستقیم مواجه خواهد شد.
+
+کاظم غریب‌آبادی، معاون وزیر امور خارجه ایران، اعلام کرد، استقرار ناوشکن‌ها و شناورهای جنگی فرانسه یا بریتانیا تحت عنوان «حفاظت از کشتیرانی» اقدامی تحریک‌آمیز و دخالت در امنیت منطقه تلقی می‌شود.
+
+وی در پیامی در شبکه اجتماعی ایکس نوشت:
+«تنگه هرمز قلمرو نفوذ قدرت‌های فرامنطقه‌ای نیست و جمهوری اسلامی ایران اجازه نخواهد داد هیچ طرف خارجی امنیت این آبراه راهبردی را به چالش بکشد.»
+
+غریب‌آبادی تأکید کرد هرگونه حضور نظامی هماهنگ با «اقدامات غیرقانونی» آمریکا، با واکنش «فوری، قاطع و پشیمان‌کننده» نیروهای مسلح ایران روبه‌رو خواهد شد.
+
+این مقام ایرانی همچنین هشدار داد تهران هر تحرک نظامی خارجی در اطراف تنگه هرمز را به‌دقت رصد می‌کند و مسئولیت هرگونه تشدید تنش بر عهده کشورهای مداخله‌گر خواهد بود.
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13869
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی اظهارات مقام‌های نظامی فرانسه درباره اعزام ناو هواپیمابر «شارل دوگل» به دریای سرخ و خلیج عدن، حسین شریعتمداری، مدیرمسئول روزنامه کیهان، خواستار واکنش «پیشدستانه» ایران علیه ناوهای فرانسه و بریتانیا شد...
+
+شریعتمداری در سرمقاله روزنامه کیهان نوشت اعزام این ناو در چارچوب همکاری‌های نظامی پاریس و لندن و با هدف «تقویت آزادی کشتیرانی در منطقه تنگه هرمز» انجام شده است. او این اقدام را «دخالت آشکار در امور حاکمیتی ایران» توصیف کرد و آن را معادل «اعلام جنگ» دانست.
+
+وی همچنین از مقام‌های جمهوری اسلامی خواست دو اقدام فوری را در دستور کار قرار دهند؛
+1️⃣صدور بیانیه‌ای خطاب به شهروندان
+کشورهای﻿ اروپایی درباره هزینه‌های نظامی دولت‌هایشان در حمایت از آمریکا و اسرائیل،
+
+2️⃣ «مقابله پیشدستانه» با ناوهای جنگی فرانسه و بریتانیا.
+
+شریعتمداری مدعی شد که این ناوها در برد موشک‌های دوربرد ایران قرار دارند و همچنین به توانایی نیروهای انصارالله یمن در دریای سرخ و باب‌المندب اشاره کرد.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 08:06
 ---
 
