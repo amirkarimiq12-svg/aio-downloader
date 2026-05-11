@@ -7,6 +7,324 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 02:08
+---
+
+## arianheidarii — post 20033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ جلسه‌ی اول کلاس ریاضیات تجربی ویژه امتحان نهایی دوازدهم (آفلاین) :
+
+https://www.aparat.com/v/jyiglsb
+</div>
+
+## ChizBergerz — post 46314
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46314_1778539124.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جوری که موش‌تباه تو بیت رهخری زنده موند:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46313
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46313_1778539126.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae21
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## ChizBergerz — post 46310
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46310_1778539128.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوت فتیشا بیان بالا. سیدنی سوئینی تو قسمت جدید سریال یوفوریا پاهای خودشو میخوره! @ChizBergerz
+</div>
+
+## rodast_omiddana — post 71254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 سلام امید جان
+من چند ماهه تو کانال شما عضو هستم
+شاید باورت نشه
+تو این شرایط سخت اقتصادی ایران
+من و همسرم دونفری کار می‌کنیم
+فقط یه چیزی حالمونو خوب میکنه
+شب که از سرکار میایم
+همسرم میره چایی میزاره
+میشینیم با ذوق پیام های کانالتو چک میکنیم
+اینقد همسرم خوشحال میشه از جنگ صحبت میکنی
+تنها دلخوشیمون الان کانال شماست
+که آخر شب میشینیم تک به تک نگاه می‌کنیم
+بعضی از خبرهارو که می‌خونیم همسرم از خوشحالی بلند میشه آهنگ میزاره میرقصه😍😍😍😍😍😍😍😍😍
+خلاصه تو دل ما خیلی جا داری😘😘😘❤️❤️❤️
+</div>
+
+## rodast_omiddana — post 71253
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 سلام امید جان امیدوارم حالت خوب باشه
+این پیام آخر توی کانالتو دیدم گفتم منم اینو بگم
+مادربزرگ من که ۷۳ سالشه و هر عید قربون گوسفند قربونی میکنه و هر محرم حلیم نذری میده. الان ویسای تو رو گوش می‌کنه و از حسین مظلوم رسیده به جایی که وقتی میگی یه لعنت بر حسین بفرستین اونم از ته دل لعنت میفرسته😂😂
+</div>
+
+## rodast_omiddana — post 71252
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71252_1778539130.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 والا اسرائیل به نقل از منابع:
+"واشنگتن یک هفته پیش‌در آستانه تصمیم گیری برای از سرگیری حملات به ایران بود
+افراد نزدیک به ترامپ هفته گذشته در آخرین لحظه او را متقاعد کردند که تصمیم به بازگشت به جنگ را متوقف کند."
+</div>
+
+## rodast_omiddana — post 71251
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71251_1778539130.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آکسیوس:
+"ترامپ در حال بررسی دو گزینه‌ست
+یا از سرگیری «پروژه آزادی» که هفته گذشته به حالت تعلیق درآمد
+یا از سرگیری بمباران و حمله به ۲۵٪ از اهدافی که آمریکا شناسایی کرده اما هنوز به آنها حمله نکرده - و امشب با ژنرال‌ها جلسه دارد!"
+
+تیک تاک...
+</div>
+
+## rodast_omiddana — post 71250
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71250_1778539130.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سلام حدودا 1:47
+در شهر قزوین صدای انفجار اومد
+فکر کنم پدافند بود
+خبری شده ؟
+</div>
+
+## rodast_omiddana — post 71249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😎 امید جان سلام
+به لطف تو من تونستم زشتی فحش دادن به ائمه معصوم مادر نسکافه رو از بین ببرم و پرده این قضیه رو تو خانوادمون پاره کردم
+مرسی ازت❤️
+</div>
+
+## rodast_omiddana — post 71248
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71248_1778539131.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تصاویری از نفتکش رژیم که شب گذشته در نزدیک جاسک مورد هدف قرار گرفت و همچنان در آتش میسوزد ... تمام خدمه سالم هستند.
+</div>
+
+## rodast_omiddana — post 71247
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71247_1778539131.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨و.یدئویی دیگر از زیردریایی موشک بالستیک کلاس اوهایو USS Alaska (SSBN-732) که از جبل الطارق عبور کرده و به سمت منطقه ست..
+</div>
+
+## KiriMohems — post 47377
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47377_1778539133.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آقای کیر ، نخست وزیر انگلیس: کص خارتون ، استعفا نمیدم
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47376
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47376_1778539134.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امنیت فوق العاده لاتی پیام رسان داخلی بله رو مشاهده میکنید که ناموص برای تلگرام نذاشته
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251372
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251372_1778539135.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت گپ ادمینای بدنیوز خیلی خرابه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الکی عمرمون رو سر فوتبال تلف کردیم این هوادار لیکرز این روزا به شدت غوغا به پا کرده و ملت روش کراش زدن @SportBaadNews
+</div>
+
+## SportBaadNews — post 251370
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251370_1778539136.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الکی عمرمون رو سر فوتبال تلف کردیم
+
+این هوادار لیکرز این روزا به شدت غوغا به پا کرده و ملت روش کراش زدن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251369
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251369_1778539138.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع به سایت وینکوبت
+
+
+✅ کاربران عزیز، برای ورود آسان و بدون دردسر به سایت وینکوبت، می‌توانید از ربات رسمی استفاده کنید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+🔹 ورود سریع و مستقیم به سایت
+🔹 بدون نیاز به جستجوی لینک‌های مختلف
+🔹 دسترسی راحت از داخل تلگرام
+
+
+📌  همه چیز به ساده‌ترین شکل ممکن داخل ربات برای شما کاربران محترم فراهم شده.
+
+
+🔗 اگر دنبال یه راه مطمئن و سریع برای ورود هستید، ربات وینکوبت بهترین انتخاب شماست:
+
+
+🤖 @Wincobet_bot
+
+
+🔗 برای دریافت تحلیل بازی‌ها و اطلاع از آخرین بروزرسانی‌ها، به کانال رسمی وینکوبت بپیوندید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 336717
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336717" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: از شاه‌ تا مجتبی، اوج و افول نفت ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336716
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336716_1778539140.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «این روزها در رسانه‌های جمهوری اسلامی از علی لاریجانی به‌عنوان چهره‌ای اهل تدبیر یاد می‌شود، در حالی که او به‌عنوان دبیر شورای عالی امنیت ملی نقش اصلی را در کشتار دی‌ماه داشته است. لاریجانی پس از خامنه‌ای، آمر اصلی بزرگ‌ترین کشتار خیابانی تاریخ ایران است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336715
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336715_1778539142.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام، سناتور جمهوری‌خواه، در واکنش به گزارش سی‌بی‌اس درباره انتقال هواپیماهای نظامی ایران به پاکستان گفت: «اگر این گزارش درست باشد، باید نقش پاکستان به‌عنوان میانجی میان ایران، آمریکا و سایر طرف‌ها به‌طور کامل بازنگری شود.»
+لیندسی گراهام افزود با توجه به برخی اظهارات گذشته مقام‌های دفاعی پاکستان درباره اسرائیل، صحت این گزارش درباره کمک اسلام آباد به حکومت ایران برای او دور از انتظار نیست.
+https://iranintl.com/202605115329
+</div>
+
+## IranIntlTV — post 336714
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336714" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی «برنامه با کامبیز حسینی»؛ دارو؛ کالایی لوکس در میانهٔ فروپاشی معیشت در ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336713
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336713_1778539144.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلاد محمدی، برادر شهریار محمدی، جان‌باخته اعتراضات سراسری ۱۴۰۱ ایران، با انتشار ویدیویی در اینستاگرام از هم‌پیمان شدن جمعی از مادران دادخواه کردستان خبر داد.
+او در شرح این ویدیو نوشته است: «ما مادران دادخواه، مادران کردستان، مادران «ژن، ژیان، ئازادی» هنوز با جای خالی فرزندانمان نفس می‌کشیم. ما را با سکوت آشنا کردند، اما درد به ما صدا داد. مادر بودن فقط زندگی بخشیدن نیست؛ گاهی یعنی ایستادن بر زخم و ادامه دادن.»
+او در پایان، روز مادر را به همه مادران دادخواه و داغدار تبریک گفت.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336712
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336712_1778539145.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «با رسیدن مذاکرات جمهوری اسلامی و آمریکا به بن‌بست، موقعیت اسرائیل که طرفدار ازسرگیری حملات نظامی است تقویت شده چون اسرائیل از ابتدا معتقد بود مذاکره و توافق با جمهوری اسلامی نتیجه‌ای ندارد. حالا که ترامپ پیشنهاد جمهوری اسلامی را غیرقابل قبول می‌داند، دست اسرائیل برای ترغیب واشینگتن به بازگشت به گزینه نظامی بازتر شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336711
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336711_1778539147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در شبکه اجتماعی ایکس نوشت که جمهوری اسلامی ۴۷ سال است علیه آمریکا و متحدانش جنگ به راه انداخته، و تاکید کرد: «امروز این رژیم از همیشه ضعیف‌تر است و مردم ایران آماده‌اند تا آن را سرنگون کنند.»
+او نوشت که اتخاذ سیاستی درست در این لحظه، می‌تواند قرن آینده را تغییر دهد.
+
+https://iranintl.com/202605117455
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 01:11
 ---
 
