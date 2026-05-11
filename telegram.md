@@ -7,6 +7,208 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 03:09
+---
+
+## rodast_omiddana — post 71265
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 درود امید جان
+من و رفقام هر شب جمع میشیم برنامه شمارو نگا میکنیم
+هر وقت میگید یه لعنت بر حسین بفرستید همگی یه لعنت بر حسین دسته جمعی میگیم خیلی جوابه 😂😂
+خلاصه بگم نه حرف داری نه حریف زنده باشی
+چاکرتم از تبریز🌹
+</div>
+
+## rodast_omiddana — post 71264
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71264_1778542748.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خواستم بگم سال ۲۰۱۸ که آمریکا به سوریه حمله کرد، ترامپ توی همون لحظه حمله، پای میز مذاکره با شی جی‌پینگ نشسته بود..
+تیک تاک..
+</div>
+
+## rodast_omiddana — post 71263
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71263" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_ ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم_دارم میرم چین تا کار رژیم را تمام کنم
+</div>
+
+## rodast_omiddana — post 71262
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71262" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم کم_ ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم_دارم میرم چین تا کار رژیم را تمام کنم
+</div>
+
+## rodast_omiddana — post 71261
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71261" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم_دارم میرم چین تا کار رژیم را تمام کنم
+</div>
+
+## rodast_omiddana — post 71259
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم_دارم میرم چین تا کار رژیم را تمام کنم
+</div>
+
+## rodast_omiddana — post 71258
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم_دارم میرم چین تا کار رژیم را تمام کنم
+</div>
+
+## rodast_omiddana — post 71257
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 این وسط ماهایی که از اول جنگ میگیم امید دانا رو گوش بدید بقیه دارن سرود مینوازند چقد فحش میخوردیم 😂 الان نصف همینایی که فحش میدادن بدون دیدن برنامه های هرشبت خوابشون نمیبره ❤️‍🔥
+
+
+خیلی خوشحااااالم از اینکه داری دل همه ی مردم واقعی ایران و به دست میاری ادامه بده بهترین، پشتتیم ❤️‍🔥
+</div>
+
+## rodast_omiddana — post 71256
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71256_1778542749.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دوستان امشب فایلهای برنامه هنوز آماده نشده منتظرم خروجی بگیرم به مشکل فنی خوردیم ❤️ تا کمتر از یکساعت دیگه در کانال میزاریم
+</div>
+
+## rodast_omiddana — post 71255
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 آقای امید دانا همین الان دارم از ایران و شبکه ملیگ تی‌وی برنامه شما رو با خانواده میبینم و واقعا تبدیل شدید به تنها تحلیلگری که حرفش برای ما قابل اعتماده هروقت می‌نشینیم دای تلویزیون به بابام میگم بزنه شبکه ملی گرایان که امید دانا ببینیم😅 خلاصه که خیلی کار شما درسته و واقعا آدم فرهیخته و خردمندی هستید و کل خانوادمون شما رو دوست داره عشق از کرج🙏❤️‍🔥
+</div>
+
+## KiriMohems — post 47382
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47382_1778542750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ناموصا کف تهرون انقلاب شده و ما دست به کون موندیم ؟
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47381
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47381_1778542751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A21🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## KiriMohems — post 47379
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47379_1778542752.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰وال استریت  ژورنال:
+
+امارات بیخایگان عربی در نخستین روز اعلام آتش بس ترامپ در جنگ ۴۰ روزه علیه چاک کون جمهوری اسلامی، به پالایشگاه لاوان در ایران حمله کرده ولی تخم لاپاش نبوده و مسئولیتش رو گردن نگرفته. این پالایشگاه پس از حمله برای ماه ها از مدار تولید خارج شده.
+ایران هم گفته کص ننت و این حمله رو همون روز با حمله متقابل به امارات و کویت جواب داده.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47378
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47378_1778542753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸ترامپ گوریل :
+
+عنم روون شده و مشتاقم تا به چین سفر کنم، کشوری سکسی، با رهبری، رئیس‌جمهور شی، که مورد خایمالی همه است. اتفاقات بزرگی برای هر دو کشور خواهد افتاد!» - رئیس‌جمهور ترانس چیز یعنی ترامپ.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251374
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251374_1778542753.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شات های جدید جورجینا 
+🤭
+🤭
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336719
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336719_1778542753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه آمریکا بر اساس برنامه «پاداش برای عدالت» این وزارتخانه تا سقف ۱۵ میلیون دلار برای اطلاعاتی که به مختل شدن سازوکارهای مالی سپاه و شاخه‌های مختلف آن منجر شود، پاداش تعیین کرد.
+پیش‌تر در روز دوشنبه، دولت آمریکا تحریم‌های جدیدی مرتبط با جمهوری اسلامی علیه سه فرد و ۹ نهاد، از جمله چهار نهاد مستقر در هنگ‌کنگ، چهار نهاد در امارات متحده عربی و یک نهاد در عمان وضع کرد.
+
+https://iranintl.com/202605119344
+</div>
+
+## IranIntlTV — post 336718
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336718_1778542754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندی با ارسال پیامی به ایران‌اینترنشنال، به مزاحمت‌های شبانه حامیان جمهوری اسلامی در خیابان‌های کرج اشاره می‌کند و می‌گوید آن‌ها هیچ ملاحظه‌ای برای کسی ندارند.
+او در ادامه می‌گوید: «کسی به داد ما نمی‌رسد؛ جوانان ما دارند از بین می‌روند.»
+</div>
+
+## Persian_Trend_Official — post 13950
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13950_1778542755.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🔥
+📝 Nick
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 02:08
 ---
 
