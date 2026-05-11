@@ -7,6 +7,110 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 20:14
+---
+
+## ChizBergerz — post 46302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام میدونه بهش میگیم "عمو لینزی"
+بی‌بی هم که میدونه "بی‌بی جون" صداش میکنیم!
+امیدوارم ترامپ ندونه بهش میگیم املاکی زن‌جنده :)))
+</div>
+
+## ChizBergerz — post 46301
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46301_1778517886.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از تبار خامنه‌ای هیچ کس زنده نمونده، حتی هیچ نوه و نتیجه‌ای!
+اینه عاقبت دیکتاتوری، ظلم و کُشتار مردم بی‌گناه!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46300
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46300" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46299
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46299_1778517887.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge21
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## rodast_omiddana — post 71239
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71239_1778517888.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 احمد زیدآبادی کُسخل گفته هیچ راه نظامی وجود ندارد..
+این اصلاحطلب مادر نسکافه نمیفهمد که هیچ راه حل دیپلماتیک وجود ندارد..
+هر وقت یک لحظه این جماعت مَشنگ رفتن رو مُختان یادتان بیاید اینها میگفتن جنگ نمیشود و من با تسلط بالا میگفتم جنگ قطعی هست..
+احمد بیشرف وقتی نیروی زمینی آمریکا وارد خاک ایران شد و سرنوشت حزب بعث عراق برای جمهوری اسلامی رقم خورد یه اونجای مادرت بهت میگم..
+</div>
+
+## KiriMohems — post 47362
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47362_1778517888.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ کله گوهی :
+
+الان یه مشت از ژنرال‌ها دست به خایه نشستن و منتظر من هستن؛ جلسه‌ای که درباره کشور کاملاً دوست‌داشتنی ایران برگزار میشه.
+#Helsinki
+@KiriMohems
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 20:07
 ---
 
