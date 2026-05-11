@@ -7,6 +7,492 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/21 21:55
+---
+
+## ChizBergerz — post 46305
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46305_1778523949.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه رهخر تاریخ جمهوری‌اسهالی در یک قاب:
+
+آفتابه، فریزر، مقوا
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46304
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان اخبار رو فقط تو کانال چیزنیوز پوشش میدیم، اگه میخواید اخبار رو دنبال کنید عضو چیزنیوز بشید👈 @ChizNewz
+</div>
+
+## ChizBergerz — post 46303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان اخبار رو فقط تو کانال چیزنیوز پوشش میدیم، اگه میخواید اخبار رو دنبال کنید عضو چیزنیوز بشید👈 @ChizNewz
+</div>
+
+## rodast_omiddana — post 71245
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71245_1778523950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حمله پهپادی رژیم جمهوری اسلامی به کردستان عراق
+اربیل عراق هم اکنون
+</div>
+
+## rodast_omiddana — post 71244
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71244_1778523950.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨نخست وزیر نتانیاهو:
+اگر رژیم ایران سقوط کند، به معنای پایان حزب‌الله، حماس و احتمالاً حوثی‌ها نیز خواهد بود.
+</div>
+
+## rodast_omiddana — post 71243
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71243_1778523950.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ آقا جان من برنامه ها را هنگام رانندگی نگاه نکنید خطرناکه...
+دمتون گرم
+</div>
+
+## rodast_omiddana — post 71242
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71242_1778523951.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شموئیل زاکای، مدیر سازمان هواپیمایی اسرائیل:
+"فرودگاه بن‌گوریون به پایگاه نظامی آمریکا تبدیل شد"
+</div>
+
+## rodast_omiddana — post 71241
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 برنامه امشب:
+*ترامپ: جمهوری اسلامی را در یک روز دوباره نابود می‌کنیم
+*دارم میرم چین تا کار رژیم را تمام کنم
+لینک برنامه:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71240
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71240_1778523951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑روزانه از ایران پیام زیاد میاد ولی این یکی خیلی چسبید..
+دمتون گرم، خستگیم در رفت..
+</div>
+
+## KiriMohems — post 47364
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سیتنا:
+برخی از شهروندان ساکن غرب و جنوب غرب کشور بخاطر قطعی اینترنت سیم کارت عراقی گرفتن و با این کلک ریدن تو فیلترینگ
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47363
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47363_1778523951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 آکسیوس : ترامپ تو کونش دائم میچرخه که پس از ریدمان در مذاکرات، اقدامات نظامی علیه ایران رو از سر بگیره و امروز با ژنرال‌ها دیدار میکنه.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251361
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251361_1778523952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ گاستون آیدل: پی‌اس‌جی خولیان آلوارز رو می‌خواد؛ لوئیز انریکه طرفدار پر و پاقرص این مهاجم آرژانتینیه و پاریس الان دیگه با تمام توان دنبالشه!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251360
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251360_1778523952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یامال پرچم فلسطین رو تو جشن امروز بارسا بالا برد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251359
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251359_1778523954.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اسکای اسپورت: ژابی آلونسو شرایط چلسی رو پذیرفته و از پروژه تیم خوشش اومده. ژابی و چلسی تو مذاکرات اولیه کاملا به توافق رسیدن. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251358
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251358_1778523954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قدرت سیگار
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251357
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251357_1778523955.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚪️ Tottenham - 
+🟡 Leeds
+
+
+🟣 پریمیرلیگ انگلیس
+
+⏰ دوشنبه ساعت ۲۲:۳۰
+
+🏟 استادیوم تاتنهام‌هاتسپر
+
+
+⚽️ تاتنهام امشب تحت فشار زیادی وارد بازی می‌شود، چون برای فرار از بحران به امتیاز کامل نیاز دارد. تاتنهام در دو بازی اخیرش عملکرد هجومی بهتری نشان داده و اعتمادبه‌نفس تیم کمی برگشته است. لیدزیونایتد اما از نظر فرم کلی باثبات‌تر بوده و در چند هفته اخیر کمتر شکست خورده است. لیدز روی ضدحمله و انتقال سریع توپ خطرناک ظاهر می‌شود، مخصوصاً مقابل تیم‌هایی که دفاع جلو بازی می‌کنند. آمار رودررو به سود تاتنهام است و اسپرز ۵ بازی آخر مقابل لیدز را برده. تقابل‌های اخیر دو تیم معمولاً پرگل بوده و میانگین گل بالایی داشته‌اند. از نظر مدل‌های آماری، شانس برد تاتنهام کمی بیشتر است.
+
+
+📌در ربات وینکوبت ثبت‌نام کن و با شارژ از طریق کریپتو ۵٪ شارژ بیشتری رو دریافت کنید، همین حالا شروع کن: 
+👇
+
+
+🟣 [ برای ورود به ربات کلیک کنید: ]
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال سایت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 336693
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336693_1778523955.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک روز پس از آن که دونالد ترامپ با پاسخ جمهوری اسلامی به پیشنهاد واشینگتن مخالفت کرد، ارتش آمریکا اعلام کرد که یک زیردریایی از کلاس اوهایو که مجهز به موشک‌های بالستیک هسته‌ای است، یک‌شنبه وارد جبل‌الطارق شد.
+
+ناوگان ششم نیروی دریایی ایالات متحده در بیانیه‌ای نوشت: «زیردریایی‌های موشک بالستیک کلاس اوهایو، سکوهای پرتاب غیرقابل شناسایی برای موشک‌های بالستیک پرتاب‌شونده از زیردریایی هستند و برای ایالات متحده امن‌ترین و پایدارترین بخش از سه‌گانه هسته‌ای را فراهم می‌کنند.»
+
+جبل‌الطارق، قلمرو بریتانیا و مشرف به تنگه‌ای است که دریای مدیترانه را به اقیانوس اطلس متصل می‌کند.
+
+پنتاگون نام این زیردریایی را که یکی از محرمانه‌ترین سلاح‌های ارتش آمریکا است فاش نکرد.
+
+به طور کلی، محل استقرار زیردریایی‌های هسته‌ای آمریکا به شدت طبقه‌بندی‌شده و محرمانه است.
+
+ترامپ دوشنبه به خبرنگاران گفت که آتش‌بس آمریکا با ایران در وضعیت بحرانی قرار دارد و آن را «به‌طرز باورنکردنی ضعیف» توصیف کرد.
+
+https://iranintl.com/202605111968
+</div>
+
+## IranIntlTV — post 336692
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336692_1778523956.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت در حال بررسی احیای «پروژه آزادی» در تنگه هرمز است. او تاکید کرد این بار هدایت کشتی‌ها در این تنگه تنها بخش کوچکی از یک عملیات نظامی گسترده‌تر خواهد بود.
+
+سمیرا قرایی و بابک اسحاقی، خبرنگاران ایران‌اینترنشنال، گزارش می‌دهند
+@iranintltv
+</div>
+
+## IranIntlTV — post 336691
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336691_1778523957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش وال‌استریت ژورنال درباره وجود یک پایگاه نظامی مخفی اسرائیل در عراق واکنش‌های گسترده‌ای به همراه داشته است.
+
+مقام‌های عراقی در ابتدا وجود این پایگاه را رد کردند، اما در ادامه تلاش کردند ابعاد ماجرا را کم‌اهمیت جلوه دهند.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336690
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336690_1778523959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره‌ای دوشنبه، که توسط آسوشیتدپرس بررسی شد، نشان می‌دهد لکه نفتی در خلیج فارس، در جنوب جزیره خارک – مهم‌ترین پایانه نفت خام ایران – در حال حرکت است.
+
+پیش‌تر مدیرعامل شرکت پایانه‌های نفتی ایران، گزارش‌ها درباره وجود لکه نفتی در جزیره خارک را رد کرد.
+
+او افزود: هیچ‌گونه نشتی در زیرساخت‌ها، مخازن ذخیره‌سازی، سیستم‌های اندازه‌گیری، اسکله‌ها، خطوط لوله این منطقه و کشتی‌های در حال بارگیری وجود ندارد.
+https://iranintl.com/202605113346
+</div>
+
+## IranIntlTV — post 336689
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336689_1778523960.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع نزدیک به تیم مذاکرات به خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران گفت: «برخلاف اظهارات برخی رسانه‌های غربی، در متن پیشنهادی جمهوری اسلامی هیچ‌گونه پذیرش خروج مواد غنی‌شده هسته‌ای از کشور وجود ندارد.»
+
+این منبع گفت آمریکا در طرح خود نوشته بود پول‌های بلوکه‌شده ایران را آزاد خواهد کرد اما جمهوری اسلامی تاکید کرده این پول‌ها باید در مدت معینی آزاد شود.
+https://iranintl.com/202605111974
+</div>
+
+## IranIntlTV — post 336688
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336688_1778523960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه چشم‌انداز گفت: «ایران با بحرانی اقتصادی روبه‌رو است که فقط به تورم محدود نمی‌شود، بلکه به روند نابودی رویاها و انگیزه‌های نسل جوان کشور گره خورده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336687
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336687" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: جمهوری اسلامی در برزخ صلح و جنگ
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336686
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336686_1778523962.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «ایرانی‌ها دو روز پیش به ما گفتند باید مواد غنی‌شده را تحویل بگیرید، اما بعد نظرشان عوض شد، چون در سندی که برای ما فرستادند این موضوع ذکر نشده بود.»
+
+او افزود: «آنها ابتدا با ما توافق کردند، ولی بعد حرفشان را پس گرفتند. ایران نباید به سلاح هسته‌ای برسد، اما در نامه‌ای که برای ما فرستادند این مساله را نپذیرفتند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336685
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336685_1778523964.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ بار دیگر از وجود اختلاف درون جمهوری اسلامی بر سر توافق با آمریکا سخن گفت و افزود گروهی از مقام‌های «میانه‌رو» خواهان توافق هستند اما «دیوانه‌ها» می‌خواهند جنگ ادامه پیدا کند.
+
+او هشدار داد در صورت وقوع درگیری، «این یک جنگ خیلی سریع خواهد بود».
+
+گفت‌وگو با جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336684
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336684_1778523965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «مردم می‌خواهند اعتراض کنند، اما سلاحی ندارند. ما تصور می‌کردیم می‌توانیم از طریق کردها به آنها کمک کنیم و سلاح برسانیم، اما کردها ما را ناامید کردند.» او افزود: «بارها کمک گرفتند و کنگره می‌گفت کردها خیلی سخت می‌جنگند و برای حمایت از آنها تلاش زیادی شد، اما من از ابتدا هم فکر می‌کردم این سیاست جواب نمی‌دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336683
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336683" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | دوشنبه ۲۱ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336682
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336682_1778523967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از سه منبع آمریکایی گزارش داد که دونالد ترامپ روز دوشنبه با تیم امنیت ملی خود دیدار می‌کند تا درباره مسیر پیش رو در جنگ با جمهوری اسلامی، از جمله احتمال ازسرگیری اقدام نظامی، گفت‌وگو کند؛ این اقدام پس از بن‌بست مذاکرات با تهران در یکشنبه اعلام شده است.
+
+براساس این گزارش، مقام‌های آمریکایی می‌گویند ترامپ خواستار رسیدن به توافقی برای پایان دادن به جنگ است، اما رد بسیاری از درخواست‌های او توسط جمهوری اسلامی و امتناع تهران از ارائه امتیازات قابل‌توجه در برنامه هسته‌ای، گزینه نظامی را دوباره روی میز قرار داده است.
+https://iranintl.com/202605113448
+</div>
+
+## IranIntlTV — post 336681
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336681_1778523967.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دارو در ایران دیگر فقط گران نشده؛ دارد ناپدید می‌شود.
+قیمت بعضی داروها تا ۴۰۰ درصد افزایش یافته، حدود ۲۰۰ قلم داروی حیاتی کمیاب شده و بسیاری از بیماران، میان غذا و درمان، مجبور به انتخاب شده‌اند.
+
+بیماران سرطان، ام‌اس، دیالیز، هموفیلی و حتی بیماران اعصاب و روان، زیر فشار کمبود و گرانی دارو مانده‌اند.
+
+آیا شما یا اطرافیانتان با بحران دارو روبه‌رو شده‌اید؟
+آیا شده نسخه دست‌تان باشد، اما توان خرید دارو را نداشته باشید؟
+آیا دارویی که مصرف می‌کنید، کمیاب یا سهمیه‌ای شده است؟
+
+از تجربه و واقعیت زندگی‌تان برای ما بگویید.
+
+«برنامه» صدای شماست.
+اگر در ایران به اینترنت دسترسی دارید، بیایید روی خط و روایت خودتان را ثبت کنید.
+ما شما را، بدون نوبت، مستقیم از ایران روی آنتن می‌آوریم.
+تاریخ با صدای شما نوشته می‌شود.
+
+برای شرکت در «برنامه با کامبیز حسینی» همین حالا در واتس‌اپ پیام بدهید:
+
+۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+
+«یک ایران صدای شما را می‌شنود»
+@iranintltv
+</div>
+
+## IranIntlTV — post 336679
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336679_1778523968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از منابع عراقی گزارش داد که اسماعیل قاآنی، فرمانده نیروی قدس سپاه، به عراق سفر کرده و از برخی گروه‌های مسلح خواسته از برقراری روابط با آمریکا خودداری کنند.
+
+بر اساس این گزارش، او همچنین خط قرمزی را برای دولت عراق در مورد تحویل سلاح گروه‌های مسلح تعیین کرده است.
+https://iranintl.com/202605118884
+</div>
+
+## IranIntlTV — post 336678
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336678_1778523969.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر اول با نیوشا صارمی، دوشنبه ۲۱ اردیبهشت
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 13936
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13936_1778523970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیگنال هسته‌ای آمریکا در میانه تنش‌ها؟🇺🇸
+
+⭕️طبق تصاویر موجود و اخبار اعلام شده زیردریایی هسته ای USS Alaska (SSBN 732) از کلاس اوهایو که حامل موشک های بالستیک اتمی ترایدنت می باشد، از تنگه جبل الطارق عبور کرده و وارد دریای مدیترانه شده است.
+
+⭕️نقش زیر دریایی های SSBN بازدارندگی استراتژیک هسته‌ای است این زیر دریایی ها توانایی شلیک موشک های بالستیک هسته ای ترایدنت 2 را دارند و ستون فقرات نیروی بازدارنده هسته‌ای دریایی آمریکا محسوب می‌شوند.
+
+⭕️برای تنها سومین بار در ۲۵ سال گذشته، یک زیردریایی اتمی حامل تسلیحات هسته ای ایالات متحده در جبل‌الطارق حضور دارد. این حضور به احتمال زیاد در چارچوب مأموریت بازدارندگی گسترده Extended Deterrence /فرماندهی استراتژیک ایالات متحده (STRATCOM) انجام شده است
+
+⭕️این مأموریت‌ها برای اطمینان به متحدان (مانند اسرائیل، کشورهای خلیج فارس و اروپا) است که آمریکا آماده حمایت با تمام قابلیت‌ها (از جمله هسته‌ای) است.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13935
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رئیس هوانوردی غیرنظامی اسرائیل هشدار داد که فرودگاه بین‌المللی تل‌آویو در ساعات اخیر عملاً به پایگاه نظامی آمریکا تبدیل شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13934
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13934_1778523970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله مرکز فرماندهی اسرائیل در البیاضه را بمباران کرد....
+
+🔹حزب‌الله لبنان اعلام کرد یک مرکز فرماندهی تازه‌تأسیس ارتش رژیم صهیونیستی را در شهرک البیاضه در جنوب لبنان هدف حمله راکتی قرار داده است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13933
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/13933" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 5.99 مگابایت
+
+اتاق جنگ دوشنبه 21 اردیبهشت | زمزمه های شروع جنگ ایران و آمریکا
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13932
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13932_1778523971.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم: ایران با خروج مواد غنی‌شده از کشور موافقت نکرده است
+
+💢خبرگزاری تسنیم به‌نقل از یک منبع نزدیک به تیم مذاکره‌کننده اعلام کرد، برخلاف ادعای برخی رسانه‌های غربی، پاسخ ایران شامل پذیرش خروج مواد هسته‌ای غنی‌شده از کشور نیست.
+
+💢این منبع افزود:
+
+▪️ طرح پیشنهادی ایران دارای جدول زمانی مشخص برای آزادسازی دارایی‌های بلوکه‌شده تهران است
+
+▪️ در حالی که پیشنهاد آمریکا به آزادسازی این دارایی‌ها اشاره کرده، ایران تأکید داشته این منابع باید در بازه زمانی مشخصی آزاد شوند
+
+▪️ موضوع خروج ذخایر غنی‌شده از خاک ایران مورد پذیرش تهران قرار نگرفته است
+
+💢این گزارش در شرایطی منتشر می‌شود که رایزنی‌ها درباره توافق احتمالی میان تهران و واشنگتن ادامه دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/21 20:14
 ---
 
