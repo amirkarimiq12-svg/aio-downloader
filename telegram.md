@@ -7,6 +7,283 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 01:33
+---
+
+## ChizBergerz — post 46341
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز زلزله نگاری: لحظاتی قبل یه زلزله ۴.۶ ریشتری بین تهران و مازندران رو لرزوند! + خدا دید ترامپ نمیزنه شخصا دست به کار شده :))) @ChizNewz
+</div>
+
+## rodast_omiddana — post 71287
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71287_1778623407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️
+⭕️
+⭕️ #خبرفوری | رئیس‌جمهور ترامپ برای یک بازدید تاریخی به چین پرواز کرد، همراه با مدیران عامل شرکت‌های بزرگ آمریکایی، از جمله ایلان ماسک، دوست قدیمی و جدید رئیس‌جمهور ترامپ.
+</div>
+
+## KiriMohems — post 47413
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الانه که برخی از هموطنان ما کونشون باد کنه و زلزله رو به آزمایش هسته‌ای جوری ربط بدن که ناموص برای بلایای طبیعی سالم نزارن
+#Helsinki
+</div>
+
+## KiriMohems — post 47412
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47412_1778623409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در زمان زلزله چگونه کص موش چال کنیم؟
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47411
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیری فوررری
+مجدد زلزله شد تهرااان
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251480
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251480_1778623409.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه رسمی خدا امشب، زلزله‌ای بسیار شدید و قدرتمند به شهر تهران ارسال کردم. این لرزش نه یک بار، بلکه دو بار رخ داد. این اقدام به دلیل مشاهدهٔ ضعف، عدم شجاعت و ناتوانی رئیس‌جمهور ایالات متحده آمریکا در انجام اقدامات لازم صورت پذیرفت. وی علی‌رغم سخنان بسیار،…
+</div>
+
+## SportBaadNews — post 251479
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه رسمی خدا
+
+امشب، زلزله‌ای بسیار شدید و قدرتمند به شهر تهران ارسال کردم. این لرزش نه یک بار، بلکه دو بار رخ داد.
+
+این اقدام به دلیل مشاهدهٔ ضعف، عدم شجاعت و ناتوانی رئیس‌جمهور ایالات متحده آمریکا در انجام اقدامات لازم صورت پذیرفت. وی علی‌رغم سخنان بسیار، در زمان عمل هیچ اقدامی انجام نداده و از صحنه خارج می‌شود.
+
+مردم ایران تحت حاکمیت رهبری‌ای فاجعه‌بار رنج می‌برند و من، خداوند قادر متعال، از این سطح از ناتوانی و انفعال دولت واشنگتن خسته شده‌ام. بنابراین، دیگر منتظر نمانده و خود مستقیماً اقدام کردم. پیام من واضح و قاطع بود و بدون شک توسط همه احساس شد.
+
+رسانه‌های دروغ‌پرداز ممکن است ادعا کنند که این رویداد صرفاً یک پدیدهٔ طبیعی بوده است. این سخن نادرست است. این لرزش به دستور مستقیم من بوده است. من بر همه چیز کنترل کامل دارم و همواره داشته‌ام.
+
+خواهیم دید چه خواهد شد.
+
+خداوند متعال
+خدای یکتا و قادر مطلق
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251478
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251478_1778623409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرسنال نزدیک قهرمانیه آخرالزمان داره میشه، یهو دیدید دماوند فعال شد تعجب نکنید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251477
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251477_1778623411.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 زلزله مجدد تو تهران گزارش شده
+</div>
+
+## IranIntlTV — post 336892
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336892_1778623411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا به خواندن اسامی جاویدنام‌ها ادامه خواهم داد؟ چرا تکرار نام جاویدنام‌ها اهمیت ملی دارد؟ و چرا جمهوری اسلامی از تکرار نام جاویدنام خشمگین و عصبانی است؟
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336891
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336891_1778623412.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شروین تبریزی، سخنگوی اورژانس تهران اعلام کرد طوفان در تهران تاکنون چهار مصدوم داشته است که البته همه این مصدومان در محل درمان شدند.
+او خاطرنشان کرد با توجه به اینکه وزش باد دقایقی پیش متوقف شد، احتمال افزایش مصدومان وجود دارد.
+
+https://iranintl.com/202605126188
+</div>
+
+## IranIntlTV — post 336890
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336890_1778623413.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، در واکنش به صحبت‌های محسنی اژه‌ای، رییس قوه قضاییه که گفت مردم نباید بدبین شوند، گفت:‌ «حکومتی که با کشتار، سرکوب، قطع اینترنت، نابودی کسب‌وکارها و تحمیل بحران‌های اقتصادی و امنیتی زندگی مردم را مختل کرده، خود عامل این بی‌اعتمادی و بدبینی است. جامعه ایران فراتر از بدبینی، خواهان پایان این وضعیت و سرنگونی جمهوری اسلامی است.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336889
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336889_1778623414.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت:‌ «ترامپ زمان زیادی ندارد؛ چون با نزدیک شدن به انتخابات کنگره، اگر نتواند جمهوری اسلامی را به‌روشنی شکست دهد یا به اهدافش برسد، ممکن است اکثریت کنگره را به دموکرات‌ها واگذار کند.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336888
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336888_1778623415.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان مدیریت بحران اعلام کرد باتوجه به بررسی‌های اولیه و ارزیابی تیم‌های کارشناسی، زمین‌لرزه‌ها در مرز استان‌های تهران و مازندران خساراتی درپی نداشته است.
+مرکز لرزه‌نگاری در اطلاعیه‌ای اعلام کرد ساعت ۲۳:۴۶ سه‌شنبه شب زمین‌لرزه‌ای به بزرگی ۴.۶ مرز تهران و مازندران را لرزاند. زمین‌لرزه در تهران حدود ۱۰ ثانیه طول کشید.
+این لرزش در شرق تهران، ورامین، پاکدشت، پردیس و بخش‌هایی از شمیرانات بیشتر احساس شد.
+همچنین چهار پس‌لرزه‌ در استان تهران رخ داد که آخرین پس‌لرزه‌ها به بزرگی ۴ و ۳.۴ بودند.
+
+https://iranintl.com/202605124199
+</div>
+
+## IranIntlTV — post 336887
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336887_1778623415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا دبیر، رییس فدراسیون کشتی در گفتگویی با خبرنگاران مدعی شد فدراسیون و خانه کشتی در غرب تهران در تمام روزهای جنگ ۴۰ روزه، مورد هدف قرار گرفته است.
+
+🔹او گفت بیش از ۱۵۰تا ۱۶۰ موشک به این محل اصابت کرده است.
+
+🔹در هفته اول جنگ، ایران‌اینترنشنال گزارش داد که پس از آغاز حملات اسرائیل و آمریکا در نهم اسفندماه، به کارکنان و پرسنل فدراسیون‌ها و مراکز مستقر در مجموعه ورزشی آزادی در تهران دستور داده شد ساختمان‌ها و سالن‌های ورزشی این مجموعه را تخلیه کنند.
+
+🔹طبق این اطلاعات، پس از تخلیه کارکنان، نیروهای حکومتی از جمله یگان ویژه و بسیج در بخش‌های مختلف این مجموعه مستقر شدند.
+
+🔹پس از این ماموران در سالن‌های مختلف از جمله ورزشگاه ۱۲ هزار نفری آزادی و همچنین سالن‌ها و ساختمان‌های متعلق به فدراسیون‌های ورزشی از جمله کشتی، والیبال، بسکتبال و وزنه‌برداری مستقر شدند.
+
+🔹در پی این اقدامات، سالن ۱۲ هزار نفری ورزشگاه آزادی در حملات هوایی روز پنجشنبه ۱۴ اسفند ۱۴۰۴، تخریب شد.
+
+🔹به گفته علیرضا دبیر، برای بازسازی خانه کشتی، تاکنون بیش از ۴۰۰ میلیارد تومان هزینه شده است.
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 14018
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14018_1778623417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#طنز_تلخ
+
+⭕️ بیانیه عرش الهی:
+
+مجدد زلزله ای زیبا نازل کردیم.
+خواهیم دید چه خواهد شد.
+از توجه شما به این موضوع سپاس گذاریم.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14017
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14017_1778623417.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢این ویدئو بهت نشون میده که پناه‌گیری درست چطور جانت رو حفظ می‌کنه در زمان زلزله
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14016
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کولیوند: زلزله پردیس تهران، خسارت مالی و جانی نداشت
+
+💢 رئیس جمعیت هلال احمر: مردم نگران نباشند؛ زلزله پردیس تهران، خسارت مالی و جانی در پی نداشته است.
+
+💢 ۲ پس لرزه ۴ و ۳.۴ ریشتری دیگر تهران را لرزاند.
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14015
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آماده باش مدیریت بحران پردیس؛ در پی زلزله مردم پردیس از خانه‌ها خارج شدند
+
+💢در حالی که فرماندار شهرستان پردیس گفت: در پی وقوع زمین لرزه استان ستاد مدیریت بحران شهرستان در آماده باش کامل است، خبرنگار ایرنا از پردیس گزارش می‌دهد شهروندان پردیسی از خانه‌ها خارج شده و در پارک‌ها و خودروها مستقر شده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14014
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش جدیدترین پس‌لرزه در استان تهران
+
+بزرگی: 3.4
+محل وقوع: حوالی پرديس
+تاریخ و زمان وقوع به وقت محلی: 1405/02/23 00:32:44
+طول جغرافیایی: 51.83
+عرض جغرافیایی: 35.83
+عمق زمین‌لرزه: 10 کیلومتر
+
+نزدیک‌ترین شهرها:
+10 کیلومتری پرديس (تهران)
+11 کیلومتری بومهن (تهران)
+12 کیلومتری رودهن (تهران)
+
+نزدیکترین مراکز استان:
+41 کیلومتری تهران
+76 کیلومتری كرج
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 00:27
 ---
 
