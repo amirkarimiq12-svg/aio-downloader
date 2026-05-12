@@ -7,6 +7,533 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 02:48
+---
+
+## ChizBergerz — post 46344
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46344_1778627885.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی قلهکی:
+طرح «اینترنت پرو» رو یکی از اپراتورها (همراه اول) راه انداخته و گفته فیلترینگ به ضرر ماست. بهتره اینترنت رو بکنیم گیگی ۴۰ هزار تومن.
+این اپراتور تا الان برای ۴ میلیون نفر پیامک اینترنت پرو فرستاده که فقط ۴۵۰ هزار نفر فعالش کردن. اون یکی اوپراتور هم برای ۵۰۰ هزار فرستاده که فقط ۴۰ هزار نفر فعالش کردن.
+اینا قصد دارن تو فاز اول برای یک میلیون نفر فعالش کنن و بعد برای کل مردم.
+اول قرار بود اینترنت پرو برای کسب و کارها باشه و به ازای هر شرکت فقط برای ۲ نفر اونم با احراز هویت فعال بشه ولی الان حتی احراز هویتم نمیشه و توی بازارسیاه با دریافت پول های هنگفت میتونید اینترنت پرو بخرید.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46343
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46343_1778627885.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae22
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## ChizBergerz — post 46342
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46342_1778627887.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حضور مردم در حاشیه شهر بومهن پس از وقوع زلزله امشب:
+
+برخی مردم تو خیابان خوابیدن.
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71296
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71296_1778627889.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 رویترز:
+"عربستان سعودی به طور مخفیانه در اواخر ماه مارس حملات هوایی تلافی‌جویانه‌ای علیه ایران انجام داد پس از حملات مکرر موشکی و پهپادی ایران به این پادشاهی."
+</div>
+
+## rodast_omiddana — post 71295
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71295_1778627889.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ:
+رهبران ایران یا کار درست را انجام خواهند داد، یا ما کار را تمام خواهیم کرد.
+</div>
+
+## rodast_omiddana — post 71294
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71294_1778627891.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+"من به وضعیت مالی آمریکایی‌ها فکر نمی‌کنم. به هیچ‌کس فکر نمی‌کنم.
+فقط به یک چیز فکر می‌کنم، ما نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد. همین"
+</div>
+
+## rodast_omiddana — post 71293
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71293_1778627892.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨زلزله بود امید جان، بازم سمت پردیس مرکزش بوده، حالا اینکه این همه زلزله تو این مدت طبیعیه یا نه دیگه نمیدونم
+</div>
+
+## rodast_omiddana — post 71292
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71292_1778627893.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود امید.
+سمت نیرو‌هوایی پیروزی خونه یه 10 ثانیه لرزید. انگار تهران زلزله اومده. چون صدای انفجار نیومد. و البته خود زلزله هم آنچنان قوی نبود.
+ساعت 11:30 اینطورا
+</div>
+
+## rodast_omiddana — post 71291
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71291" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_بازداشت فرماندهان دریایی سپاه در کویت_ترامپ با ژنرالها برای حمله بزرگ بعد از سفر چین هماهنگ شد
+</div>
+
+## rodast_omiddana — post 71290
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71290" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 بازداشت فرماندهان دریایی سپاه در کویت_ترامپ با ژنرالها برای حمله بزرگ بعد از سفر چین هماهنگ شد
+</div>
+
+## rodast_omiddana — post 71289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_بازداشت فرماندهان دریایی سپاه در کویت_ترامپ با ژنرالها برای حمله بزرگ بعد از سفر چین هماهنگ شد
+</div>
+
+## rodast_omiddana — post 71288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_بازداشت فرماندهان دریایی سپاه در کویت_ترامپ با ژنرالها برای حمله بزرگ بعد از سفر چین هماهنگ شد
+</div>
+
+## KiriMohems — post 47418
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47418_1778627893.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویبراتور شدید زلزله امشب روی کون تهران
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47417
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47417_1778627894.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A22🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## KiriMohems — post 47416
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47416_1778627895.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#خایه_کنید
+🔴رزمایش فاطی کماندو ها در روز روشن که با دیدنش ، تخم رو از جا میترکونه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47415
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47415_1778627896.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رئیس کون ترامپ از طریق Truth Social:
+
+وقتی اخبار کصشعر میگن که دشمن ایرانی در مقابل ما از نظر نظامی خوب عمل میکنه، این عملاً خیانته چون چنین بیانی کاملاً گوه‌خوری و حتی مضحک است. آنها به دشمن کمک و یاری می‌رسانند! این فقط به ایران امید کیرخری می‌دهد در حالی که نباید هیچ امیدی وجود داشته باشد.
+
+این‌ها ترسوهای آمریکایی هستند که علیه کشور ما ریشه دوانده‌اند. ایران ۱۵۹ کشتی در نیروی دریایی خود داشت — هر کشتی اکنون در کف دریا استراحت می‌کند. آنها نیروی دریایی ندارند، نیروی هوایی‌شان از بین رفته، تمام فناوری‌ها از دست رفته، «رهبران» آنها دیگر با ما نیستند و کشور یک فاجعه اقتصادی است.
+
+فقط بازندگان، ناسپاسان و احمق‌ها قادر به ارائه استدلال علیه آمریکا هستند!
+﻿
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47414
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47414_1778627896.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مردم بومهن خایه هاشون پاپیون شده و از خونه هاشون بیرون زدن و بعضیا هم تو خیابون خوابیدن
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251482
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251482_1778627898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران امشب رو ویبره بود
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251481
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251481_1778627898.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع به سایت وینکوبت
+
+
+✅ کاربران عزیز، برای ورود آسان و بدون دردسر به سایت وینکوبت، می‌توانید از ربات رسمی استفاده کنید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+🔹 ورود سریع و مستقیم به سایت
+🔹 بدون نیاز به جستجوی لینک‌های مختلف
+🔹 دسترسی راحت از داخل تلگرام
+
+
+📌  همه چیز به ساده‌ترین شکل ممکن داخل ربات برای شما کاربران محترم فراهم شده.
+
+
+🔗 اگر دنبال یه راه مطمئن و سریع برای ورود هستید، ربات وینکوبت بهترین انتخاب شماست:
+
+
+🤖 @Wincobet_bot
+
+
+🔗 برای دریافت تحلیل بازی‌ها و اطلاع از آخرین بروزرسانی‌ها، به کانال رسمی وینکوبت بپیوندید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 336904
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336904_1778627899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عرفان شکورزاده، دانش‌آموختهٔ ۲۹ سالهٔ مهندسی هوافضا از دانشگاه علم‌وصنعت، با اتهام «جاسوسی» اعدام شد؛ اتهامی که جمهوری اسلامی دربارهٔ جزئیات و مدارک آن، توضیح شفافی ارائه نکرده است.
+
+رسانه‌های حکومتی مدعی همکاری او با موساد و آمریکا شدند، اما فعالان حقوق بشر می‌گویند او ماه‌ها در انفرادی بوده و تحت فشار، مجبور به اعتراف اجباری شده است.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336903
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336903_1778627900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سحر از تهران: ۱۸ دی به همسرم چاقو زدند؛ نتوانستیم از عهدهٔ درمانش بربیاییم.از کجا بیاوریم؟
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+@iranintltv
+</div>
+
+## IranIntlTV — post 336902
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336902_1778627902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک والتز، سفیر آمریکا در سازمان ملل، با بازنشر تهدیدهای اخیر ابراهیم عزیزی، نماینده مجلس، علیه کشورهای منطقه درباره بستن دائمی تنگه هرمز، در ایکس نوشت جمهوری اسلامی به این دلیل کشورهای منطقه و اقتصاد جهانی را تهدید می‌کند که شورای امنیت مسیر دیپلماسی را انتخاب کرده است.
+او نوشت: «جای تعجب ندارد که جمهوری اسلامی آشکارا همسایگان خود را تهدید می‌کند و اذعان می‌کند که به مین‌گذاری در آب‌های بین‌المللی و حمله به کشتی‌های تجاری از سراسر جهان ادامه خواهد داد، با این امید که ویرانی اقتصادی ایجاد کند.»
+والتز افزود: «همه این‌ها به این دلیل است که ما در شورای امنیت سازمان ملل مسیر دیپلماسی را انتخاب کرده‌ایم. این اظهارات یک مقام حکومت ایران نشان می‌دهد چرا قطعنامه شورای امنیت علیه تهران لازم است و چرا هرگز به جمهوری اسلامی اجازه داده نخواهد شد به سلاح هسته‌ای دست یابد.»
+
+https://iranintl.com/202605120656
+</div>
+
+## IranIntlTV — post 336901
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336901_1778627903.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیدا از تهران: من ترجیح می‌دهم در راه آزادی کشورم بمیرم تا از گرسنگی
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+@iranintltv
+</div>
+
+## IranIntlTV — post 336900
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336900_1778627904.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد از مشهد: در مشهد، سر صف بنزین مردم با هم درگیر می‌شوند که معلوم است از انباشت خشم است
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336899
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336899_1778627905.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر از خمین: رفتم مخابرات و گفتم توانایی مالی اینترنت را ندارم و خواهش کردم قطع کنند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/964Hz45DLwM
+@iranintltv
+</div>
+
+## IranIntlTV — post 336898
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336898_1778627907.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست امنیتی پولیتیکو گفت حملات اخیر به ایران، نه علیه مردم، بلکه علیه جمهوری اسلامی بوده و آن را عملیاتی آزادی‌بخش توصیف کرد.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336897
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336897_1778627908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه جمهوری‌خواهان سنا در ایکس نوشت: «تا زمانی که جمهوری اسلامی از جاه‌طلبی‌های هسته‌ای خود دست نکشد، ترامپ از قدرت آمریکا برای قطع منابع مالی ماشین ترور استفاده می‌کند.»
+این پست با اشاره به پیامدهای برجام نوشت: «در حالی که جمهوری اسلامی در حال ساخت موشک‌ برای تهدید متحدان آمریکا بود، دموکرات‌ها پالت‌های پول نقد به ایران فرستادند.»
+
+https://iranintl.com/202605122338
+</div>
+
+## IranIntlTV — post 336896
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336896_1778627909.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت حملات آمریکا توانایی‌ و رهبری نظامی جمهوری اسلامی را به شدت تضعیف کرده و آمریکا انتظار دارد فشار بر جمهوری اسلامی با محاصره بنادر ایران، منجر به فروپاشی اقتصادی حکومت شود.
+
+گفت‌وگو با محمد قائدی، مدرس روابط بین‌الملل در دانشگاه جورج واشینگتن
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336895
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336895" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: چرا به خواندن اسامی جاویدنام‌ها ادامه خواهم داد؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336894
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336894_1778627911.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای منتشرشده در رسانه‌های ایران، وضعیت شهروندان را پس از زلزله شامگاه سه‌شنبه ۲۲ اردیبهشت‌ماه در بومهن و پردیس استان تهران نشان می‌دهد؛ شهروندانی که پس از زلزله به خیابان آمده‌اند و شب را کنار خیابان یا در خودروهای خود، در فضای باز پارک‌ها، سپری می‌کنند.
+بر اساس گزارش‌های منتشرشده، زمین‌لرزه‌ای به بزرگی ۴.۶ مرز استان‌های تهران و مازندران را لرزاند که تاکنون با چندین پس‌لرزه همراه بوده است.
+به گزارش سازمان مدیریت بحران، این زلزله خسارتی نداشته است.
+</div>
+
+## IranIntlTV — post 336893
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336893" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ خشم انباشتهٔ مردم کی فوران خواهد کرد؟
+</div>
+
+## Persian_Trend_Official — post 14023
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14023_1778627912.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14022
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇷 یو نی‌هاپ: وزیر دفاع کره جنوبی، آن گیوبک، می‌گوید سئول پس از گفتگو با مقامات آمریکایی در واشنگتن، مشارکت مرحله‌ای در تأمین امنیت ترافیک دریایی در تنگه هرمز را مد نظر قرار خواهد داد، از جمله احتمال به اشتراک‌گذاری اطلاعات و حمایت نظامی محدود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14021
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14021_1778627913.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری:
+اگر رژیم سقوط کند شما خود را در موقعیت رهبری دوران گذار میبینید و شما حدود 50 سال در ایران نبودید و رییس جمهور ترامپ گفت که مطمئن نیست شما به اندازه کافی در ایران حامی داشته باشید. به ایرانیان داخل و خارج از کشور که خواهان سقوط رژیم فعلی هستند اما شما را به عنوان رهبر بعدی نمیبینند، چه میگویید؟
+
+شاهزاده رضا پهلوی:
+من فکر می‌کنم میلیون‌ها نفری که به فراخوان من پاسخ دادند، گواه زنده‌ای بر این واقعیت هستند که من از حمایت گسترده‌ای در داخل ایران برخوردارم. و باز هم می‌گویم، به محض اینکه این قطع اینترنت برطرف شود، شما خواهید توانست دقیقاً بشنوید که مردم ایران چه می‌گویند.
+پیام آخر من قبل از قطعی اینترنت نود میلیون بازدید داشت که پس از قطعی اینترنت به نزدیک شش میلیون رسید. این یعنی تمام پایگاه مخاطبان من در ایران هستند، همان افرادی که به فراخوان من پاسخ دادند.
+ما گروگان این رژیم هستیم و گاهی اوقات گروگان‌ها نمی‌توانند بدون کمک خارجی خود را آزاد کنند. به همین دلیل است که ما به کمک خارجی نیاز داریم. باقی کارها را خودمان انجام خواهیم داد و دخالت خارجی را در این موارد نمی‌پذیریم.
+
+📌 @persian_trend_official
+</div>
+
+## Persian_Trend_Official — post 14020
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14020_1778627915.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو:
+
+تنها کسی که رئیس موساد را منصوب می‌کند، نخست وزیر است. رومن توسط من به عنوان رئیس بعدی موساد کشور اسرائیل انتخاب شد - و او موساد را از قدرتی به قدرت دیگر رهبری خواهد کرد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14019
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14019_1778627917.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ویدئو منتشر شده در اینستاگرام بنیامین نتانیاهو:
+
+*لیکود اسم یک حزب راست‌گرا است به معنای استحکام. (حزبی که بنیامین نتانیاهو عضو آن است.)
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 01:33
 ---
 
