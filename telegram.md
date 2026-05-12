@@ -7,6 +7,517 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 00:27
+---
+
+## rodast_omiddana — post 71286
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*بازداشت فرماندهان دریایی سپاه در کویت
+*ترامپ با ژنرالها برای حمله بزرگ بعد از سفر چین هماهنگ شد
+لینک یوتیوب:
+https://www.youtube.com/watch?v=fIirxm6BfsI
+</div>
+
+## KiriMohems — post 47410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب تهران طوفان شد، زلزله شد، مرحله بعدی رسما از آسمون کیر میباره صاف میره تو کونمان
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47409
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+3.4 ریشتر کیرخری زلزله تهران
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله کیری تهران رو لرزوند
+
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251476
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کومان رو این صحنه به رونالدو پاس نداد و شوت زد و شوتش رفت تو اوت @SportBaadNews
+</div>
+
+## SportBaadNews — post 251475
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251475_1778619452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از ممبرا نوشته بود:
+مگه تهران رو یه گسله که همه باهم بلرزن از زلزله؟ ایا از لحاظ علمی امکان پذیره؟
+
+هوووف 
+😐
+😐
+😐
+</div>
+
+## SportBaadNews — post 251474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+البته ممکنه دماوند خیس کنه یهو فعال بشه
+</div>
+
+## SportBaadNews — post 251473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی خداروشکر تهران نزدیک دریا نیست و گرنه یه سونامی کارو جمع میکرد
+</div>
+
+## SportBaadNews — post 251472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حس میکنم زلزله نبوده و تو خود زمین یه کارایی کردن یه سریا
+</div>
+
+## SportBaadNews — post 251471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حس میکنم زلزله نبوده و تو خود زمین یه کارایی کردن یه سریا
+</div>
+
+## SportBaadNews — post 251469
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251469_1778619453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تهران زلزله اومده
+</div>
+
+## SportBaadNews — post 251468
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251468_1778619453.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆
+⚽️| عرضم به حضور منورتون که النصر تو این فصل دو تا بازی دیگه داره؛ یکیش فینال لیگ قهرمانان آسیا 2 هستش که 4 روز دیگه برگذار میشه و اون یکی هم بازی هفته آخرشون تو لیگ عربستانه و اگه بازیکنای النصر یکم هم بکشن و این دو تا بازیو ببرن رونالدو و النصر این فصل رو با دو جام میتونن تموم کنن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251467
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251467_1778619454.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجاست که شاعر میگه خنده تلخ من از گریه غم انگیز تر است
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلللللللللللللل فوقققققق کصشعری که بنتو کرپسکی خورد و گل بخودی خودش ثبت شد 😐😐😐😐 @GoalBad
+</div>
+
+## SportBaadNews — post 251465
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251465_1778619454.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلللللللللللللل فوقققققق کصشعری که بنتو کرپسکی خورد و گل بخودی خودش ثبت شد 😐😐😐😐
+@GoalBad
+</div>
+
+## SportBaadNews — post 251464
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251464_1778619455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ پایان بازی | 
+⚽️
+1️⃣×
+1️⃣
+⚽️ 
+🟡 با برد امشب النصر تو دربی ریاض این تیم در فاصله یک هفته به پایان لیگ عربستان با اختلاف 8 امتیازی قهرمان شد تا رونالدو اولین جامش با النصر رو اونم با قهرمانی لیگ کسب کنه 🔥 قهرمانی موکول شد به هفته آخر، اختلاف امتیاز همچنان 5 امتیاز…
+</div>
+
+## SportBaadNews — post 251463
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251463_1778619456.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه کیییییییییییییییییرم تو این زندگی خاصی تو قیافه رونالدو موج میزنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251462
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251462_1778619457.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ پایان بازی | 
+⚽️
+1️⃣×
+1️⃣
+⚽️
+
+
+🟡 با برد امشب النصر تو دربی ریاض این تیم در فاصله یک هفته به پایان لیگ عربستان با اختلاف 8 امتیازی قهرمان شد تا رونالدو اولین جامش با النصر رو اونم با قهرمانی لیگ کسب کنه 🔥
+
+قهرمانی موکول شد به هفته آخر، اختلاف امتیاز همچنان 5 امتیاز 
+😨
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251461
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251461_1778619457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریسو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چه اشتباهی کرد دروازبان النصر پشمام
+</div>
+
+## SportBaadNews — post 251459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدممممممم
+قهرمانی موکول شد به هفته آخر
+</div>
+
+## SportBaadNews — post 251458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنوووووووووووون
+</div>
+
+## SportBaadNews — post 251457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقیقه ۹۸
+</div>
+
+## SportBaadNews — post 251456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دقیقه آخرررررر
+</div>
+
+## IranIntlTV — post 336885
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336885_1778619458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت وقتی رسانه‌های «جعلی» می‌گویند دشمن ایرانی از نظر نظامی در برابر آمریکا عملکرد خوبی دارد، این نوعی خیانت است، زیرا چنین ادعایی کاملا نادرست و حتی مضحک است.
+او افزود: آن‌ها در حال کمک به دشمن هستند و به جمهوری اسلامی امید می‌دهند در حالی که نباید هیچ امیدی برای او وجود داشته باشد.
+https://iranintl.com/202605125060
+</div>
+
+## IranIntlTV — post 336884
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336884_1778619458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی احتشام، امام جمعه کاشان گفت: «جمهوری اسلامی نه یکی از چهار قدرت، بلکه تنها ابرقدرت جهان است و ملت ایران هشت کشور منطقه و آمریکا را از کمال ارتفاع ساقط کرد و امروز با حضور در خیابان‌ها اجازه نداد جام زهر دیگری نوشیده شود.»
+
+او افزود: «اگر مردم کف خیابان نبودند، چه بسا جام زهر دیگری نوشیده می‌شد.»
+https://iranintl.com/202605128116
+</div>
+
+## IranIntlTV — post 336883
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336883_1778619459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از وقوع زمین‌لرزه به بزرگی ۴.۶ در مرز استان‌های تهران و مازندران خبر دادند.
+
+خبرگزاری فارس همچنین از زمین‌لرزه در کرج خبر داد.
+
+همزمان خبرگزاری دولتی ایرنا گزارش داد زمین‌لرزه در تهران حدود ۱۰ ثانیه طول کشیده است.
+https://iranintl.com/202605123583
+</div>
+
+## IranIntlTV — post 336882
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336882_1778619459.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید سیاه‌سرانی، دبیر ستاد راهیان نور دریایی، گفت: «بدون اراده جمهوری اسلامی اجازه عبور حتی یک لیتر نفت از تنگه هرمز داده نمی‌شود.»
+
+او افزود: «تنگه هرمز جزو خاک ما است، شناورهایی که رد می‌شوند باید اجازه بگیرند و به زبان فارسی صحبت کنند و از نقاطی که ما تعیین می‌کنیم عبور کنند.»
+https://iranintl.com/202605123958
+</div>
+
+## IranIntlTV — post 336881
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336881_1778619460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از دو مقام غربی گزارش داد که عربستان سعودی در جریان جنگ اخیر در خاورمیانه، در واکنش به حملاتی که در خاک این کشور انجام شده بود، چند حمله هوایی اعلام‌نشده علیه مواضعی در ایران انجام داده است.
+
+گفت‌وگو با شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336880
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336880_1778619462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با سفر ترامپ به چین، گزارش‌ها حاکی است جمهوری اسلامی از پکن خواسته پیام‌های خود را به واشینگتن منتقل کند و چین را به‌عنوان ضامن احتمالی هر توافق آینده مطرح کرده است. سفیر ایران در چین نیز گفته پکن با ارائه طرح‌های صلح و رایزنی‌های منطقه‌ای تلاش دارد مسیر گفت‌وگوها را باز نگه دارد.
+
+گفت‌وگو با آرام حسامی، استاد علوم سیاسی کالج مونتگومری
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336879
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336879_1778619463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انجمن قلم آمریکا در گزارش سالانه خود اعلام کرد؛ شمار نویسندگان زندانی در جهان برای نخستین‌بار از ۴۰۰ نفر عبور کرده است. این نهاد گفت؛ چین با ۱۱۹ مورد در صدر قرار دارد و ایران با زندانی‌کردن ۵۳ نویسنده در رتبه دوم ایستاده است.
+
+در این گزارش آمده است؛ عربستان سعودی با ۲۷ نویسنده زندانی در رتبۀ سوم قرار دارد. پن آمریکا تاکید کرد؛ سرکوب نویسندگان و اهل قلم در ایران، به‌ویژه پس از «جنگ ۱۲روزه»، شدت گرفته است.
+گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336878
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336878" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: ترامپ: برای توافق با جمهوری اسلامی عجله ندارم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336877
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336877_1778619465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امارات متحده عربی اعلام کرد ۱۶ شهروند لبنانی و پنج نهاد مستقر در لبنان را به دلیل ارتباط با حزب‌الله در فهرست تروریستی این کشور قرار داده است.
+
+در همین چارچوب، «موسسه قرض‌الحسن» و چهار نهاد دیگر نیز به دلیل ارتباط با حزب‌الله در این فهرست قرار گرفته‌اند.
+
+امارات متحده عربی تاکید کرد این اقدامات در راستای مهار آفات تروریسم، محدود کردن گسترش آن و قطع تامین مالی فرامرزی انجام شده است.
+https://iranintl.com/202605127283
+</div>
+
+## IranIntlTV — post 336876
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336876" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: جهنم قطع اینترنت چگونه به پایان می‌رسد؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336875
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336875_1778619465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنا بر گزارش‌ها هم‌زمان با سفر دونالد ترامپ به چین، جمهوری اسلامی تلاش کرده است از پکن برای رساندن پیامش به واشینگتن استفاده کند و گفته است چین می‌تواند نقش ضامن هر توافق احتمالی را داشته باشد.
+
+گفت‌وگو با جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336874
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336874_1778619467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جهنم قطع اینترنت چگونه به پایان می‌رسد؟
+
+«چشم‌انداز با مهدی مهدوی‌آزاد»
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+
+https://youtu.be/92BJ6BfAYHQ
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی اورژانس تهران:
+
+در پی زمین لرزه در تهران تا این لحظه مصدومی گزارش نشده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14012
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14012_1778619469.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حین و بعد از زلزله چه باید کرد؟
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14010
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14010_1778619469.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله در تهران احساس شد 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14009
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب دیگه بلا های آسمانی هم سر شوخی رو با مردم ایران باز کردن 🤦🏻‍♂️
+
+📝 Nick
+</div>
+
+## Persian_Trend_Official — post 14008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله در تهران احساس شد 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14007
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زلزله در تهران احساس شد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/rrGzLhyQoaY?feature=share
+</div>
+
+## Persian_Trend_Official — post 14005
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14005_1778619470.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇸🇦🇮🇷 — خبرگزاری رویترز درگزارشی مدعیست که عربستان سعودی در اواخر ماه مارس، حملات هوایی محرمانه‌ تلافی جویانه ای را در پاسخ به ایران انجام داده است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14004
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14004_1778619470.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ویدیو منتشر شده از کشتی کره ای آسیب دیده در حملات جمهوری اسلامی در روز های گذشته
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14003
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14003_1778619471.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تهران ادعاهای کویت علیه ۴ شهروند ایرانی را رد کرد
+
+جمهوری اسلامی ادعاهای مطرح‌شده از سوی وزارت خارجه و وزارت کشور کویت درباره برنامه‌ریزی ایران برای انجام اقدامات خصمانه علیه این کشور را «کاملاً بی‌اساس» و مردود دانست.
+
+بر اساس موضع تهران:
+
+▪️ اتهامات مطرح‌شده علیه ۴ شهروند ایرانی رد شده است
+▪️ ایران تأکید کرده هیچ برنامه‌ای برای اقدام علیه کویت نداشته است
+▪️ جمهوری اسلامی این ادعاها را فاقد اعتبار توصیف کرده است
+
+▪️این واکنش پس از آن مطرح می‌شود که کویت از شناسایی و برخورد با آنچه «تهدیدات امنیتی» خوانده بود خبر داده بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 23:00
 ---
 
