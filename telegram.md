@@ -7,6 +7,798 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 23:00
+---
+
+## ChizBergerz — post 46340
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46340_1778614203.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فروش اینترنت پرو توسط فروشگاه ها و دستفروشان خیابونی: 😐😐😐
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46339
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46339_1778614203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه نفر با هوش‌مصنوعی سریال بازی تاج و تخت رو اونجوری که دلش خنک میشده درست کرده:
+
++ خیلی باحال بود :)))
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71285
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71285_1778614206.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 در آپریل 2017 شی جین‌پینگ به دیدار ترامپ در اقامتگاه شخصی وی در مارالاگو ایالت فلوریدا رفت، موقع صرف قهوه و کیک شکلاتی بودن که دونالد به شی گفت:
+"در همین لحظه که کیک شکلاتی را میل میفرمایی 59 موشک به مواضع بشار اسد در سوریه شلیک کردم"
+آیا میشه اینبارم این اتفاق علیه مواضع جمهوری اسلامی در ایران رخ بده؟
+</div>
+
+## rodast_omiddana — post 71284
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71284_1778614206.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تا دو ساعت دیگه ترامپ به چین پرواز خواهد کرد..
+تیک تاک..
+</div>
+
+## KiriMohems — post 47407
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خلاصه تو سگ گرما کونمون پارس
+
+رئیس کمیسیون انرژی: به دلیل آسیب به پتروشیمی ها امسال قطعی برق خیلی بیشتری داریم
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47406
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین قیمت نفت ۱۰۸.۱ دلار
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47405
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️ 
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان 
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) 
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان 
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان ویژگی های سرویس های Vip : 
+❤️‍🔥 
+✅ متصل…
+</div>
+
+## KiriMohems — post 47403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️
+
+
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان
+
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان
+
+استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات)
+
+
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان
+
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان
+
+ویژگی های سرویس های Vip : 
+❤️‍🔥
+
+✅ متصل در تمامی دستگاه و اپراتور ها
+
+✅ مناسب استفاده روزمره در تمامی برنامه ها
+
+✅ دارای ساب برای اطلاع لحظه ای باقیمانده
+
+✅ تک لینک بدون نیاز به بروزرسانی های متعدد
+ برای خرید از پشتیبانی به ایدی زیر پیام بدید.
+👇
+
+
+🔤 @expressuport
+
+خرید فوری از ربات.
+👇
+
+
+🔤 @vpn_express_sup_bot
+</div>
+
+## KiriMohems — post 47402
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47402_1778614206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : از پاکستان به‌عنوان نخود سیاه تو ماجرای ایران حمایت می‌کنم و معتقدم میشه به یه توافق خوب رسید
+
+این قضیه هم برای مردم آمریکا خوبه، هم برای ایرانی‌ها، پاکستانی‌ آدمای خوبی‌ان
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47401
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز: عربستان سعودی در طول جنگ اخیر، در جواب حملات جمهوری‌اسلامی، چندین‌بار بصورت مخفیانه به ایران حمله کرده بود.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47400
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47400_1778614208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی تو نشست امنیتی سالانه پولیتیکو:
+
+
+الان ما با یه جونورِ زخمی طرفیم و نباید بذاریم فرصت از دست بره، کار رو باید یه بار واسه همیشه تموم کنیم.
+سیاست مماشات با جمهوری اسلامی که راهبرد خیلی از دولت‌ها بود، شکست خورده.
+مردم به‌اندازه کافی هوشمند هستنن که تفاوت بین حمله به یه ملت و حمله به یه رژیم رو تشخیص بدن.
+ما فقط زمانی می‌تونیم مردم رو به بازگشت به خیابون‌ها فرا بخوانیم که اونا هم سطحی از توان مقابله رو داشته باشن.
+
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47399
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47399_1778614209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری : واقعاً فکر می‌کنی می‌تونی ایران رو از غنی‌سازی اورانیوم و در نهایت ساخت سلاح هسته‌ای متوقف کنی؟
+
+🔴 ترامپ : ۱۰۰٪. اونا قراره متوقف کنن خودشون به من گفتن،ایرانی‌ها گفتن ما قراره تحویل بدیم.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47398
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47398_1778614211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇 g22🅰
+
+✈️https://t.me/+RvVnWMHCqUc4YzFk
+</div>
+
+## SportBaadNews — post 251446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازم شوت رونالدوووووو که با اختلاف کمممم بیرون رفتتتتتت
+</div>
+
+## SportBaadNews — post 251445
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251445_1778614212.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کومان رو این صحنه به رونالدو پاس نداد و شوت زد و شوتش رفت تو اوت
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251443
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251443_1778614213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شوت فوق‌العادهههههه رونالدوووووو و سوپرررررررررررر سیوووووووو یاسین یونووووو
+@GoalBad
+</div>
+
+## SportBaadNews — post 251442
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251442_1778614216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟡 Al Naasr - 
+🔵 Al Hilal
+
+
+🟢 لیگ حرفه‌ای عربستان
+
+⏰ سه‌شنبه ساعت ۲۱:۳۰
+
+🏟 استادیوم الاول‌پارک
+
+
+⚽️ درحالی‌که در اکثر لیگ‌های فوتبال فعال؛ سرنوشت قهرمان مشخص شده، لیگ عربستان هنوز قهرمان مشخصی ندارد و النصر و الهلال تا دو هفته دیگر برای قهرمانی می‌جنگند. علی‌الخصوص که الهلال امشب یک بازی بسیار موثر در سرنوشت قهرمانی انجام می‌دهد و یک بازی معوقه هم دارد. فاصله دو تیم، پنج امتیاز است (النصر یک بازی بیشتر دارد) و درحال‌حاضر با چنین فرمتی، کریستیانو رونالدو برای اولین‌بار قهرمان لیگ عربستان می‌شود. النصر فرم خوبی دارد و اگر شکست مقابل القادسیه را درنظر نگیریم، شاگردان خسوس در بیش از ده بازی اخیرشان در لیگ شکستی نداشته‌اند. الهلال هم در سوی مقابل، فرم خوبی دارد. شاگردان اینزاگی هم در لیگ، بیش از ده بازی است که نباخته‌اند. آمار دو تیم هم مشابه‌ است. یاران رونالدو، در ۳۲ بازی، ۸۶ گل زده‌اند و فقط ۲۶ گل خورده‌اند. یاران کریم بنزما در یک بازی کمتر، ۸۱ گل زده‌اند و ۲۶ گل خورده‌اند. بازی روی کاغذ، برنده مشخصی ندارد.
+
+📌در ربات وینکوبت ثبت‌نام کن و با شارژ از طریق کریپتو ۵٪ شارژ بیشتری رو دریافت کنید، همین حالا شروع کن: 
+👇
+
+
+🟣 [ برای ورود به ربات کلیک کنید: ]
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال سایت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 251440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شوت خوشگلللل رونالدو رو بونو سیو کردددد
+</div>
+
+## SportBaadNews — post 251439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلللللللللللللل اوللللل النصررررر: WATCH
+</div>
+
+## SportBaadNews — post 251438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رونالدو و یاران فقط و فقط 60 دقیقه با قهرمانی فاصله دارن
+</div>
+
+## SportBaadNews — post 251437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلللللللللللللل النصررررر سیماکاننننننن
+</div>
+
+## SportBaadNews — post 251436
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251436_1778614217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️ پرز: پرونده نگریرا بدترین رسوایی تاریخ فوتباله. باورم نمیشه هنوز تکلیفش مشخص نشده. همون داورایی که تو دوران نگریرا بودن، هنوزم فعالن. هنوز دارن قضاوت می‌کنن. اصلاً منطقی نیست. بارسا دو دهه برای خدمات نگریرا پول داده، ولی اون داورا تو دهه سوم هنوزم فعالن.…
+</div>
+
+## SportBaadNews — post 251435
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251435_1778614217.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جورجینا هم مثل همیشه تو ورزشگاه حضور داره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251434
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251434_1778614218.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرپسکی گلر النصر رو 😂😂😂🔥 ارزش دانلود 10/10 @SportBaadNews
+</div>
+
+## SportBaadNews — post 251433
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251433_1778614219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرپسکی گلر النصر رو 😂😂😂🔥
+ارزش دانلود 10/10
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251432
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشمام گلر النصر رو 😂😂😂
+تا وسط زمین اومد از سه نفر توپ گرفت
+</div>
+
+## SportBaadNews — post 251431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| 10 دقیقه تا شروع جدال حساس النصر و الهلال؛ اگه النصر بازیو ببره همین امشب قهرمانیش قطعی میشه وگرنه کار میکشه به هفته آخر @SportBaadNews
+</div>
+
+## SportBaadNews — post 251430
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251430_1778614221.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| 10 دقیقه تا شروع جدال حساس النصر و الهلال؛ اگه النصر بازیو ببره همین امشب قهرمانیش قطعی میشه وگرنه کار میکشه به هفته آخر
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251429
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251429_1778614222.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ پرز: دارم انتخابات جدید هیئت‌مدیره رو اعلام می‌کنم و همین هیئت، با خودم به‌عنوان رئیسش، تو این انتخابات شرکت می‌کنه. هرکی از ما انتقاد داره و این شایعه‌ها رو درباره‌م پخش می‌کنه، می‌تونه بیاد تو همین انتخابات روبه‌روی من کاندیدا بشه. هرکی می‌خواد جلو…
+</div>
+
+## IranIntlTV — post 336873
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336873_1778614222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی بازداشت چهار فرد «وابسته به سپاه پاسداران» در کویت، وزارت خارجه جمهوری اسلامی برنامه‌ریزی برای انجام اقدامات خصمانه علیه کویت را بی‌اساس و مردود دانست.
+
+وزارت خارجه جمهوری اسلامی در بیانیه‌ای اعلام کرد این چهار مامور در چارچوب ماموریت مرسوم گشت‌زنی دریایی مشغول انجام وظیفه بوده‌اند و به دلیل «اختلال در سامانه ناوبری» وارد آب‌های سرزمینی کویت شده‌اند.
+
+این وزارتخانه از مراجع کویت خواست از اظهارنظرهای شتاب‌زده و طرح ادعاهای بی‌اساس خودداری کرده و موضوع را از طریق مجاری رسمی پیگیری کنند. وزارت خارجه جمهوری اسلامی همچنین خواهان آزادی این چهار مامور بازداشت‌شده شد.
+https://iranintl.com/202605121807
+</div>
+
+## IranIntlTV — post 336872
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336872_1778614223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در شبکه ایکس نوشت: «صلح واقعی با ادبیات تحقیر، تهدید و امتیازگیری اجباری ساخته نمی‌شود.»
+
+غریب‌آبادی اضافه کرد: «اصول ما مشخص است، توقف دائمی جنگ و عدم تکرار آن، جبران خسارات، رفع محاصره، رفع تحریم‌های غیرقانونی و احترام به حقوق جمهوری اسلامی.»
+
+او افزود: «وقتی طرفی که خود در جنگ، محاصره، تحریم و تهدید به زور نقش مستقیم دارد، پاسخ جمهوری اسلامی را صرفا به دلیل آنکه تسلیم‌نامه نیست، رد می‌کند، روشن می‌شود که مسئله اصلی نه صلح، بلکه تحمیل اراده سیاسی از مسیر تهدید و فشار است.»
+https://iranintl.com/202605129672
+</div>
+
+## IranIntlTV — post 336871
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336871_1778614224.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات رسیده به ایران اینترنشنال حاکی از آن است که احمد خزایی، شهروند ۴۶ ساله، از جمله شهروندان معترضی بوده که در جریان انقلاب ملی دی‌ماه در شهریار استان تهران با شلیک ماموران حکومت کشته شده است. او در جریان اعتراضات ۱۸ دی‌ماه کشته شد.
+https://iranintl.com/202605128985
+</div>
+
+## IranIntlTV — post 336870
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336870_1778614225.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از دو مقام غربی و دو مقام ایرانی گزارش داد عربستان سعودی در جریان جنگ خاورمیانه، در پاسخ به حملاتی که در خاک این کشور انجام شده بود، چندین حمله اعلام‌نشده در ایران انجام داده است.
+به گفته دو مقام غربی، این حملات توسط نیروی هوایی عربستان سعودی و در اوایل فروردین انجام شده‌اند. یکی از این مقامات گفت این حملات «اقداماتی تلافی‌جویانه در پاسخ به حملاتی بود که عربستان سعودی هدف آن قرار گرفته بود»
+رویترز با اشاره به گزارش‌های پیشین درباره حملات امارات متحده عربی به ایران نوشت اقدامات عربستان سعودی و امارات متحده نشان می‌دهد کشورهای عربی خلیج فارس که هدف حملات جمهوری اسلامی قرار گرفته‌اند، به‌تدریج وارد فاز پاسخ‌گویی مستقیم شده‌اند.
+https://iranintl.com/202605123748
+</div>
+
+## IranIntlTV — post 336869
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336869_1778614225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «سخنگوی دولت پزشکیان باید بداند که او و دولت متبوعش نیز از حامیان «سیم‌کارت‌های سفید» بوده‌اند؛ بنابراین نمی‌توانند خود را در کنار مردم نشان دهند یا افکار عمومی را درباره محدودیت‌های اینترنت قانع کنند.»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336868
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336868_1778614228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانشجویان متحد گزارش داد یاسین حسن‌زاده، دانشجوی مهندسی صنایع دانشگاه تهران، روز ۲۲ اردیبهشت بازداشت شده است.
+
+بر اساس این اطلاعات، یاسین حسن‌زاده، دبیر انجمن اسلامی دانشجویان دانشگاه تهران بوده است.
+https://iranintl.com/202605124133
+</div>
+
+## IranIntlTV — post 336867
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336867_1778614229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ هنگام خروج از کاخ سفید برای عزیمت به چین گفت فکر نمی‌کند آمریکا برای موضوع ایران به کمکی نیاز داشته باشد و افزود ایالات متحده این مسئله را یا به‌صورت مسالمت‌آمیز یا به شکلی دیگر حل خواهد کرد.
+
+ترامپ تاکید کرد جمهوری اسلامی از نظر نظامی شکست خورده و یا «کار درست را انجام خواهد داد» یا آمریکا «کار را تمام خواهد کرد».
+https://iranintl.com/202605129211
+</div>
+
+## IranIntlTV — post 336866
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336866_1778614230.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336865
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336865_1778614232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از یک منبع آگاه گزارش داد جمهوری اسلامی بدون انجام «پنج شرط اعتمادساز» وارد دور دوم مذاکرات با آمریکا نمی‌شود.
+
+این رسانه افزود پیش‌شرط‌های اعلامی جمهوری اسلامی، تضامین حداقلی اعتمادساز برای آغاز هرگونه مذاکره با آمریکا است.
+
+خبرگزاری فارس به نقل از «کنبع آگاه اعلام کرد پنج پیش‌شرط جمهوری اسلامی «پایان جنگ در همه جبهه‌ها به‌ویژه لبنان»، «رفع تحریم‌ها»، «آزادسازی پول‌های بلوکه‌شده»، «جبران خسارات ناشی از جنگ» و «پذیرش حق حاکمیت حکومت ایران بر تنگه هرمز» است.
+
+این رسانه وابسته به سپاه گزارش داد که جمهوری اسلامی از طریق واسط پاکستانی به طرف آمریکایی اعلام کرد تداوم محاصره دریایی پس از برقراری آتش‌بس، گزاره غیرقابل اعتماد بودن مذاکره با آمریکا را بیش از پیش تقویت کرده است.
+https://iranintl.com/202605121380
+</div>
+
+## IranIntlTV — post 336864
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336864" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: جدی‌ شدن بازگشت حملات نظامی به ایران در آمریکا؛ جزییات حمله امارات به ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336863
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدها پیام دریافتی روزانه از شهروندان به ایران اینترنشنال حاکی از کلافگی، خستگی روحی و ورشکستگی اقتصادی آن‌ها در شرایط سخت معیشتی همزمان با قطع اینترنت است. در حالی مقام‌های حکومت ابتدا اعلام کردند دولت تصمیم‌گیر قطع اینترنت نبوده، اما بعد سخنگوی دولت پزشکیان گفت دستور قطع سراسری آن را رییس‌جمهوری داده است. شهروندان می‌گویند پول خود را برای اینترنت پرو که با تبعیض و رانت توزیع شده نخواهند داد چراکه درآمد دستگاه‌ها و نیروهای سرکوب خواهد شد.
+</div>
+
+## IranIntlTV — post 336862
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336862_1778614233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، هنگام خروج از کاخ سفید برای عزیمت به چین گفت جمهوری اسلامی می‌داند نباید به سلاح هسته‌ای دست پیدا کند و افزود به‌زودی درباره جنگ ایران با رییس‌جمهور چین گفت‌وگوی مفصلی خواهد داشت.
+او تاکید کرد محاصره ایران «۱۰۰ درصد موثر» بوده و آمریکا پیروز شده است.
+
+ترامپ همچنین گفت تنها توافقی «خوب» با تهران امضا خواهد کرد و اجازه نخواهد داد جمهوری اسلامی به سلاح هسته‌ای دست یابد. او افزود هرکس اجازه دستیابی تهران به سلاح هسته‌ای را بدهد «احمق» است.
+https://iranintl.com/202605120877
+</div>
+
+## IranIntlTV — post 336861
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336861_1778614234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بریتانیا سه‌شنبه اعلام کرد که تجهیزات خودکار مین‌روبی، جنگنده‌های تایفون و ناو جنگی اچ‌ام‌اس دراگون را به یک ماموریت دفاعی چندملیتی با هدف تامین امنیت کشتیرانی در تنگه هرمز اختصاص خواهد داد.
+
+دولت بریتانیا با انتشار بیانیه‌ای نوشت که ماموریت دفاعی بریتانیا با ۱۱۵ میلیون پوند بودجه جدید برای پهپادهای مین‌روب و سامانه‌های مقابله با پهپاد پشتیبانی می‌شود.
+
+جان هیلی، وزیر دفاع بریتانیا که ریاست اولین نشست وزیران دفاع ائتلافی متشکل از ۴۰ کشور را به‌طور مشترک با همتای فرانسوی خود برعهده داشت، گفت: «همراه با متحدان‌مان، این ماموریت چندملیتی، دفاعی، مستقل و معتبر خواهد بود.»
+https://iranintl.com/202605128230
+</div>
+
+## IranIntlTV — post 336860
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336860_1778614235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی یوسفی، نماینده اهواز در مجلس به سایت دیده‌بان ایران گفت: «ناوهای بریتانیا و فرانسه به تنگه هرمز نزدیک شوند، ببینند چه بلایی سرشان می آوریم. ما هم می‌گوییم بیایید نزدیک تنگه هرمز و آن را باز کنید.»
+
+او ادامه داد: «اگر بناست اروپایی‌ها ما را امتحان کنند، بدانند که پایگاه‌های نظامی، کشورهای اروپایی و هر کشور متخاصم هدف مشروع ما است. ما بلوف نمی‌زنیم بلکه عمل می‌کنیم.»
+https://iranintl.com/202605125053
+</div>
+
+## IranIntlTV — post 336859
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336859" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چرتکه: سناریوهای قدرت خرید تا پایان ۱۴۰۵
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336858
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336858_1778614236.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال در پی انزوای جمهوری اسلامی و انصراف همه حریفان تدارکاتی، برای سومین بار با خودش بازی کرد؛ دیداری که به طور مستقیم از صدا و سیمای جمهوری اسلامی پخش شد، وی‌ای‌آر داشت و البته بدون حضور تماشاگران عادی در ورزشگاه پاس قوامین، وابسته به نیروی انتظامی، برگزار شد.
+
+🔹این بازی که در جریان اردوی بازیکنان شاغل در لیگ برتر برگزار شد، با حضور دو تیم قرمز و سفید انجام گرفت و تیم سفید با نتیجه ۴ بر یک تیم قرمز را شکست داد.
+
+علی علیپور، دانیال ایری (دو بار) و آریا یوسفی برای تیم سفید و امیرحسین حسین‌زاده برای تیم قرمز گل زدند.
+
+🔹تیم ملی قرار بود پیش از جام جهانی با تیم‌های ملی پرتغال،‌ اسپانیا،‌ مقدونیه و آنگولا بازی‌های تدارکاتی داشته باشد که همگی از دیدار با ایران منصرف شدند.
+
+🔹امیر قلعه‌نویی، سرمربی تیم ملی، پیش‌تردرباره لغو بازی‌های تدارکاتی گفت: «بازی‌های تدارکاتی هماهنگ شده بود و قرارداد بستند؛ ولی در دقیقه ۹۰ کنسل شد.»
+
+🔹تیم ملی قرار است به زودی در ترکیه اردوی آماده‌سازی خود را برپا کند. فدراسیون فوتبال گفته در جریان این اردو با تیم ملی گامبیا بازی خواهد کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 336857
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336857_1778614237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد امارات متحده عربی از زمان آغاز کارزار آمریکا و اسرائیل علیه جمهوری اسلامی در اسفند ماه، بیش از یک‌بار ایران را هدف حمله قرار داده است.
+بلومبرگ به نقل از «افراد مطلع» نوشت این حملات هم پیش از برقراری آتش‌بس و هم پس از آن انجام شده است.
+
+براساس این گزارش، در طول جنگ، همکاری میان امارات متحده عربی و اسرائیل شامل تبادل اطلاعات، شناسایی و رهگیری موشک‌ها و پهپادهای ایرانی و همچنین انتخاب اهداف در ایران بوده است.
+
+طبق گزارش بلومبرگ، یکی از این حملات در پاسخ به حمله جمهوری اسلامی به تاسیسات پتروشیمی بوروج در امارات و در «هماهنگی» با اسرائیل بوده است.
+
+به گفته یکی از منابع، دو طرف در حمله اسرائیل به مجتمع پتروشیمی پارس جنوبی ایران نیز همکاری کرده‌اند.
+وال‌استریت ژورنال پیش‌تر گزارش داد که امارات حمله‌ای به جزیره لاوان ایران انجام داده است.
+https://iranintl.com/202605123603
+</div>
+
+## IranIntlTV — post 336856
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336856_1778614238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال گزارش داد ابوظبی به اهدافی داخل ایران حمله کرده است و واشینگتن به‌طور غیرعلنی از مشارکت امارات و هر کشور حاشیه خلیح فارس که مایل به ورود به درگیری باشد، استقبال کرده است.
+
+ارزیابی فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی در موسسه واشینگتن
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14002
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14002_1778614241.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده کره‌ای KF-21 بیش از 16000 پرواز آزمایشی تاکنون انجام داده و به مراحل پایانی تست‌های خود رسیده است.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14001
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14001_1778614242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ راهی چین شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14000
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14000" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 7.06 مگابایت
+
+اتاق جنگ سه شنبه 22 اردیبهشت | بالا رفتن احتمال جنگ جمهوری اسلامی و آمریکا
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13999
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13999_1778614245.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران طوفانی شد
+
+🔹هواشناسی: از ساعتی پیش، وزش باد ۵۵ کیلومتر بر ساعت همراه با گردوخاک در تهران آغاز شده است.
+
+شهروندان از تردد غیرضروری در فضاهای باز و ماندن در مجاورت درختان کهنسال، سازه‌های موقت و تأسیسات ناپایدار خودداری کنند.
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13998
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13998_1778614245.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سرلشگر جعفری :
+
+تا زمانی که پیش شرط ها محقق نشود مذاکره ای انجام نخواهد شد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13997
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13997_1778614246.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد نیروی دریایی سپاه پاسداران انقلاب اسلامی اعلام کرده است که ایران تعریف خود از تنگه هرمز را به یک «منطقه عملیاتی گسترده» تغییر داده؛ تعریفی که به‌مراتب وسیع‌تر از نگاه پیش از جنگ توصیف می‌شود.
+به گزارش خبرگزاری فارس در روز سه‌شنبه ۲۲ اردیبهشت، محمد اکبرزاده، معاون سیاسی نیروی دریایی سپاه، تأکید کرد که تنگه هرمز دیگر صرفاً یک آبراه محدود در اطراف چند جزیره نیست و ابعاد و اهمیت نظامی آن به‌طور قابل توجهی گسترش یافته است.
+او اظهار داشت: «در گذشته، تنگه هرمز به‌عنوان محدوده‌ای محدود پیرامون جزایری مانند هرمز و هنگام تعریف می‌شد، اما امروز این رویکرد تغییر کرده است.»
+بر اساس این گزارش، مقامات رسمی ایران تاکنون به درخواست خبرگزاری رویترز برای ارائه توضیحات بیشتر در این خصوص پاسخی نداده‌اند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13996
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13996_1778614247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ شاهزاده رضا پهلوی: به جای توافق با رژیم، بهتر است یک‌بار برای همیشه از شر آن خلاص شوید. جهان امروز در برابر چنین انتخابی قرار دارد.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13995
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13995_1778614248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ خوش‌چشم، کارشناس ارشد صداوسیما:
+
+این دفعه جنگ بشه اصلا مهم نیست ساختمون اینتل تو اسرائیل چند طبقه زیر زمینه، کل دیتاسنترهای اینتل میخوره، پروژه مشترک گوگل و آمازونم که میخوره، بقیشم هرچی هست میخوره.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13994
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13994_1778614253.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سناتور گراهام: اگر میانجی (پاکستان) اجازه می‌دهد هواپیماهای شناسایی در پایگاه‌های هوایی پاکستان پارک شوند، فکر می‌کنید این با نقش میانجی منصفانه سازگار است؟
+
+وزیر جنگ هگسث: من نمی‌خواهم وسط این مذاکرات قرار بگیرم.
+
+سناتور گراهام: خب، من می‌خواهم وسط این مذاکرات قرار بگیرم. من به پاکستان به اندازه‌ای که بتوانم آنها را پرتاب کنم اعتماد ندارم.
+
+اگر واقعاً هواپیماهای ایرانی در پایگاه‌های پاکستانی برای محافظت از دارایی‌های نظامی ایران پارک شده‌اند، این به من می‌گوید که شاید باید به دنبال شخص دیگری برای میانجیگری باشیم. جای تعجب نیست که این لعنتی به جایی نمی‌رسد.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13993
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/rrGzLhyQoaY?feature=share
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 21:01
 ---
 
