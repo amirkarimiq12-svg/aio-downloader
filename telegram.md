@@ -7,6 +7,704 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 21:01
+---
+
+## ChizBergerz — post 46338
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46338_1778607065.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی ببینید جیگرتون حال بیاد: 😍😍
+
+یه شیر پسر دیگه تو خارج کشور رفته تو تجمع خایمالای ج.ا و میگه "خامنه‌ای پرپر" که یه خرزشی میخواست باهاش درگیر شه و پلیس میاد مثل سگ میبرتش😂🔥
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46337
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46337_1778607066.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو خارج کشور یه شیرپسر کُتلت پخته و برده تو تجمع خایمالای ج.ا و میگه بخورید: 😂😂🔥
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46336
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46336_1778607067.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه داداش ببین موش‌تباه کاملا حالش خوبه، فکر میکنی دروغ میگم؟ اینم مدرکش:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46335
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46335_1778607070.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قل أعوذ برب الناس
+آدم مادرجنده از دور پیداس!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46334
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46334_1778607070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه سری هم دارن تو اینستا بخاطر اینکه فیلترشکن خریدن دارن پز میدن، اینترنت داشتن شده دلیل باکلاس بودن!
+
++ این که اصن خوشگل نیست، منظورش از خوشگی ممه‌هاشه؟
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46333
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46333_1778607072.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو وایرال شده از یه مادرقحبه (احتمال زیاد افغانستانی) که تو تجمع خایمالای ج.ا تو برلین میگه؛ سپهر بابا کجایی؟ سپهر بابا به کیر رفت!
+
++ اینو نشون کنید یه مادری باید ازش گایید که تو تاریخ بنویسن!
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46332
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46332" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46331
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46331_1778607073.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge22
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## rodast_omiddana — post 71283
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده امشب تا یکساعت و نیم دیگه:
+*بازداشت فرماندهان دریایی سپاه در کویت
+*ترامپ با ژنرالها برای حمله بزرگ بعد از سفر چین هماهنگ شد
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71282
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71282_1778607074.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وزارت خارجه کویت سه‌شنبه اعلام کرد که محمد توتونچی، سفیر جمهوری اسلامی در کویت را احضار کرد و یادداشت اعتراضی در مورد تلاش یک گروه مسلح مرتبط با سپاه پاسداران، برای نفوذ به جزیره بوبیان «با هدف انجام اقدامات خصمانه علیه کویت»، را به او تحویل داد.
+</div>
+
+## rodast_omiddana — post 71281
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71281_1778607074.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فرودگاه بین‌المللی بن گوریون نزدیک تل‌آویو این روزها عمدتاً با هواپیماهای سوخت‌رسان هوایی نیروی هوایی ایالات متحده شلوغ است.
+</div>
+
+## rodast_omiddana — post 71280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬خوش چشم کارنشناس رژیم:
+آمریکا تا اول خرداد حمله میکنه
+لینک یوتیوب:
+https://www.youtube.com/watch?v=OK6E9Cq8f2g
+</div>
+
+## rodast_omiddana — post 71279
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71279_1778607077.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فوری
+کویت اعلام کرده تعدادی از نیروهای تروریستی 3پا میخواستند به جزیره بوبیان کویت نفوذ کنند که همگی بازداشت شدند...
+چهره های مهمی بازداشتی:
+سرهنگ امیرحسین عبدمحمد زارعی (سرهنگ نیروی دریایی)
+سرهنگ عبدالصمد یدالله کنواتی (سرهنگ نیروی دریایی)
+سرگرد احمد جمشید غلامرضا ذوالفقاری (کاپیتان نیروی دریایی)
+ستوان محمدحسین سهراب فروغی راد (ستوان یکم نیروی دریایی)
+(جزئیات خبر را شب در برنامه یوتیوبم میگم)
+</div>
+
+## rodast_omiddana — post 71278
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71278_1778607077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 شیعه با تو کاری میکند اینقدر حیوان شوی تا آرزوی مرگ یک بچه یک روزه را داشته باشی..
+ریدم بهت علیرضا دبیر مادر ج.ن..ده
+</div>
+
+## rodast_omiddana — post 71277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 آنالیز ویدیو قدیمی از حسین سلامی در مورد بستن تنگه هرمز
+لینک یوتیوب:
+https://www.youtube.com/watch?v=AhYuOpglXaY
+</div>
+
+## KiriMohems — post 47397
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جایزه ۱۵ میلیون دلاری آمریکا برای مختل کردن سیستم مالی ایران
+
+
+
+🔴وزارت خارجهٔ آمریکا از برنامهٔ «پاداش برای عدالت» خود برای پرداخت تا سقف ۱۵ میلیون دلار به افراد همکار با این کشور، با هدف اختلال در سازوکارهای مالی سپاه پاسداران خبر داد.
+
+
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47396
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کیری فوری / سی‌ان‌ان: ترامپ جدی‌تر از گذشته به از سرگیری جنگ فکر می‌کند
+
+
+#professor
+@KiriMohemS
+</div>
+
+## KiriMohems — post 47395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا دبیر: تو جنگ بالای ۱۰۰ تا موشک اطراف من خورد اما شهید نشدم؛ اما با این حال من عاشق شهادتم.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47394
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47394_1778607078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فروش اینترنت پرو توسط فروشگاه ها و دستفروشان خیابونی
+
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251428
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صحبتای پرز خیلی منو یاد وعده های پزشکیان میندازه
+</div>
+
+## SportBaadNews — post 251427
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسکش میخوای تیمو ببری ليگ زامبیا هر بازی ده هیچ بشه؟
+</div>
+
+## SportBaadNews — post 251426
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251426_1778607078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرز : رسانه میخواد کاری کنه من اخراج بشم؟ تنها کسانی که منو اخراج میکنه دیوانه ها هستن، من جایی نمیرم. من حتی شعار "حیا کن رها کن" هم شنیدم ولی جایی نمیرم، کسی هم نمیاد جلوم باهام مبارزه کنه، شاید بخاطر اینه که من ترسناکم @SportBaadNews
+</div>
+
+## SportBaadNews — post 251425
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251425_1778607078.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨با کانفیگ های  رایگان اینجا متصل بمونید کاملا راحت بدون قطع و وصلی بالا میاد :
+
+@confingfreeirbot
+</div>
+
+## SportBaadNews — post 251423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرز : رئال تو زمان حضور من 7 تا لیگ برده، 7 تا هم لالیگا از ما دزدیده. وگرنه الان 14 تا برده بودیم @SportBaadNews
+</div>
+
+## SportBaadNews — post 251422
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251422_1778607079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرز :
+رئال تو زمان حضور من 7 تا لیگ برده، 7 تا هم لالیگا از ما دزدیده. وگرنه الان 14 تا برده بودیم
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251420
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251420_1778607079.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چجوری دو فصل جام نزدنمو توجیه کنم؟ آفرین میگم نگریرا
+@SportBaadNEws
+</div>
+
+## SportBaadNews — post 251419
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251419_1778607080.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ پرز: دارم انتخابات جدید هیئت‌مدیره رو اعلام می‌کنم و همین هیئت، با خودم به‌عنوان رئیسش، تو این انتخابات شرکت می‌کنه. هرکی از ما انتقاد داره و این شایعه‌ها رو درباره‌م پخش می‌کنه، می‌تونه بیاد تو همین انتخابات روبه‌روی من کاندیدا بشه. هرکی می‌خواد جلو…
+</div>
+
+## SportBaadNews — post 251418
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251418_1778607081.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسمی | فلورنتینو پرز سه سال زودتر از موعد، تو رئال مادرید انتخابات جدید اعلام کرده. دوره فعلیش قرار بود تا 2029 تموم بشه. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251417
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251417_1778607081.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨😂 پرز: «الان نشونتون می‌دم چند دقیقه پیش چی بهم نشون دادن. ABC گفته من خستم… آخه اینو چطوری می‌تونین بگین؟ این خبرنگاره اینجاست؟» @SportBaadNews
+</div>
+
+## SportBaadNews — post 251416
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251416_1778607081.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ای بی سی نیوز: پرز به اعضای هیئت مدیره اعلام کرده که خستست و احتمالا بعد از اعلام مورینیو بعنوان سرمربی استعفا میده @SportBaadNews
+</div>
+
+## SportBaadNews — post 251415
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251415_1778607082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسمی | فلورنتینو پرز سه سال زودتر از موعد، تو رئال مادرید انتخابات جدید اعلام کرده. دوره فعلیش قرار بود تا 2029 تموم بشه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251414
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251414_1778607082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فلورنتینو پرز: «متأسفم بگم که قراره استعفا ندم» 😂😂😂 @SportBaadNews
+</div>
+
+## SportBaadNews — post 251413
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251413_1778607082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فلورنتینو پرز: «متأسفم بگم که قراره استعفا ندم» 😂😂😂
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251412
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251412_1778607083.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁉️ بنظرتون پرز امروز استعفا میده؟ @SportBaadNews
+</div>
+
+## SportBaadNews — post 251411
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251411_1778607083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⁉️ بنظرتون پرز امروز استعفا میده؟
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251410
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251410_1778607083.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ اخباری اومده که پرز میخواد استعفا بده ولی همچین خبری نیست... 
+⚪️ چندین خبرگزاری اعلام کردن: پرز جایی قرار نیست بره یا استعفا بده؛ اون امروز تصمیمات اساسیش واسه فصل بعد رو اعلام میکنه، همچنین از هواداران عذرخواهی میکنه و چیزای دیگه @SportBaadNews
+</div>
+
+## IranIntlTV — post 336855
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336855_1778607084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاکان فیدان، وزیر خارجه ترکیه، در گفت‌وگو با الجزیره گفت اولویت اصلی آنکارا حفظ آتش‌بس میان واشینگتن و تهران است و تاکید کرد فوری‌ترین نگرانی ترکیه تداوم این آتش‌بس است، زیرا در حال حاضر این موضوع بیشترین اهمیت را دارد.
+
+وزیر خارجه ترکیه افزود هیچ‌کس خواهان بازگشت به جنگ نیست، چرا که اقتصاد جهانی و امنیت انرژی جهان همین حالا نیز به اندازه کافی آسیب دیده است.
+
+هاکان فیدان همچنین گفت ترکیه و دیگر کشورهای منطقه از جمله قطر برای حمایت از پاکستان به‌عنوان میانجی اصلی همکاری می‌کنند و در روند میانجی‌گری، زمانی که کار به بن‌بست می‌رسد، دشوارترین بخش یافتن ایده‌های خلاقانه است؛ گاهی طرفین و حتی خود میانجی نیز قادر به ارائه چنین ایده‌هایی نیستند.
+https://iranintl.com/202605122251
+</div>
+
+## IranIntlTV — post 336854
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336854_1778607084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هزینه‌ای که جمهوری اسلامی به مردم ایران تحمیل کرده، فقط در اقتصاد خلاصه نمی‌شود؛ از سفره‌های کوچک‌تر تا اینترنت طبقاتی، از اعدام و زندان تا ترس، ناامیدی و خشم فروخورده‌ای که هر روز بزرگ‌تر می‌شود.
+مردم تا کی تاب می‌آورند؟
+آیا ایران به نقطهٔ انفجار رسیده است؟
+خشم انباشتهٔ مردم چه زمانی فوران خواهد کرد؟
+
+امشب در «برنامه با کامبیز حسینی» دربارهٔ هزینه‌های ۴۷ سال حاکمیت جمهوری اسلامی و آیندهٔ ایران حرف می‌زنیم.
+
+«برنامه» صدای شماست.
+
+اگر در ایران به اینترنت دسترسی دارید، بیایید و مشاهدات خود را از جنگ بگویید. ما شما را، بدون نوبت، مستقیم از ایران روی خط می‌آوریم.
+بیایید و روایت خود را برای همیشه ثبت کنید.
+تاریخ با صدای شما نوشته می‌شود.
+
+برای شرکت در برنامه، همین حالا در واتس‌اپ پیام بدهید:
+۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+
+«برنامه با کامبیز حسینی»
+«یک ایران صدای شما را می‌شنود»
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 336853
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336853_1778607085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی‌ که گزارش‌ها از جدی‌تر شدن بررسی گزینه‌های نظامی جدید آمریکا علیه جمهوری اسلامی خبر می‌دهند، دونالد ترامپ گفت منتظر فروپاشی اقتصادی ایران در اثر محاصره دریایی است.
+
+گفت‌وگو با فرشته پزشک، کارشناس روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 336852
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336852_1778607087.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه کیفری عالی بحرین سه نفر از جمله یک زن را به اتهام «همکاری» با جمهوری اسلامی به حبس ابد محکوم کرد.
+دادستان‌ها اعلام کردند این زن در «ارتباط» با سپاه پاسداران بوده و قصد داشته «اقدامات تروریستی خصمانه» در بحرین انجام دهد.
+در پرونده‌های جداگانه، ۱۰ نفر دیگر به اتهام «حمایت و تایید حملات تروریستی جمهوری اسلامی علیه بحرین»، انتشار اطلاعات ممنوع و عکسبرداری از اماکن ممنوعه، به احکام حبس تا ۱۰ سال محکوم شدند.
+
+پیش‌تر نیز وزارت کشور بحرین اعلام کرد دستگاه‌های امنیتی این کشور یک تشکیلات مرتبط با سپاه پاسداران و تفکر «ولایت فقیه» را شناسایی کرده‌اند و ۴۱ نفر از اعضای آن را بازداشت کرده‌اند.
+https://iranintl.com/202605122799
+</div>
+
+## IranIntlTV — post 336849
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336849_1778607088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست امنیتی سالانه پولیتیکو گفت: «ما فقط زمانی می‌توانیم مردم را به بازگشت به خیابان‌ها فرا بخوانیم که آن‌ها از سطحی از برابری در توان مقابله برخوردار باشند؛ نه زمانی که رژیم بتواند اوباش و نیروهای سرکوبگرش را برای کشتن مردم در خیابان‌ها اعزام کند.»
+
+او ادامه داد: «اما برای رسیدن به آن نقطه، باید پیام روشنی وجود داشته باشد. باید راهبردی شفاف برای پایان دادن به این رژیم وجود داشته باشد؛ فراخوانی روشن برای قیام مردم، و همچنین پیامی برای نیروهای نظامی و امنیتی از حکومت جدا شوند و به مردم بپیوندند. همه این‌ها باید در قالب یک راهبرد منسجم هماهنگ شود.»
+https://iranintl.com/202605123516
+</div>
+
+## IranIntlTV — post 336848
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336848" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | سه‌شنبه ۲۲ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336847
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336847_1778607088.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۲ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 336846
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336846_1778607090.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۲ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 336845
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336845_1778607091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست امنیتی سالانه پولیتیکو گفت سیاست مماشات با رژیم جمهوری اسلامی که راهبرد بسیاری از دولت‌ها بود، شکست خورده است.
+او افزود اکنون که با یک «جانور زخمی» روبه‌رو هستیم، این فرصتی است که نباید از دست برود، بلکه باید کار را یک‌بار برای همیشه تمام کرد؛ موضوعی که نه‌تنها میلیون‌ها ایرانی، بلکه بسیاری از کشورهای منطقه نیز انتظار آن را دارند.
+
+شاهزاده رضا پهلوی درباره جنگ علیه جمهوری اسلامی نیز گفت مردم به‌اندازه کافی هوشمند هستند که تفاوت میان حمله به یک ملت و حمله به یک رژیم را تشخیص دهند و آن کارزار، حمله‌ای علیه ملت ایران نبود، بلکه علیه رژیم بود.
+https://iranintl.com/202605128673
+</div>
+
+## IranIntlTV — post 336844
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336844_1778607091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دبیرکل شورای همکاری خلیج فارس اعلام کرد که نفوذ عناصر وابسته به سپاه پاسداران و برنامه‌ریزی آن‌ها برای اقدامات «خصمانه» را به‌شدت محکوم می‌کند.
+
+دبیرکل شورای همکاری خلیج‌ فارس افزود از هر اقدامی که کویت برای حفظ امنیت و ثبات خود اتخاذ کند، حمایت می‌کند.
+
+‌پیش‌تر نیز وزارت خارجه کویت اعلام کرد که سفیر جمهوری اسلامی را در پی نفوذ یک گروه وابسته به سپاه پاسداران به جزیره بوییان احضار کرده است.
+https://iranintl.com/202605128445
+</div>
+
+## IranIntlTV — post 336843
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336843_1778607092.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با ادامه نارضایتی ترامپ از پاسخ تهران، ارم‌نیوز به نقل از منابع آمریکایی خبر داد واشینگتن به دنبال حمله به باقیمانده مراکز هسته‌ای ایران است تا قواعد جدیدی را به تهران تحمیل کند. سی‌ان‌ان هم خبر داد ترامپ در حال بررسی حمله به ایران پس از سفر به چین است.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 336842
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336842_1778607094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شهروندان در پیام‌هایی به ایران اینترنشنال می‌گویند که بدون رضایت و اطلاع و حتی هیچگونه اقدامی از سوی آن‌ها، نهادهای جمهوری اسلامی نام و مشخصات و تلفن همراه آن‌ها را برای ثبت‌نام در کارزار حکومتی «جان‌فدا» استفاده کرده‌اند.
+
+طبق این پیام‌ها، حکومت پیامک‌هایی به شهروندان فرستاده و بدون اینکه بدانند، به آن‌ها گفته شده که در کارزار «جان‌فدا» ثبت‌نام شده‌اند.
+
+طی روزهای گذشته، رسانه‌های حکومتی نوشتند که بیش از ۳۱ میلیون نفر در این کارزار ثبت‌نام کرده‌اند. این عدد و آمار از سوی شهروندان و ناظران با سوال مواجه شد. شهروندان در حالی که همچنان ده‌ها روز است که از دسترسی به اینترنت محروم‌اند، در پیام‌های خود به ایران اینترنشنال نوشته‌اند اگر حکومت ۳۱ میلیون جان‌فدا و حامی دارد، چرا اینترنت و دسترسی به آن را در کشور باز نمی‌کند.
+https://iranintl.com/202605129601
+</div>
+
+## IranIntlTV — post 336841
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336841_1778607095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد ناو هواپیمابر آبراهام لینکلن به عملیات خود در دریای عرب، از جمله اجرای محاصره دریایی علیه جمهوری اسلامی، ادامه می‌دهد و تاکنون یک کشتی تجاری را وادار به تغییر مسیر کرده است.
+جزییات بیشتر با مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336840
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336840_1778607097.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه وال‌استریت ژورنال گزارش داد جمهوری اسلامی در آستانه سفر دونالد ترامپ به چین، از طریق سفیر خود در پکن در تلاش است پیامی را به واشینگتن منتقل کند.
+سمیرا قرایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336839
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336839_1778607099.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال با اشاره به هشدار ترامپ درباره حمله و بردن ایران به «عصر حجر» گفت که جمهوری اسلامی با قطع اینترنت این کار را کرد و نه ترامپ. پیام این مخاطب و تصویر این پست با هوش مصنوعی خوانده و ساخته شده است.
+</div>
+
+## IranIntlTV — post 336838
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336838_1778607101.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه کویت اعلام کرد که سفیر جمهوری اسلامی را در پی نفوذ یک گروه وابسته به سپاه پاسداران به جزیره بوییان احضار کرده است.
+
+وزارت کشور کویت اعلام کرد چهار نفری که به‌صورت غیرقانونی از راه دریا وارد این کشور شده بودند، در جریان بازجویی به عضویت در سپاه پاسداران انقلاب اسلامی اعتراف کردند.
+در بیانیه این وزارتخانه آمده است این افراد اعتراف کردند مامور شده بودند با استفاده از یک قایق ماهیگیری که به‌طور ویژه برای اجرای اقدامات خصمانه علیه کویت اجاره شده بود، به جزیره بوبیان نفوذ کنند.
+بر اساس این بیانیه، این افراد با نیروهای مسلح کویت درگیر شدند که در نتیجه آن یکی از نیروهای کویتی زخمی شد و دو نفر از عناصر نفوذی گریختند.
+https://iranintl.com/202605121020
+</div>
+
+## Persian_Trend_Official — post 13992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
+با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
+این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
+🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
+https://t.me/boost/persian_trend_official
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لایو امشب ساعت 21 به وقت تهران شروع میشه
+</div>
+
+## Persian_Trend_Official — post 13990
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13990_1778607101.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اختصاصی |تورم آمریکا بالاتر از انتظار ثبت شد
+
+تورم آمریکا در ماه آوریل بار دیگر شتاب گرفت؛ موضوعی که تحت تأثیر افزایش قیمت بنزین، مواد غذایی و تبعات جنگ ایران رخ داده است.
+
+بر اساس داده‌های منتشرشده:
+
+▪️ نرخ تورم سالانه آمریکا به ۳.۸ درصد رسید
+▪️ بازار انتظار عدد ۳.۷ درصدی را داشت
+▪️ این سریع‌ترین رشد تورم از سال ۲۰۲۳ محسوب می‌شود
+
+همچنین:
+
+▪️ تورم ماهانه ۰.۶ درصد ثبت شد
+▪️ تورم هسته ماهانه به ۰.۴ درصد رسید
+▪️ تورم هسته سالانه نیز ۲.۸ درصد اعلام شد
+▪️ هر دو شاخص هسته بالاتر از پیش‌بینی‌ها بودند
+
+افزایش قیمت:
+
+انرژی
+بلیت هواپیما
+و مواد غذایی
+
+نشان می‌دهد فشارهای تورمی ممکن است در ماه‌های آینده نیز ادامه پیدا کند؛ حتی در صورت حفظ آتش‌بس یا کاهش تنش‌ها در تنگه هرمز
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴احضار سفیر جمهوری اسلامی به وزارت خارجه کویت
+
+💢وزارت امور خارجه کویت عصر امروز در بیانیه‌ای اعلام کرد سفیر جمهوری اسلامی را احضار و یادداشت اعتراضی به او تحویل داده شد.
+
+💢وزاتخانه یادشده در توجیه احضار سفیر جمهور اسلامی تأکید کرد این اقدام در پی آنچه «نفوذ گروهی از سپاه پاسداران به بوبیان و درگیری آنها با نیروهای کویتی» خوانده است، انجام گرفت.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 18:48
 ---
 
