@@ -7,6 +7,415 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/22 11:07
+---
+
+## KiriMohems — post 47384
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزارت علوم: به خارش افتادیم تا کلاس‌های درس و امتحانات رو حضوری بکنیم
+
+دفاع دانشجویان حضوری شده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251388
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251388_1778571456.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به نظرم آرسنال امسال هم باید قهرمان چمپیونزلیگ بشه و هم قهرمان پریمیرلیگ
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251387
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251387_1778571457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ تونی کروس درباره گل مارکوس رشفورد: نمیشه گفت کورتوا میتونست کار بیشتری بکنه. یه ضربه عالی از یه فضای خیلی تنگ بود. اون یه قدم به سمت تیر دیگه برداشت، ولی نمیشه بابت این گل سرزنشش کرد، هیچ جوره نمیشد گرفت این توپ رو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251381
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251381_1778571458.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ یه رئالی دیروز تو جشن آخر فصل بارسا جلو چشم بازیکنای بارسا و بقیه هوادار هاشون اینطوری کیت رئال رو میبره بالا که رافینیا و یامال و چند تا دیگه بازیکنا به کص و کونشون برمیخوره و شروع میکنن فاک نشون دادن بهش
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251380
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251380_1778571460.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یامال پرچم فلسطین رو تو جشن امروز بارسا بالا برد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251379
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251379_1778571460.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حس می‌کنم آرسنال دقیقاً شبیه این ماشینه توی انیمیشن «ماشین‌ها»ست؛ بیچاره هیچ‌کس دوستش نداره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251378
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251378_1778571461.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فقططططط و فقطططططط 30 روززززز تا شروع جام جهانی ⏳🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251377
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251377_1778571461.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙خبرنگار: ماه مارس گفتی می‌خوای تو بنفیکا بمونی و به قراردادت احترام بذاری، و اگه پیشنهاد تمدید بدن بدون هیچ مشکلی امضا می‌کنی. با اتفاقایی که افتاده، اگه الان پیشنهاد تمدید بدن امضا می‌کنی؟
+
+
+🔴 ژوزه مورینیو: نه. چیزی که مارس گفتم، مال همون موقع بود. دوشنبه میتونم درباره آینده‌م بهتون جواب بدم.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336766
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336766_1778571462.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه اجتماعی ایکس نوشت یکی از گزینه‌های جمهوری اسلامی در صورت حمله مجدد می‌تواند غنی‌سازی ۹۰ درصد باشد.
+
+او نوشت: «یکی از گزینه‌‌ها در صورت حمله مجدد می‌تواند غنی‌سازی ۹۰ درصد باشد. در مجلس بررسی می‌کنیم.»
+https://iranintl.com/202605126303
+</div>
+
+## IranIntlTV — post 336765
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336765_1778571462.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه اجتماعی ایکس نوشت یکی از گزینه‌های جمهوری اسلامی در صورت حمله مجدد می‌تواند غنی‌سازی ۹۰ درصد باشد.
+
+او نوشت: «یکی از گزینه‌‌ها در صورت حمله مجدد می‌تواند غنی‌سازی ۹۰ درصد باشد. در مجلس بررسی می‌کنیم.»
+https://iranintl.com/202605126303
+</div>
+
+## IranIntlTV — post 336764
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336764_1778571463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه اجتماعی ایکس نوشت یکی از گزینه‌های جمهوری اسلامی در صورت حمله مجدد می‌تواند غنی‌سازی ۹۰ درصد باشد.
+
+او نوشت: «یکی از گزینه‌‌ها در صورت حمله مجدد می‌تواند غنی‌سازی ۹۰ درصد باشد. در مجلس بررسی می‌کنیم.»
+https://iranintl.com/202605126303
+</div>
+
+## IranIntlTV — post 336763
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336763_1778571463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل به تصمیم اتحادیه اروپا برای تحریم برخی شهرک‌نشینان اسرائیلی در کرانه باختری واکنش نشان داد و با این اقدام مخالفت کرد.
+
+بابک اسحاقی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336762
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336762_1778571465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایشگاهی با هدف «بیدارسازی افکار عمومی» اروپا نسبت به نقض گسترده حقوق بشر و موج اعدام‌ها در ایران، به‌مدت یک ماه در شهرهای برلین، لاهه، آمستردام، بروکسل، پاریس و ژنو برگزار شد.
+
+مهدی تهرانی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336761
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336761_1778571466.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه پاکستان گزارش درباره اعزام هواپیماهای نظامی و غیرنظامی جمهوری اسلامی به پاکستان برای در امان ماندن از حملات، را «گمراه‌کننده» توصیف کرد و آن را رد کرد.
+
+این وزارتخانه در بیانیه‌ای اعلام کرد که پس از برقراری آتش‌بس و در جریان مذاکرات، شماری از هواپیماها وارد پاکستان شدند تا جابه‌جایی تیم‌ها را تسهیل کنند و برخی از این هواپیماها و نیروهای پشتیبانی «به‌طور موقت» در این کشور باقی ماندند تا برای دورهای بعدی تعامل آماده باشند.
+
+در این بیانیه آمده است: «هواپیماهای ایرانی که هم‌اکنون در پاکستان مستقر هستند، در دوره آتش‌بس وارد این کشور شدند و هیچ‌گونه ارتباطی با هیچ سناریوی نظامی یا ترتیبات حفاظتی ندارند.»
+
+شبکه خبری سی‌بی‌اس به نقل از «مقام‌های آگاه آمریکایی» گزارش داده بود که جمهوری اسلامی، شماری از هواپیماهای نظامی خود را به پایگاه نورخان پاکستان و همچنین چند هواپیمای غیرنظامی را به افغانستان اعزام کرده است تا از خسارات ناشی از جنگ در امان بمانند.
+https://iranintl.com/202605125000
+</div>
+
+## IranIntlTV — post 336760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از بحران اقتصادی و زندگی در آتش‌بس- سه‌شنبه ۲۲ اردیبهشت:
+
+🔹دانه قهوه شده کیلویی ۲ میلیون تومان، قهوه فوری شده کیلویی ۳ میلیون تومان! دیگه نمی‌شه قهوه خورد
+
+🔹لوازم بهداشتی به‌شدت گران شده‌ان. قیمت مام ضد تعریقی که می‌گرفتم ۲۰۰ هزار تومان به ۶۰۰ هزار تومان افزایش یافته.
+
+🔹با ۲۸ میلیون حقوق ماهیانه، زندگی دو نفره رزیدنتی ما به بن‌بست رسیده. پس‌اندازهایمان تمام شده و حتی توان تعمیر وسایل را نداریم.
+
+🔹من فارغ‌التحصیل ارشدم، دو سال با بدبختی پول جور کردم یه لپ‌تاپ خریدم تحقیقات انجام دادم همین که اومدم مقاله رو چاپ کنم نت قطع شد. این وضعیت برای یکی مثل من که هیچ‌وقت دست از تلاش برنمی‌داشتم یعنی خود مرگ.
+
+🔹از میانکوه خوزستان پیام می‌دهم؛ منطقه یک انتقال گاز در سال جدید حقوق ارکان ثالث را پرداخت نکرده که سابقه نداشته، همیشه برج یک دستمزدها پرداخت می‌شد.
+
+🔹جمهوری اسلامی دقیقا به سبک کارتل‌های مواد مخدر عمل می‌کند. یک عده وفادار به خودش را با تطمیع و پول‌پاشی نگه داشته، ملت ایران را ول کرده در فقر و گرونی دست و پا بزنند. الحق که جمهوری اسلامی جمع رذایل همه‌ حکومت‌های تاریخ است.
+</div>
+
+## IranIntlTV — post 336759
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336759" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | سه‌شنبه ۲۲ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336758
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336758_1778571467.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اعلام کرد که حکم اعدام عبدالجلیل شه‌بخش، زندانی بلوچ، بامداد سه‌شنبه ۲۲ اردیبهشت اجرا شده است. میزان اتهام او را «عضویت در گروه انصارالفرقان» و «بغی» عنوان کرده است.
+
+در گزارش منتشرشده از سوی این رسانه، به تاریخ دقیق بازداشت عبدالجلیل شه‌بخش اشاره‌ای نشده است. همچنین پیشتر اطلاعی درباره بازداشت و روند طی شدن مراحل قضایی پرونده او منتشر نشده بود.
+https://iranintl.com/202605126293
+</div>
+
+## IranIntlTV — post 336757
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336757_1778571468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصویری از یک راهب که هر صبح با گروهی از سگ‌های یک معبد در تایلند برای جمع‌آوری نذورات و غذا در اطراف محله حرکت می‌کند، در روزهای اخیر در شبکه‌های اجتماعی بازتاب گسترده‌ای داشته و میلیون‌ها بار دیده شده است.
+
+گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336756
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336756_1778571469.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آیلین وانگ، شهردار شهر آرکادیا در ایالت کالیفرنیا، پس از متهم شدن به «همکاری پنهانی با دولت چین»، از سمت خود کناره‌گیری کرد.
+
+گفت‌وگو با رضا گوهرزاد، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336755
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336755_1778571471.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله به یک کشتی کره جنوبی در تنگه هرمز بازتاب گسترده‌ای در رسانه‌ها و محافل بین‌المللی داشته است. در همین ارتباط، سفیر جمهوری اسلامی در سئول هرگونه دخالت ایران در این حادثه را رد کرد.
+
+گفت‌وگو با توماج طاهباز، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336754
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336754_1778571473.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جانشین پایگاه دریابانی بندرعباس از شناسایی و انهدام یک خط لوله انتقال سوخت قاچاق به طول شش کیلومتر خبر داد. به گزارش فارس، وابسته به سپاه، قاچاقچیان این خطوط لوله را زیر ماسه‌ها و آب دریا جاسازی کرده بودند و از آن طریق، سوخت را از ساحل به دریا و شناورهای متخلف انتقال می‌دادند.
+https://iranintl.com/202605125372
+</div>
+
+## IranIntlTV — post 336753
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336753_1778571473.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امانوئل مکرون، رییس‌جمهوری فرانسه، که برای شرکت در نشست «آفریقا فوروارد ۲۰۲۶» به کنیا سفر کرده است، صبح دوشنبه همراه با الیود کیپچوگه، قهرمان ماراتن المپیک‌های ۲۰۱۶ و ۲۰۲۰، دقایقی در خیابان‌های نایروبی، پایتخت کنیا دوید.
+
+🔹الیود کیپچوگه با انتشار تصاویری درباره دویدن رییس‌جمهور فرانسه با او‌ نوشت: «فرصت داشتیم درباره این صحبت کنیم که چگونه می‌توانیم حمایت و فرصت‌های بیشتری برای نسل بعدی ورزشکاران آفریقایی فراهم کنیم.»
+
+🔹او نوشت: «چنین لحظاتی به من یادآوری می‌کند که دویدن فراتر از حرکت است. این یک زبان جهانی است که مردم، فرهنگ‌ها و ایده‌ها را به هم پیوند می‌دهد.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 336752
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336752_1778571475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت استرالیا از اعمال تحریم‌های جدید علیه مقام‌ها و نهادهای جمهوری اسلامی، از جمله وزیر کشور، فرماندهان امنیتی و نیروی انتظامی، به‌دلیل نقش آن‌ها در سرکوب معترضان و همچنین محدود کردن اینترنت در ایران خبر داد.
+
+علیرضا محبی، خبرنگار ایران‌اینترنشنال،‌گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336751
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336751_1778571477.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، دوشنبه در کاخ سفید با تیم امنیت ملی و شماری از فرماندهان نظامی آمریکا درباره ایران گفت‌وگو کرد. بر اساس گزارش‌ها، در این نشست مسیر پیشروی جنگ با جمهوری اسلامی بررسی شد.
+
+گزارش سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336750
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336750_1778571478.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا دوشنبه ۱۲ فرد و نهاد مرتبط با سپاه پاسداران را به‌دلیل نقش آن‌ها در تسهیل فروش و انتقال نفت ایران به چین در فهرست تحریم‌های ایالات متحده قرار داد.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 13959
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13959_1778571480.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز، تولید نفت اوپک در ماه آوریل بار دیگر کاهش یافت و به پایین‌ترین سطح خود در بیش از دو دهه گذشته رسید.
+
+بر اساس این نظرسنجی، تولید نفت خام ۱۲ عضو اوپک نسبت به ماه قبل، روزانه ۸۳۰ هزار بشکه کاهش یافته و به ۲۰.۰۴ میلیون بشکه در روز رسیده است. همچنین برآورد تولید ماه مارس نیز، پس از بازنگری در داده‌های عربستان سعودی، ۷۰۰ هزار بشکه در روز کمتر اعلام شد.
+
+کویت بیشترین افت تولید را در میان اعضای اوپک ثبت کرد. عربستان سعودی و عراق نیز کاهش قابل‌توجهی در تولید داشتند. در مقابل، امارات متحده عربی تنها تولیدکننده بزرگ خلیج فارس بود که توانست تولید خود را افزایش دهد؛ اقدامی که با بهره‌گیری از مسیرهای صادراتی خارج از تنگه هرمز امکان‌پذیر شد. داده‌های ردیابی نفتکش‌ها نیز افزایش صادرات امارات در ماه آوریل را تأیید می‌کند.
+
+رویترز گزارش داده است که سطح تولید اوپک در آوریل، پایین‌ترین میزان از سال ۲۰۰۰ تاکنون بوده است؛ البته با در نظر گرفتن تغییرات بعدی در عضویت این سازمان.
+
+علاوه بر امارات، ونزوئلا و لیبی نیز از جمله کشورهایی بودند که در ماه آوریل افزایش تولید را تجربه کردند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ارتش اسرائیل: بیش از ۳۵۰ نیروی حزب‌الله در جنوب لبنان کشته شدند
+
+ارتش اسرائیل اعلام کرد طی هفته‌های اخیر، در جریان عملیات‌های انجام‌شده در جنوب لبنان، بیش از ۳۵۰ نفر از نیروهایی که آن‌ها را «تهدیدی علیه غیرنظامیان و نیروهای اسرائیلی» توصیف کرده، کشته شده‌اند.
+
+بر اساس بیانیه ارتش اسرائیل:
+
+▪️ بیش از ۱۱۰۰ هدف وابسته به حزب‌الله نیز هدف حمله قرار گرفته است
+
+▪️ این اهداف شامل:
+
+▪️ساختمان‌های مورد استفاده نظامی
+
+▪️انبارهای تسلیحات
+
+▪️سکوهای آماده شلیک
+
+▪️زیرساخت‌های وابسته به حزب‌الله
+
+بوده‌اند.
+
+ارتش اسرائیل تأکید کرده عملیات‌ها در چارچوب تفاهمات میان اسرائیل و لبنان و طبق دستور مقامات سیاسی ادامه خواهد داشت.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13957
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13957_1778571481.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام؛ در تاریخ ۹ مه یک هواپیمای B-1B لانسر نیروی هوایی ایالات متحده در طول یک مأموریت آموزشی بر فراز خاورمیانه پرواز می‌کند،
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned a video
+</div>
+
+## Persian_Trend_Official — post 13955
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13955_1778571481.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب اینم ضد حمله جنگ تبلیغاتی لگویی
+جرات داری نت رو وصل کن ببین جطور جواب اراجیفت رو مردم ایران میدن !
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13954
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13954_1778571483.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو روز ۱۸ و ۱۹ دی ۱۴۰۴، ۲۳۶ کودک رو کشتید.
+۵۵۵ بچه رو هم بازداشت کردید.
+از جنایت هاتون در سوریه هم یه روزی وقتش برسه حرف میزنیم.
+تاریخ قضاوت خواهد کرد بلایی که شما سر ایران آوردید مغول نیاورد ...
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/22 08:24
 ---
 
