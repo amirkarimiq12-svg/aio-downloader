@@ -7,6 +7,382 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/23 11:42
+---
+
+## KiriMohems — post 47419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴روبیو توی هواپیما برای سفر به چین برای اینکه راحت باشه و کیر خایه هاش اذیت نباشه همون ست کاپشن شلواری رو پوشیده که مادورو موقع تو گونی شدن پوشیده بود !
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251486
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251486_1778659959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+14 سال پیش تو چنین روزی، آگوئرو با به ثمر رسوندن گل تو دقیقه 4+90 برابر رنجرز دراماتیک‌ترین قهرمانی تاریخ پریمیرلیگ را به ثبت رساند.
+@GoalBad
+</div>
+
+## SportBaadNews — post 251485
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251485_1778659963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئالیا که واسه اومدن مورینینو هیجان زده شدن و اما طوری که بارسایی ها مورینیو رو به خاطر میارن:
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251484
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251484_1778659965.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣کارلو آنچلوتی: نیمار بازیکن محبوبی در کشور و در رختکن هست وقتی اون رو به تیم ملی دعوت کنی مشکلی پیش نخواهد آمد چون اون در بین بازیکنان بسیار محترم است اون الان زمان زیادیه که به طور مداوم داره بازی میکنه و کیفیت خوبی از خودش نشون میده خیلی ها به من نصیحت کردن تا اون رو برای جام جهانی دعوت کنم
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251483
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251483_1778659966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇺 تیمایی که صعودشون به فصل بعد چمپیونزلیگ قطعی شده :
+
+🇪🇸
+⚽️ رئال مادرید
+🇪🇸
+⚽️ بارسلونا
+🇪🇸
+⚽️ اتلتیکومادرید
+🇪🇸
+⚽️ ویارئال
+🇪🇸
+⚽️ رئال بتیس
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+⚽️ آرسنال
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+⚽️ منچسترسیتی
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+⚽️ منچستریونایتد
+🇩🇪
+⚽️ بایرن مونیخ
+🇩🇪
+⚽️ دورتموند
+🇩🇪
+⚽️ لایپزیگ
+🇫🇷
+⚽️ پاریسن ژرمن
+🇫🇷
+⚽️ لانس
+🇵🇹
+⚽️ پورتو
+🇮🇹
+⚽️ اینتر
+🇳🇱
+⚽️ فاینورد
+🇳🇱
+⚽️ آیندهوون
+🇹🇷
+⚽️ گالاتاسرای
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 336943
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336943_1778659966.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با رد پیشنهاد ۱۴ ماده‌ای جمهوری اسلامی از سوی دونالد ترامپ، رییس‌جمهوری آمریکا و ادامه بسته ماندن تنگه هرمز، رسانه‌ها از افزایش احتمال درگیری نظامی دوباره میان تهران و واشینگتن خبر می‌دهند.
+گفت‌وگو با روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336942
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336942_1778659969.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میزان، خبرگزاری قوه قضاییه جمهوری اسلامی، از اجرای حکم اعدام احسان افرشته خبر داد.
+کانون حقوق بشر ایران پیش‌تر اعلام کرده بود اتهام «همکاری با اسرائیل» علیه احسان افرشته بر پایه اعترافات اجباری تحت شکنجه مطرح شده و هیچ مدرک معتبری در پرونده او وجود ندارد.
+
+گفت‌وگو با مجتبی هاشمی، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 336941
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336941_1778659971.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت پاکستان با صدور بیانیه‌ای گزارش‌ها درباره حضور هواپیماهای جمهوری اسلامی در پایگاه نورخان را تایید کرد، اما گفت: «ماموریت این هواپیماها نظامی نیست.»
+
+جواد همدانی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336940
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336940_1778659974.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامران غضنفری، نماینده مجلس، آمارهای مربوط به خسارت‌های قطع اینترنت در ایران را «جوسازی» خواند و گفت: «۵۰ میلیون نفر در پلتفرم‌های ایرانی هستند و هیچ مشکلی ندارند.»
+
+او گفت: «قطع اینترنت اصلا مختص ایران نیست. ترکیه و کشورهای اروپایی که مانند ما درگیر جنگ نشده‌اند، به محض کوچک‌ترین مشکل امنیتی اینترنت بین‌الملل مردم خود را قطع می‌کنند.»
+https://iranintl.com/202605131903
+</div>
+
+## IranIntlTV — post 336939
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336939_1778659975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهبران آمریکا و چین در حالی در پکن دیدار می‌کنند که پیامدهای جنگ ایران و حمایت‌های پکن از جمهوری اسلامی بر این نشست سایه انداخته است. آیا دو طرف در مورد ایران تعاملاتی خواهند کرد؟
+
+گزارش توماج طاهباز، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336937
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336937" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | چهارشنبه ۲۳ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336936
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336936_1778659978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«محمد نوری» نوجوان ۱۷ ساله اهل قم، ۱۲ دی‌ماه در جریان یورش نیروهای سرکوبگر خامنه‌ای به معترضان در میدان توحید این شهر، هدف شلیک مستقیم قرار گرفت و جان باخت. نامش در حافظه‌ این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336935
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336935_1778659980.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای ارسال‌شده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان سه‌شنبه ۲۲ اردیبهشت‌ماه در اعتراض به اعدام‌های جمهوری اسلامی، در شهر هانوفر پرفورمنس اعتراضی برگزار کردند.
+</div>
+
+## IranIntlTV — post 336934
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336934_1778659983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا شهبازی، مجری صداوسیمای جمهوری اسلامی، در واکنش به مقایسه‌ای که برخی شهروندان میان وضعیت اینترنت در ایران با اینترنت پرسرعت در افغانستان و آغاز استفاده از کارت‌های اعتباری بین‌المللی در سوریه انجام دادند، گفت: «اگر این چیزها برایتان مهم است، بروید در افغانستان و سوریه زندگی کنید.»
+
+گفت‌وگو با رضا حاجی‌حسینی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 336933
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336933_1778659985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمایندگان کنگره آمریکا در نامه‌ای دوحزبی از دولت بریتانیا خواستند روند به‌رسمیت شناختن سپاه پاسداران به‌عنوان یک سازمان تروریستی را تسریع کند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336932
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336932_1778659988.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر حمیدی، متخصص امنیت ملی، گفت تهران برای پکن یک متحد ایدئولوژیک نیست و چین از جمهوری اسلامی در روابط خود با ایالات متحده به‌عنوان یک کارت راهبردی استفاده می‌کند. او تاکید کرد چین حاضر نخواهد شد به‌خاطر جمهوری اسلامی وارد رویارویی خصمانه با آمریکا شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336931
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336931_1778659990.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت کشور کویت اعلام کرد ۴ عضو سپاه پاسداران را هنگام تلاش برای ورود دریایی به این کشور بازداشت کرده است. وزارت خارجه کویت نیز اعلام کرد در همین رابطه، سفیر جمهوری اسلامی را احضار کرده است.
+
+تروسکه صادقی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336929
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336929_1778659992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استرالیا هم‌زمان با افزایش تنش‌ها در خاورمیانه، از آغاز یک مشارکت نظامی تازه برای حفاظت از حریم هوایی و امنیت کشتیرانی در منطقه خبر داد. وزیر دفاع استرالیا گفت اعزام هواپیمای پیشرفته «آواکس» می‌تواند به تضمین آزادی کشتیرانی در تنگه هرمز و امنیت تجارت بین‌المللی کمک کند.
+
+علیرضا محبی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 336928
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336928_1778659995.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۲۳ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 336927
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336927_1778659996.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، اعلام کرد حکم اعدام احسان افرشته، زندانی سیاسی، به اتهام «جاسوسی و همکاری اطلاعاتی به نفع اسرائیل» اجرا شده است.
+
+احسان افرشته، متولد ۱۳۷۲ و اهل اصفهان، دانش‌آموخته کارشناسی ارشد مهندسی عمران و متخصص شبکه و فناوری اطلاعات بود. او اوایل سال ۱۴۰۳، پس از بازگشت از ترکیه به ایران، از سوی نیروهای امنیتی بازداشت شد.
+
+او چندین ماه در سلول انفرادی بازداشتگاه‌های امنیتی تحت بازجویی و فشار روانی قرار داشت و در مهر همان سال به بند عمومی زندان اوین منتقل شد.
+
+کانون حقوق بشر ایران پیشتر اعلام کرده بود که اتهام «جاسوسی برای اسرائیل» علیه احسان افرشته بر پایه اعترافات اجباری تحت شکنجه طرح شده و هیچ مدرک معتبری در پرونده وجود ندارد.
+https://iranintl.com/202605131420
+</div>
+
+## IranIntlTV — post 336926
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336926_1778659997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادستانی آمریکا اعلام کرد شارون گوهری، شهروند ایرانی-آمریکایی، در دادگاه بروکلین به اتهام قاچاق غیرقانونی افراد به آمریکا و دریافت محتوای حاوی سوءاستفاده جنسی از کودکان اعتراف کرده است.
+
+بر اساس این پرونده، او با دریافت پول از اتباع ایرانی، قاچاق غیرقانونی به آمریکا را از مسیرهایی از جمله مکزیک سازماندهی کرده و ورود دست‌کم یک فرد مرتبط با سپاه پاسداران را نیز تسهیل کرده است.
+
+مقام‌های فدرال آمریکا می‌گویند در تحقیقات، ویدیوهای حاوی آزار کودکان خردسال و تصاویر تعقیب پنهانی زنان در شهر نیویورک نیز در دستگاه‌های متهم کشف شده است.
+
+گوهری در صورت محکومیت با حداقل پنج سال و حداکثر ۲۰ سال زندان برای اتهام محتوای سوءاستفاده جنسی از کودک و همچنین تا ۱۰ سال زندان برای قاچاق انسان روبه‌رو است.
+https://iranintl.com/202605134047
+</div>
+
+## Persian_Trend_Official — post 14036
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14036_1778659998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 اینترنت پرسرعت و پایدار،
+💰 قیمت هر گیگ ۲۵۰ تومن!
+🎁 تخفیف ویژه: ۱۰٪ تخفیف اختصاصی برای اعضای پرشین ترند
+⚡ پایداری بالا: کمترین قطعی ممکن در بدترین شرایط
+🛡️ تضمین کیفیت: پشتیبانی ۲۴ ساعته + گارانتی بازگشت وجه
+
+🛒 جهت خرید و مشاوره پیام دهید:
+
+🆔 @shayan1057
+
+🆔 @shayan1057
+
+🆔 @shayan1057
+</div>
+
+## Persian_Trend_Official — post 14035
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14035_1778659999.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شات گان اون هم با لوله کروم که زیر نور آفتاب طوری برق میزنه که از یک کیلومتری دیده میشه. تو آمریکا حتی غیر نظامی هایی که عشق اسلحه هستن و سرشون در میاد هم اگر اسلحه با لوله کروم بخری مسخرت میکنن میگن باربی جواهرآلات جدید خریده!
+
+سپاه روز به روز از یک نیروی نظامی داره به یک باند گانگستری شبیه تر میشه. امروز فردا فرماندهانش هم کلت با بدنه آب طلا خواهند بست.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14034
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14034_1778660000.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیک نیوز در یک کانال مثلا خبری با بیش از چهارصد هزار دنبال کننده در پیام‌رسان بله!
+اگر اینترنت در ایران مثل کره شمالی بود و شبکه های ماهواه ای فارسی زبان وجود نداشتن، آخوندها به مراتب از کره شمالی میتونستن دروغگوتر باشن به شکلی که تا الان نتانیاهو و ترامپ هم اسیر شده بودند !
+خاطرتون هست میگفتن نتانیاهو کشته شده و اسرائیل تصاویرش رو با هوش مصنوعی میسازه !
+
+پ.ن : خدایا ما رو با طرفدارات تنها نزار ...
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14033
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14033_1778660001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سفارت چین در آمریکا چهار خط قرمز پکن را اعلام کرد
+این اعلام در آستانه سفر ترامپ به پکن و دیدار با شی جین‌پینگ مطرح شد:
+▪️ مسئله تایوان
+▪️ دموکراسی و حقوق بشر
+▪️ مسیرها و نظام‌های سیاسی
+▪️ حق توسعه چین
+💢 پیام پکن به واشنگتن روشن است: روی این چهار خط حساب باز نکنید.
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14026
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان افرشته اعدام شد؛
+
+
+بامداد امروز چهارشنبه خبرگزاری میزان وابسته به قوه قضائیه در خبری مدعی شد که احسان افرشته به اتهام جاسوسی برای موساد اعدام شد. جمهوری اسلامی او را جاسوسی توصیف می‌کند که اطلاعات حساس کشور را می‌فروخت.
+
+اما سوالاتی که بی‌پاسخ مانده‌اند:
+
+محاکمه به صورت کامل علنی برگزار نشد
+هیچ وکیل مستقلی امکان دسترسی کامل به پرونده را نداشت
+
+اتهامات صرفاً بر اساس روایت یک‌طرفه دستگاه قضایی مطرح شده
+
+جمهوری اسلامی مدعی است افرشته در نپال توسط موساد آموزش دیده، به سه زبان مسلط شده و با نام سازمانی «جیمز» بیش از ۳۰۰ پیام با افسران اسرائیلی رد و بدل کرده است.
+
+در کشوری که شفافیت قضایی وجود ندارد، مرز میان جاسوس واقعی و قربانی یک پرونده‌سازی را چه کسی می‌تواند تشخیص دهد؟
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 08:31
 ---
 
