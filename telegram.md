@@ -7,6 +7,356 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 03:07
+---
+
+## rodast_omiddana — post 71332
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71332_1778715444.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود بر شما
+الا ساعت ۲:۳۶ دقیقه بامداد هستش ک بهتون پیام میدم
+
+تو اسمان تهران از جنوب به شمال
+پرواز هایی ک فکر میکنم جنگنده هستن  با سرعت بالا در ارتفاعات بالا
+در حال حرکت هستن و از بالای کوه البرز خارج میشن
+
+متاسفانه با گوشی نمیتونم فیلم بگیرم
+چون واضح نیست
+ولی همین الان هرکسی به اسمان نگاه کنه
+با چشم میبینه
+حدودا هر یک دقیقه یدونه با سرعت رد میشه
+تا الان ۸ عدد پراوز رو دیدم
+
+این صحنه هارو
+زمان جنگ
+جنگنده های اسرائیلی رو میدیدم ک به این صورت عملیات انجام میدادن
+</div>
+
+## rodast_omiddana — post 71331
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71331" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈حجم فشرده_ترامپ به پکن نرسیده، رژیم طرح چین را قبول کرد_نام حمله جدید آمریکا به رژیم، چکش سنگین میباشد
+</div>
+
+## rodast_omiddana — post 71329
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71329" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 ترامپ به پکن نرسیده، رژیم طرح چین را قبول کرد_نام حمله جدید آمریکا به رژیم، چکش سنگین میباشد
+</div>
+
+## rodast_omiddana — post 71328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_ترامپ به پکن نرسیده، رژیم طرح چین را قبول کرد_نام حمله جدید آمریکا به رژیم، چکش سنگین میباشد
+</div>
+
+## rodast_omiddana — post 71327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_ترامپ به پکن نرسیده، رژیم طرح چین را قبول کرد_نام حمله جدید آمریکا به رژیم، چکش سنگین میباشد
+</div>
+
+## rodast_omiddana — post 71326
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71326_1778715445.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سواستفاده مرتضی نجفی از کارت شاهزاده و جاویدنام مجیدرضا رهنورد
+</div>
+
+## KiriMohems — post 47475
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47475_1778715446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 رویترز: آمریکا و چین توافق کردن که هیچ کشوری نباید اجازه داشته باشه عوارض حمل و نقل در تنگه هرمز رو دریافت کنه و بقیه رو تیغ بزنه.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47474
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47474_1778715447.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن😍
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار💵
+A23🅰
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## KiriMohems — post 47473
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47473_1778715448.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امارات : کصشعر تفت ندید ، نتانیاهو چه گوهیه که بخواد بیاد تو مملکت ما؟؟ اصلا اینو و رئیس موساد وسط جنگ با ایران نیومدن تو امارات
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251534
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251534_1778715449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+✖️| با باخت امشب بارسلونا مقابل آلاوز فرصت قهرمانی با 100 امتیاز از دست فلیک و شاگردان پرید @SportBaadNews
+</div>
+
+## SportBaadNews — post 251532
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251532_1778715449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی تاج: معین قراره برای تیم ملی آهنگ بخونه @SportBaadNews
+</div>
+
+## SportBaadNews — post 251531
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251531_1778715450.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🏆| اینترمیلان هم امشب با برد 2-0 مقابل دشمن چند دهه گذشته خودش یعنی لاتزیو با گل های تورام و لائوتارو مارتنیز تونست بعد اینکه قهرمان اسکودتو شد قهرمانی کوپا ایتالیا رو هم از آن خودش کنه @SportBaadNews
+</div>
+
+## SportBaadNews — post 251530
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251530_1778715451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+✖️| با باخت امشب بارسلونا مقابل آلاوز فرصت قهرمانی با 100 امتیاز از دست فلیک و شاگردان پرید @SportBaadNews
+</div>
+
+## SportBaadNews — post 251529
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251529_1778715451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚪️ خبرنگار خطاب به بنزما: کریم، خیلی جات تو رئال خالیه و دلتنگتیم.
+
+
+⚽️
+🔵 بنزما: منم همینطور، منم همینطور
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337081
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337081_1778715452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی از برگزاری رزمایش پنج‌روزه سپاه تهران بزرگ با محوریت مقابله با عملیات «هلی‌برن» نیروهای متخاصم خبر دادند.
+در تصاویر منتشرشده، نیروهای پیاده با سلاح‌های سبک، نیمه‌سنگین و پهپاد به اهداف فرضی، همچون تصویر پارچه‌ای یک بالگرد، شلیک می‌کنند.
+این رزمایش پس از ورود بالگردهای بلک‌هاوک و هواپیمای سوخت‌رسان آمریکا به خاک ایران، در جریان عملیات جست‌وجوی خلبان اف-۱۵، برگزار شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337080
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337080_1778715453.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موج تازهٔ اعدام جوانان نخبه؛
+احسان افرشته با اتهام «جاسوسی» اعدام شد
+
+جمهوری اسلامی بامداد چهارشنبه حکم اعدام احسان افرشته، زندانی سیاسی متهم به «جاسوسی برای اسرائیل»، را اجرا کرد؛ پرونده‌ای که مانند بسیاری از پرونده‌های امنیتی مشابه، بدون انتشار سند و مدرک مستقل به پایان رسید.
+
+نهادهای حقوق بشری پیش‌تر هشدار داده بودند که اتهامات مطرح‌شده علیه او بر پایهٔ اعترافات اجباری و تحت فشار مطرح شده است.
+
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337079
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337079_1778715454.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد از آلمان: کسی که پول دارو ندارد، آب ندارد، برق ندارد، او هم اعدامی جمهوری اسلامی است
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337078
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337078_1778715456.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمید از بندرعباس: می‌روم خرید، ولی فقط می‌توانم به اندازهٔ جیبم خرید کنم، نه نیازم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337077
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337077_1778715457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فریبرز از خوزستان: مردمی که اینترنت ندارند، چه کار کنند؟ ایرانی‌های خارج از کشور کمک کنند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337076
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337076" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: ایران کارت بازی دیگران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337075
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337075_1778715459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرامرز از استکهلم: به ترامپ توجه نکنید؛ او در حال جنگ سرد است؛ما باید مسیر خودمان را برویم
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337074
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337074_1778715461.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد از انگلستان: مردم ایران صبرشان استراتژیک و تاریخی است و می‌دانند کی باید به آب بزنند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/HsShW7razys
+@iranintltv
+</div>
+
+## IranIntlTV — post 337073
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337073_1778715463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از مقام‌های آمریکایی گزارش داد شرکت‌های چینی با جمهوری اسلامی درباره فروش سلاح در حال گفت‌وگو بوده‌اند و قصد داشته‌اند این تسلیحات را از طریق کشورهای دیگر ارسال کنند تا منشا کمک نظامی پنهان بماند.
+مقام‌های آمریکایی گفتند دست‌کم یکی از کشورهای ثالث در آفریقا قرار دارد، اما مشخص نیست آیا محموله‌ای به آن کشور رسیده است یا نه.
+مقام‌هایی که در جریان این اطلاعات قرار گرفته‌اند، درباره اینکه آیا سلاح‌ها پیش‌تر به کشورهای ثالث ارسال شده‌اند یا نه، به جمع‌بندی‌های متفاوتی رسیده‌اند. با این حال، از زمان آغاز جنگ کنونی علیه جمهوری اسلامی، به نظر نمی‌رسد هیچ سلاح چینی در میدان نبرد علیه نیروهای آمریکایی یا اسرائیلی استفاده شده باشد.
+هنوز مشخص نیست چه تعداد سلاح منتقل شده یا مقام‌های چینی تا چه اندازه این فروش‌ها را تایید کرده‌اند.
+
+https://iranintl.com/202605134264
+</div>
+
+## IranIntlTV — post 337072
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337072_1778715464.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ علیه جمهوری اسلامی به‌صورت محرمانه به امارات سفر و با محمد بن زاید دیدار کرده است. رادیو ملی اسرائیل نیز گزارش داد این نخستین بار نیست که نتانیاهو به امارات رفته، اما برای نخستین‌بار است که این موضوع به‌صورت رسمی تایید می‌شود.
+
+گفت‌وگو با بن سبطی، پژوهشگر ایران و اسرائیل
+@iranintltv
+</div>
+
+## IranIntlTV — post 337071
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337071_1778715466.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی موج جدید بیکاری در ایران در سایه جنگ، سرکوب و قطعی اینترنت، آمار رسمی از بیش از ۲۰۰ هزار متقاضی دریافت بیمه بیکاری خبر می‌دهد. مسعود پزشکیان پیش‌تر در واکنش به تورم و گرانی گفته بود کشور به‌شدت به صرفه‌جویی نیاز دارد.
+
+گفت‌وگو با جمشید اسدی، اقتصاددان
+@iranintltv
+</div>
+
+## IranIntlTV — post 337070
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337070_1778715468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها حاکی است در کمتر از یک ماه، دست‌کم ۱۲ هسته مرتبط با تهران در کویت، بحرین، امارات و قطر شناسایی و متلاشی شده‌اند.
+مقام‌های امنیتی این کشورها می‌گویند ده‌ها نفر به اتهام جاسوسی، پول‌شویی، طراحی ترور و همکاری با سپاه و حزب‌الله بازداشت شده‌اند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 01:55
 ---
 
