@@ -7,6 +7,360 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 00:33
+---
+
+## rodast_omiddana — post 71324
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*ترامپ به پکن نرسیده، رژیم طرح چین را قبول کرد
+*نام حمله جدید آمریکا به رژیم، چکش سنگین میباشد
+لینک یوتیوب:
+https://www.youtube.com/watch?v=7O9q8w35s2U
+</div>
+
+## KiriMohems — post 47471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار سی‌بی‌اس مدعی شد: پیشرفت‌هایی در مذاکرات با ایران دیده می‌شود
+
+پیشرفت تو کون دروغ گو
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47470
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47470_1778706223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی ، صبح امروز #محمد_عباسی معترض ۶۵ ساله اهل بروجرد لرستان رو با اتهام قتل یه مأمور نیروی انتظامی تو اعتراضات شهر ملارد اعدام کرد و دخترش #فاطمه_عباسی ۲۵ ساله هم با اتهام شرکت تو اعتراضات و دست داشتن تو قتل این مأمور، به ۲۵ سال حبس محکوم شد.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47469
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47469_1778706224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدرقه تیم ملی فوتبال جمهوری اسلامی برای حضور به جام جهانی 2026 آمریکا، با شعار مرگ بر آمریکا🤣
+
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک تایمز: شرکت‌ های چینی به دنبال فروش سلاح به جمهوری اسلامی هستن و قصد دارن اونها رو از طریق کشورهای دیگر ارسال کنن تا منبع خودشون لو نره.
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری/سوپراپلیکیشن ایتا اعلام کرد امکان ارسال سوپر کم حجم تا ۲۰ مگابایت مجدداً برای همه کاربران فراهم شده است.
+
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بگید رئال بیاد این آلاوز خیلی قویه
+</div>
+
+## SportBaadNews — post 251517
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بارسا گل اول رو خورد از آلاوز
+</div>
+
+## SportBaadNews — post 251516
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251516_1778706227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ جوزپ پدرول: لامین یامال رو دوست داری؟ 
+🔴 پرز: بله البته، چطور ممکنه دوستش نداشته باشم؟ 
+🔵 جوزپ پدرول: خب، میتونی باهاش قرارداد ببندی. 
+🔴 پرز: نه، من... نمیتونم باهاش قرارداد ببندم... نه، نه... چون الان خودمون هم با بارسلونا تو وضعیت (متشنج) هستیم، وای…
+</div>
+
+## SportBaadNews — post 251515
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251515_1778706228.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ پرز: مورینیو میاد؟ الان وقتش نیست... اینکه رئیس همیشه مربی رو انتخاب میکنه درست نیست. مورینیو با ما بود، سطح رقابتی تیم رو بالا برد، و بعدش ما تو 10 سال 6 تا لیگ قهرمانان بردیم. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251514
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251514_1778706229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدرقه تیم ملی فوتبال جمهوری اسلامی برای حضور به جام جهانی 2026 آمریکا، با شعار مرگ بر آمریکا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251513
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251513_1778706231.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ پرز: مورینیو میاد؟ الان وقتش نیست... اینکه رئیس همیشه مربی رو انتخاب میکنه درست نیست. مورینیو با ما بود، سطح رقابتی تیم رو بالا برد، و بعدش ما تو 10 سال 6 تا لیگ قهرمانان بردیم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فلورنتینو پرز دو روز اخیر: @SportBadTweet | «Ray»
+</div>
+
+## SportBaadNews — post 251511
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251511_1778706232.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پرز:‌ میدانیم کی اخبار دعوای فده و شوامنی رو پخش کرده و بزودی خواهید فهمید. هر سال دعوا بین دو بازیکن هست و این طبیعیه اما خوب شد ما جاسوس تیم رو پیدا کردیم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251510
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251510_1778706233.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️ بیانیه رسمی باشگاه بارسلونا: در مورد کنفرانس خبری‌ای که فلورنتینو پرز، رئیس رئال مادرید، برگزار کرده، می‌خوایم بگیم که دپارتمان حقوقی‌مون داره با دقت حرف‌ها و اتهام‌هایی که زده رو بررسی میکنه. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251509
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251509_1778706233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرز: امسال 16 تا 18 امتیاز ازمون گرفتن.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337058
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337058_1778706234.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه امارات متحده عربی اعلام کرد گزارش‌های منتشرشده درباره سفر بنیامین نتانیاهو، نخست‌وزیر اسرائیل، به این کشور صحت ندارد.
+پیش‌تر دفتر نخست‌وزیری اسرائیل اعلام کرد بنیامین نتانیاهو در جریان جنگ آمریکا و اسرائیل با جمهوری اسلامی، به‌طور مخفیانه به امارات متحده عربی سفر کرده و در این سفر با محمد بن زاید آل نهیان، رییس امارات متحده عربی، دیدار کرد.
+وزارت خارجه امارات متحده عربی اعلام کرد روابط این کشور با اسرائیل علنی است و در چارچوب توافق‌نامه‌های ابراهیم که به‌طور عمومی اعلام شده‌اند، برقرار شده است.
+وزارت خارجه امارات متحده عربی افزود این روابط مبتنی بر محرمانگی نیست و هرگونه ادعا درباره سفرها یا ترتیبات اعلام‌نشده «بی‌اساس» است، مگر آن‌که به‌صورت رسمی از سوی امارات متحده عربی اعلام شود.
+عباس عراقچی در واکنش به سفر نتانیاهو به امارات متحده عربی در زمان جنگ، نوشت: همکاری با اسرائیل در این مسیر غیرقابل بخشش است. افرادی که برای ایجاد اختلاف با اسرائیل همکاری می‌کنند، پاسخگو خواهند شد.
+https://iranintl.com/202605138383
+</div>
+
+## IranIntlTV — post 337057
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فدراسیون فوتبال ایران در بحران مالی؛ گوگل جمینای حامی تیم‌های ملی فوتبال عراق و مراکش شد
+
+همزمان با تحریم‌های بانکی و مشکلات مالی فدراسیون فوتبال ایران، جمینای (هوش مصنوعی شرکت گوگل) اعلام کرد حامی مالی و فناوری تیم‌های ملی عراق و مراکش در جام جهانی ٢٠٢۶ شده است. گوگل گفته قصد دارد با این قرارداد اسپانسری، «فاصله میان تیم‌ها و هواداران جهانی آنها را کاهش دهد.»
+
+در این بیانیه آمده است: «ما با هیجان اعلام می‌کنیم که گوگل جمینای به عنوان حامی رسمی فناوری تیم‌های ملی فوتبال عراق و مراکش انتخاب شده است. این حمایت با بهره‌گیری از فناوری پیشرفته هوش مصنوعی ما، فرهنگ غنی ورزشی منطقه را گرامی می‌دارد و تجربه هواداران را متحول خواهد کرد.»
+این همکاری بر استفاده از هوش مصنوعی برای تولید محتوای فراگیر و فراهم کردن شیوه‌های نوآورانه تعامل هواداران با بازیکنان و تیم‌های محبوبشان متمرکز است.
+
+گوگل جمینای گفته در همکاری با فدراسیون‌های فوتبال، طی سه ماه آینده مجموعه‌ای از برنامه‌های هوادارمحور اجرا خواهد شد: «هواداران می‌توانند با استفاده از مدل تبدیل متن به تصویر جمینی موسوم به «نانو بنانا» تصاویر تشویقی اختصاصی خلق کنند یا با مدل تبدیل متن به موسیقی «لایریا» سرودهای تیمی بسازند و حمایت خود را به شکلی زنده تجربه کنند؛ گویی در زمین حضور دارند.»
+
+همچنین هواداران می‌توانند از گوگل جمینی برای توضیح قوانین پیچیده فوتبال، تحلیل عملکرد مسابقات و پیش‌بینی تیم‌های پیروز استفاده کنند.
+همکاری مالی و فناوری جمینای با فدراسیون‌های فوتبال عراق و مراکش درحالی است که روز گذشته فارس، رسانه وابسته به سپاه پاسداران، گزارش داد تیم ملی فوتبال برای اجرای برنامه آماده‌سازی خود در ترکیه، به تزریق فوری منابع مالی نیاز دارد؛ منابعی که پیش‌تر وعده پرداخت آن داده شده بود.
+🔗وب‌سایت ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337056
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337056_1778706235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش الحدث، دو پهپاد انتحاری مقر حزب دموکرات کردستان ایران در شمال اربیل عراق را هدف قرار دادند.
+
+همزمان رویترز به نقل از منابع امنیتی گزارش داد در این حمله پهپادی یک انبار سلاح و مهمات در داخل این اردوگاه هدف قرار گرفته است.
+https://iranintl.com/202605131072
+</div>
+
+## IranIntlTV — post 337055
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337055" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: سرنوشت جمهوری‌اسلامی، موضوع گفتگوهای ترامپ در چین
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337054
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337054_1778706236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در واکنش به تورم و گرانی‌های بی‌سابقه، از وزارت جهاد کشاورزی خواست برای کنترل قیمت‌ها همه توانش را به کار گیرد. او پیشتر گفته بود، کشور به شدت به صرفه‌جویی نیاز دارد.
+
+گفت‌وگو با سیامک جوادی ، مدرس و پژوهشگر اقتصاد مالی در دانشگاه تگزاس
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337053
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337053_1778706238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور آمریکا، در کاخ سفید درباره مذاکرات واشینگتن و تهران گفت این گفت‌وگوها بسیار حساس است. او افزود صبح چهارشنبه مدت قابل‌توجهی با جرد کوشنر و استیو ویتکاف و همچنین با شماری از متحدان آمریکا در جهان عرب صحبت کرده و «فکر می‌کنم روند مذاکرات در حال پیشرفت است.»
+ونس تاکید کرد پرسش اصلی این است که آیا این پیشرفت خط قرمز رییس‌جمهور را تامین می‌کند یا نه، این خط قرمز بسیار ساده است؛ ایجاد تضمین‌ها و سازوکارهایی که مانع دستیابی تهران به سلاح هسته‌ای شود.
+او افزود از زمان ترک پاکستان پیشرفت قابل‌توجهی حاصل شده و هدف نهایی این است که دولت بتواند با اطمینان به مردم آمریکا بگوید دیگر نیازی نیست نگران دسترسی این رژیم بسیار خطرناک به خطرناک‌ترین سلاح‌های جهان باشند.
+ونس اضافه کرد: رییس‌جمهور فعلا ما را در مسیر دیپلماسی قرار داده و تمرکز من نیز بر همین مسیر است.
+https://iranintl.com/202605130999
+</div>
+
+## IranIntlTV — post 337052
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337052_1778706239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد بحرین، کویت، قطر و امارات متحده عربی برای حضور در جلسه بعدی ناتو در ترکیه دعوت شده‌اند. بلومبرگ نوشته دعوت‌ها در ادامه تلاش‌های ناتو برای مقابله با تهدیدهای جمهوری اسلامی انجام شده است.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی در موسسه واشینگتن
+@iranintltv
+</div>
+
+## IranIntlTV — post 337051
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337051_1778706240.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻همزمان با تحریم‌های بانکی و مشکلات مالی فدراسیون فوتبال ایران، جمینای (هوش مصنوعی شرکت گوگل) اعلام کرد حامی مالی و فناوری تیم‌های ملی عراق و مراکش در جام جهانی ٢٠٢۶ شده است. گوگل گفته قصد دارد با این قرارداد اسپانسری، «فاصله میان تیم‌ها و هواداران جهانی آنها را کاهش دهد.»
+
+🔹در این بیانیه آمده است: «ما با هیجان اعلام می‌کنیم که گوگل جمینای به عنوان حامی رسمی فناوری تیم‌های ملی فوتبال عراق و مراکش انتخاب شده است. این حمایت با بهره‌گیری از فناوری پیشرفته هوش مصنوعی ما، فرهنگ غنی ورزشی منطقه را گرامی می‌دارد و تجربه هواداران را متحول خواهد کرد.»
+
+🔹گوگل جمینای گفته در همکاری با فدراسیون‌های فوتبال، طی سه ماه آینده مجموعه‌ای از برنامه‌های هوادارمحور اجرا خواهد شد: «هواداران می‌توانند با استفاده از مدل تبدیل متن به تصویر جمینی موسوم به «نانو بنانا» تصاویر تشویقی اختصاصی خلق کنند یا با مدل تبدیل متن به موسیقی «لایریا» سرودهای تیمی بسازند و حمایت خود را به شکلی زنده تجربه کنند؛ گویی در زمین حضور دارند.»
+
+جزییات بیشتر را اینجا بخوانید.
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 14077
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14077_1778706241.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢امارات متحده عربی دیدار مخفیانه نتانیاهو از ابوظبی در طول جنگ با ایران را تکذیب کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14076
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14076_1778706242.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 انهدام پهپاد انتحاری روسی توسط سرباز اوکراینی در لحظات آخر
+
+ویدئویی منتشر شده که نشان می‌دهد یک سرباز اوکراینی با استفاده از سلاح «آکا-۷۴» موفق می‌شود یک پهپاد انتحاری کواد را تنها لحظاتی پیش از برخورد منهدم کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14075
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14075" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 6.71 مگابایت
+
+اتاق جنگ چهارشنبه 23 اردیبهشت | جمهوری اسلامی ناو امریکایی را تهدید به حمله کرد.
+
+فورمت mp3 همیشگی
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/xKXwDy6wYig?feature=share
+</div>
+
+## Persian_Trend_Official — post 14073
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14073" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 5.1 مگابایت
+
+اتاق جنگ چهارشنبه ۲۳ اردیبهشت | جمهوری اسلامی ناو آمریکایی را تهدید به حمله کرد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/23 22:55
 ---
 
