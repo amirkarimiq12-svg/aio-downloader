@@ -7,6 +7,371 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 01:55
+---
+
+## ChizBergerz — post 46369
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46369_1778711151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عمه جنده ام، گلشیفته
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46367
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت پشم ریزون قیمت ریجستری گوشی‌های آیفون و سامسونگ:
+
++ کیرم تو ناموس زنده و مرده هرچی آخونده با این وضعیتی که ساختن!
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71325
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71325_1778711152.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 رویترز:
+"ایالات متحده و چین توافق کردند که هیچ کشوری نباید اجازه داشته باشد عوارض حمل و نقل در تنگه هرمز را دریافت کند."
+
+چین داره جمهوری اسلامی را مثل پوست خیار میفروشه..
+آماده جنگ بزرگ باشید..
+</div>
+
+## KiriMohems — post 47472
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47472_1778711152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تاج: احتمالا معین موزیک رسمی تیم‌ملی رو بخونه!
+
+#professor
+@KiriMohemSport
+</div>
+
+## SportBaadNews — post 251528
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251528_1778711154.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| پاریس امشب با برد 2-0 تو بازی مقابل لنس برای چهاردهمین بار قهرمان لیگ یک فرانسه شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251526
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251526_1778711156.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🏆| اینترمیلان هم امشب با برد 2-0 مقابل دشمن چند دهه گذشته خودش یعنی لاتزیو با گل های تورام و لائوتارو مارتنیز تونست بعد اینکه قهرمان اسکودتو شد قهرمانی کوپا ایتالیا رو هم از آن خودش کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251525
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251525_1778711157.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| پاریس امشب با برد 2-0 تو بازی مقابل لنس برای چهاردهمین بار قهرمان لیگ یک فرانسه شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251524
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251524_1778711158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ بارسلونا با نتیجه 1-0 به آلاوز باخت @SportBaadNews
+</div>
+
+## SportBaadNews — post 251523
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251523_1778711158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| استیون جرارد: دلم میخواست و امیدوار بودم که ترنت ما رو ترک نکنه. میفهمید و احترام میذارید که هر بازیکنی حرفه‌ی خودش رو داره و میتونه تصمیم خودش رو بگیره، ولی واقعاً جای یه بازیکن مثل ترنت خیلی سخته پر بشه چون سطحش جهانیه. امیدوارم یه روز برگرده به آنفیلد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251522
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251522_1778711159.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی تاج: معین قراره برای تیم ملی آهنگ بخونه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251521
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251521_1778711160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌ ۹۰٪ کاربرا هنوز اشتباه وارد سایت میشن!
+تو جزو اونایی یا میخوای حرفه‌ای عمل کنی؟
+
+
+✅ ورود سریع به وینکوبت فقط با یک کلیک ساده:
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌   نه لینک اضافی
+
+📌   نه سردرگمی
+
+📌   نه اتلاف وقت
+
+📌   مستقیم، سریع، بدون دردسر وارد شو!
+
+⏳   دیر بجنبی، از بقیه عقب می‌مونی.
+
+
+🔗 الان وقتشه مسیر درستو انتخاب کنی:
+
+
+🤖 @Wincobet_bot
+
+
+📌برای تحلیل بازی‌ها و آخرین اخبار سایت جوین بدید:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 251520
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251520_1778711161.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️ پرز: اگه بارسلونا میخواد از من شکایت کنه، بکنه. اصلاً شکایت کنن ببینم چی میشه. دو دهه بهشون پول دادن، حالا تو دادگاه دارن چیزایی میگن که با حقیقت جور درنمیاد. 
+🔴 هفته بعد همه‌چیز مسئله نگریرا رو با مدارکِ همه این سال‌ها ارائه میدیم!! @SportBaadNews
+</div>
+
+## SportBaadNews — post 251519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ بارسلونا با نتیجه 1-0 به آلاوز باخت
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337069
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337069_1778711161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، در گفت‌وگو با فاکس‌نیوز با تاکید بر اینکه حل بحران خاورمیانه به نفع چین است، ابراز امیدواری کرد واشینگتن بتواند پکن را متقاعد کند نقش فعال‌تری در ترغیب جمهوری اسلامی برای کنار گذاشتن اقداماتش در خلیج فارس ایفا کند.
+او گفت: «چینی‌ها کشتی‌هایی دارند که در خلیج فارس گیر افتاده‌اند. یک محموله باری چینی آخر هفته هدف قرار گرفت. مطمئنم جمهوری اسلامی عمدا این کار را نکرد، اما این اتفاق افتاد. به همین دلیل این کشتی‌های چینی آنجا گیر افتاده‌اند.»
+روبیو افزود: «این وضعیت منبع بزرگی از بی‌ثباتی است. بیش از هر نقطه دیگر جهان، آسیا را تهدید به بی‌ثباتی می‌کند، زیرا به شدت به این تنگه‌ها برای انرژی وابسته است.»
+
+https://iranintl.com/202605139871
+</div>
+
+## IranIntlTV — post 337068
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337068_1778711162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «تشکیل ستاد ساماندهی فضای مجازی در عمل یعنی برنامه‌ریزی برای قطع سازمان یافته اینترنت و محدود کردن دسترسی ۹۰ میلیون ایرانی، در حالی که اینترنت ویژه فقط در اختیار حامیان حکومت قرار می‌گیرد. اصطلاحاتی مثل اینترنت پرو، اینترنت طبقاتی، سیم‌کارت سفید یا ناپایداری ارتباط، همگی نام‌های متفاوتی برای همان قطع و کنترل اینترنت هستند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337067
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337067_1778711163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «مجموع تحولات اخیر نشان می‌دهد جمهوری اسلامی به رغم برخی تحرکات تاکتیکی در خلیج فارس با یک شکست راهبردی و امنیتی روبه‌رو شده؛ چون حملاتش باعث شده بسیاری از همسایگان جنوبی به دشمنان فعالش تبدیل شوند. نتیجه این سیاست‌ها، نزدیک‌تر شدن کشورهایی مثل امارات به اسرائیل و باز شدن پای اسرائیل و ناتو به معادلات امنیتی منطقه بوده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337066
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337066" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ خشم انباشتهٔ مردم کی فوران خواهد کرد؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337065
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337065_1778711165.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گمان می‌رود پرونده جنگ با ایران، یکی از محوری‌ترین موضوعات گفتگو میان دونالد ترامپ و شی جین‌پینگ باشد. بنا بر بعضی گزارش‌ها، احتمال می‌رود واشینگتن و پکن، تلاش تازه و مشترکی برای وادار کردن تهران به عقب‌نشینی و پذیرش شروط جدید کنند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337064
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337064_1778711166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: « جمهوری اسلامی، ایران را به کارت بازی دیگران تبدیل کرده است. خیلی از تحلیل‌گران در انتظار تعیین سرنوشت ایران در دیدار ترامپ و رهبر چین هستند. سرنوشت ایران به غزه و لبنان و به جنگ اوکراین و به روابط روسیه و آمریکا و حالا روابط آمریکا و چین گره خورده است. این بلایی است که جمهوری اسلامی بر سر ایران آورده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337063
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337063_1778711168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کی‌یر استارمر، نخست‌وزیر بریتانیا، در مراسم بازگشایی رسمی پارلمان گفت سخنرانی پادشاه رویکردی امیدوارکننده‌تر به تحولات ایران و جنگ در دو جبهه ارائه می‌دهد و آن را فرصتی برای تغییر وضع موجود و ساختن بریتانیایی قوی‌تر و عادلانه‌تر دانست؛ مسیری که به گفته او باید مبنای آینده کشور قرار گیرد.
+
+چارلز سوم، پادشاه بریتانیا، روز چهارشنبه ۲۳ اردیبهشت در این مراسم سخنرانی کرد. این مراسم به‌منزله آغاز رسمی فعالیت‌های دوره جدید پارلمان بریتانیا است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337062
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337062_1778711169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد بارگیری نفت از پایانه اصلی صادرات نفت ایران در جزیره خارک متوقف شده است.
+
+بر اساس این گزارش، ظرفیت مخازن ذخیره نفت نیز در حال پر شدن است و در صورت تکمیل ظرفیت، ایران ممکن است ناچار به کاهش تولید نفت شود.
+
+گفت‌وگو با ایمان ناصری، مشاور بازار نفت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337061
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337061_1778711171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/SepDBES4ITI
+@iranintltv
+</div>
+
+## IranIntlTV — post 337060
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337060_1778711173.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/SepDBES4ITI
+@iranintltv
+</div>
+
+## IranIntlTV — post 337059
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337059" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: تجمعات حکومتی شبانه، بلای جان نظام و مجتبی
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 14081
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14081_1778711175.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14080
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14080_1778711177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به این وضعیت اقتصادی می‌گویید امنیت؟ امنیت کجاست وقتی یک پدر شرمنده زن و بچه‌اش است چون سفره‌اش خالی مانده و حقوقش حتی کفاف اجاره خانه را نمی‌دهد؟
+
+امنیت کجاست وقتی جوانی نمی‌تواند یک متر زمین بخرد و رؤیاهایش زیر بار تورم و فساد دفن شده است؟ امنیت کجاست وقتی جوانی عمر و آرزوهایش را در صف مهاجرت یا بیکاری از دست می‌دهد؟
+
+امنیت اجتماعی بدون رفاه پایدار وجود ندارد. جامعه‌ای که نرخ بیکاری جوانانش بالاست تورم افسارگسیخته دارد و سرمایه انسانی‌اش مهاجرت می‌کند در واقع در وضعیت ناامنی ساختاری است. شما نام این فروپاشی را امنیت گذاشته‌اید. این تحریف واژه‌هاست واژه‌ها را از معنا تهی کرده‌اید تا واقعیت تلخ را بپوشانید.
+
+
+امنیت واقعی همان چیزی است که مردم در همه‌پرسی انتخاب خواهند کرد آزادی، اینترنت، اقتصاد سالم، و زندگی انسانی. امنیت یعنی امید به آینده نه ترس از فردا.
+
+امنیتی که شما از آن دم می‌زنید، در واقع پوششی است برای فقر، سرکوب، و بی‌عدالتی. امنیت یعنی آرامش روانی، یعنی آینده‌ای قابل پیش‌بینی یعنی فرصت رشد و شکوفایی. اما آنچه امروز مردم ایران تجربه می‌کنند چیزی جز اضطراب فروپاشی اقتصادی و نابودی امید نیست.
+
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو: من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14078
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14078_1778711178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بنیامین نتانیاهو:
+
+من می‌خواهم دانش‌آموزان اسرائیلی در استفاده از ChatGPT، Claude و پیشرفته‌ترین ابزارهای هوش مصنوعی جهان - و حتی قبل از فارغ‌التحصیلی از دبیرستان - بهترین باشند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 00:33
 ---
 
