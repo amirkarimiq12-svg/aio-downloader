@@ -7,6 +7,161 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 03:15
+---
+
+## rodast_omiddana — post 71353
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71353" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_چین برای پایان رژیم به آمریکا چراغ سبز داد_ترامپ برگرده فورا در مورد رژیم تصمیم میگیرد
+</div>
+
+## rodast_omiddana — post 71351
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71351" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈چین برای پایان رژیم به آمریکا چراغ سبز داد_ترامپ برگرده فورا در مورد رژیم تصمیم میگیرد
+</div>
+
+## rodast_omiddana — post 71350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ چین برای پایان رژیم به آمریکا چراغ سبز داد_ترامپ برگرده فورا در مورد رژیم تصمیم میگیرد
+</div>
+
+## KiriMohems — post 47513
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47513_1778802305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهبران ۲۶ کشور خواستار بازگشت آزادی دریانوردی و کص چرخ زنی در تنگه هرمز شدند
+
+رهبران ۲۶ کشور روز پنجشنبه با انتشار بیانیه‌ای خواستار اتمام این وضعیت کیری و بازگشت وضعیت عادی دریانوردی در تنگه هرمز شدند. این کشورها، از جمله بریتانیا، فرانسه، آلمان، ژاپن، قطر و بحرین، اعلام کردند از ظرفیت‌های دیپلماتیک، اقتصادی و نظامی برای حمایت از آزادی ناوبری استفاده می‌کنند.
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47512
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47512_1778802306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن😍
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار💵
+A24🅰
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## SportBaadNews — post 251610
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251610_1778802307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یامال در مسیر نیمار
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیدنی سوئینی: اگه فوتبالیست بودم رونالدو رو الگو خودم قرار میدادم، اون بهترین فوتبالیست جهانه @SportBadTweet | سگ بانو
+</div>
+
+## SportBaadNews — post 251608
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251608_1778802309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پسر گرت بیل هستند:
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251607
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251607_1778802310.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع به سایت وینکوبت
+
+
+✅ کاربران عزیز، برای ورود آسان و بدون دردسر به سایت وینکوبت، می‌توانید از ربات رسمی استفاده کنید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+🔹 ورود سریع و مستقیم به سایت
+🔹 بدون نیاز به جستجوی لینک‌های مختلف
+🔹 دسترسی راحت از داخل تلگرام
+
+
+📌  همه چیز به ساده‌ترین شکل ممکن داخل ربات برای شما کاربران محترم فراهم شده.
+
+
+🔗 اگر دنبال یه راه مطمئن و سریع برای ورود هستید، ربات وینکوبت بهترین انتخاب شماست:
+
+
+🤖 @Wincobet_bot
+
+
+🔗 برای دریافت تحلیل بازی‌ها و اطلاع از آخرین بروزرسانی‌ها، به کانال رسمی وینکوبت بپیوندید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 337234
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337234_1778802311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تد باد، سناتور جمهوری‌خواه آمریکا، در حساب کاربری خود در ایکس نوشت جمهوری اسلامی بیش از ۴۷ سال به آمریکا و متحدانش حمله کرده و شهروندان آمریکایی را کشته است.
+تد باد افزود در حالی که روسای‌جمهوری پیشین این موضوع را به تعویق می‌انداختند، دونالد ترامپ، رییس‌جمهوری آمریکا، در حال انجام کاری است که آن‌ها حاضر به انجامش نبودند.
+او در عین حال تاکید کرد که آمریکا اکنون «در مسیری قرار گرفته که می‌تواند تهدید موشک‌های بالستیک و برنامه غنی‌سازی هسته‌ای جمهوری اسلامی را برای همیشه از بین ببرد.»
+
+https://iranintl.com/202605147923
+</div>
+
+## IranIntlTV — post 337233
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337233_1778802312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها حاکی است یک کشتی لنگر انداخته در نزدیکی بندر فجیره امارات متحده عربی توسط افراد ناشناس سوار شده و به سمت آب‌های ایران هدایت شده است.
+به گزارش رویترز، شرکت امنیت دریایی وندگارد گفته است این اقدام احتمالا از سوی نیروهای ایرانی انجام شده و پیش از آن نیز نهاد دریایی «یو‌کی‌ام‌تی‌او»از ورود افراد غیرمجاز به این کشتی خبر داده بود.
+هم‌زمان منابع دریایی از افزایش تحرکات در تنگه هرمز خبر داده‌اند. بر اساس گزارش‌ها، چندین کشتی از جمله نفتکش‌ها و کشتی‌های تجاری در روزهای اخیر با هماهنگی‌های محدود از این مسیر عبور کرده‌اند، در حالی که پیش‌تر تعداد عبور روزانه به شکل محسوسی کاهش یافته بود.
+همچنین گزارش شده است نیروهای سپاه پاسداران اعلام کرده‌اند شمار بیشتری از شناورها در روزهای اخیر از تنگه هرمز عبور کرده‌اند؛ موضوعی که نشان‌دهنده تغییر تدریجی در وضعیت عبور و مرور دریایی در این آبراه راهبردی است.
+
+https://iranintl.com/202605147292
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 02:17
 ---
 
