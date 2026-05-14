@@ -7,6 +7,578 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/24 15:47
+---
+
+## ChizBergerz — post 46378
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46378_1778761032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوشی اندرویدی Trump Mobile پس از یک سال تأخیر با قیمت ۴۹۹ دلار عرضه شد. این دستگاه دارای چیپست سری ۷ اسنپدراگون، ۱۲ گیگابایت رم، ۵۱۲ گیگابایت حافظه و دوربین سه‌گانه ۵۰ مگاپیکسلی است. این محصول چینی در آمریکا مونتاژ نهایی شده است!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46377
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46377_1778761034.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به وقت تراپی🥰
+
+پلیس شریف دانمارک به طرفدارای تروریسم حمله میکنه و مثل سگ میزنتشون: 🔥🔥
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46376
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46376_1778761035.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عالیییییی جواب این خرزشی مادرجنده رو داد😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46375
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46375" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46374
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46374_1778761036.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+re24
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46373
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46373_1778761037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا نمیفهمم چرا اینقدر در حق تلگرام کم لطفی میشه، هیچ شکی درش نیست که تلگرام بهترین پلتفرم جهانه و تمام!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46372
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46372_1778761037.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#ارسالی
+دیشب داداش ۱۲ سالم موقع سکس چت تو بله خوابش برده بود:
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71339
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71339_1778761038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک مقام کاخ سفید گفت که ترامپ و رییس‌جمهور چین در دیدار خود توافق داشتند که جمهوری اسلامی هرگز نباید به سلاح هسته‌ای دست یابد و تنگه هرمز باید باز باشد
+</div>
+
+## rodast_omiddana — post 71338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 شهبازی میگه اگر اینترنت پرسرعت و مسترکارت میخواید بروید افغانستان و سوریه
+لینک یوتیوب:
+https://www.youtube.com/watch?v=FBYzlhIAR5M
+</div>
+
+## KiriMohems — post 47491
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47491_1778761038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زنا و سیما: میخواییم محرم امسال یه سریال خفن به اسم مختارنامه از شبکه آی فیلم پخش کنیم.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴برنامه عشق و حال و چال کردن کص موش رو بچینید چون یارانه اردیبهشت دهک‌های یک تا ۳ واریز شد
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47489
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47489_1778761038.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلان ماسک سر میز شام تو چین
+
+باز کسخل شده.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47488
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47488_1778761039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بلونده خطاب به رئیس‌جمهور چین:
+
+داداشم تو رهبر بزرگی هستی؛ من اینو به همه گفتم
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47487
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ کله سکسی : لاس های مکررش با شی جین‌پینگ «سازنده» بوده و برای هر دو کشور مفید بود
+
+ترامپ به‌طور رسمی از شی جین‌پینگ دعوت کرد که در ۲۴ سپتامبر به آمریکا و کاخ سفید سفر کنه تا یه لواط مشتی باهم داشته باشن
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47486
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47486_1778761040.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جدیدا قیمت غذا توی ایران رو، روی تابلوی صرافی مینویسن تا بتونن به صورت لحظه ای آپدیت کنن.
+
++ یه پرس شیشلیک 2 میلیون و 600 هزار ناقابل!
+
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47485
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47485_1778761041.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!⛔
+
+👍دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+
+🔔کانال دربی بت :r24🅰
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## SportBaadNews — post 251569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینترنت ندارد، روز هفتاد و ششم ...
+ایران اینترنت ندارد، روز هفتاد و ششم ...
+ایران اینترنت ندارد، روز هفتاد و ششم ...
+ایران اینترنت ندارد، روز هفتاد و ششم ...
+ایران اینترنت ندارد، روز هفتاد و ششم ...
+ایران اینترنت ندارد، روز هفتاد و ششم ...
+</div>
+
+## SportBaadNews — post 251568
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251568_1778761041.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️
+⚽️| متئو مورتو: دوشان ولاهوویچ اخیراً به یه باشگاه بزرگ اسپانیایی پیشنهاد شده. اون باشگاه اتلتیکو مادرید نبوده. یا رئال بوده یا بارسلونا.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251567
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251567_1778761042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانوو ماریا یاکوبلی مجری با کمالات سری آ با جام کوپا ایتالیا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251566
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251566_1778761042.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 هنوز داری دنبال لینک می‌گردی؟
+
+
+✅ حرفه‌ای‌ها مستقیم وارد میشن!
+با ربات وینکوبت، ورود به سایت فقط چند ثانیه زمان می‌بره: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+⚡ بدون فیلتر و دردسر
+⚡ بدون لینک‌های الکی
+⚡ فقط یه کلیک تا ورود
+
+🎁 اگه سریع و راحت میخوای وارد شی، این همون چیزیه که دنبالش بودی!
+
+
+🤖 @Wincobet_bot
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال وینکوبت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 337161
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337161_1778761043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس مقتدایی، نایب رییس کمیسیون امنیت ملی مجلس گفت: «ما آنچه را اراده کنیم، به آمریکا و هم‌پیمانانش دیکته می‌کنیم، چرا که حاکمیت بر خلیج فارس، تنگه هرمز و دریای عمان موضوعی ذاتی و متعلق به کشور ماست.»
+او افزود: «ترامپ نشان داد که باور به اینکه انسان‌ها می‌توانند از گرگ نیز بدتر و پلیدتر باشند، باوری ریشه‌دار، عمیق و واقعی است.»
+
+او ادامه داد: «با آمادگی دفاعی می‌توانیم سایه جنگ را از سر کشور برداریم و با ایجاد انتظام در تنگه هرمز، این شاهراه حیاتی جهانی را که از نظر اقتصادی و سیاسی اهمیت بالایی دارد، به‌عنوان اهرمی برای دستیابی به حقوق ایران مورد بهره‌برداری قرار دهیم.»
+iranintl.com/202605140403
+</div>
+
+## IranIntlTV — post 337160
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337160_1778761043.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا عارف، معاون اول مسعود پزشکیان، گفت که تنگه هرمز مال ماست؛ ملک ما بوده و مدتی از ملک‌مان خوب استفاده نمی‌کردیم.
+
+او افزود: «ما به هیچ قیمتی کنترل تنگه هرمز را از دست نخواهیم داد.» عارف ادامه داد: «در جنگ هر کس روایت تولید کرد، پیروز خواهد شد.»
+iranintl.com/202605143228
+</div>
+
+## IranIntlTV — post 337159
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337159_1778761044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنجشنبه ۲۴ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337158
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337158_1778761045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال از همه افرادی که درباره وقایع بیمارستان الغدیر تهران در ۱۸ و ۱۹ دی‌ماه شواهد، اسناد یا اطلاعاتی دارند خواسته است از طریق بات اینتل‌مدیا، اطلاعات خود را ارسال کنند.
+
+جزییات بیشتر در گفت‌وگو با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337157_1778761047.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلم «داستان‌های موازی» ساخته اصغر فرهادی، به‌طور رسمی در بخش مسابقه اصلی جشنواره کن به نمایش درمی‌آید. سینمای مستقل، مهاجرت، تبعید و حضور فیلمسازان ایرانی در بخش‌های مختلف، از محورهای مورد توجه جشنواره امسال است.
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337156
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337156_1778761048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسینعلی حاجی‌دلیگانی، عضو هیات رییسه مجلس، گفت که ادامه مذاکره با آمریکا اشتباه است و افزود واشینگتن برای آتش‌بس اصرار داشته و به دنبال خرید زمان با اهداف داخلی و انتخاباتی بوده است.
+
+حاجی‌دلیگانی افزود: «خطوط فیبر نوری عبوری از بستر تنگه هرمز نیز باید شامل عوارض سالانه باشند.»
+
+او گفت: «کل تنگه هرمز در حوزه سرزمینی ایران قرار می‌گیرد و مدیریت آن باید در اختیار جمهوری اسلامی باشد.»
+iranintl.com/202605145331
+</div>
+
+## IranIntlTV — post 337154
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻بازدید مسعود پزشکیان، رئیس دولت جمهوری اسلامی و احمد دنیامالی، وزیر ورزش و جوانان از مجموعه ورزشی آزادی.
+
+🔹در هفته اول جنگ، ایران‌اینترنشنال گزارش داد که پس از آغاز حملات اسرائیل و آمریکا در نهم اسفندماه، به کارکنان و پرسنل فدراسیون‌ها و مراکز مستقر در مجموعه ورزشی آزادی در تهران دستور داده شد  ساختمان‌ها و سالن‌های ورزشی این مجموعه را تخلیه کنند.
+
+🔹طبق این اطلاعات، پس از تخلیه کارکنان، نیروهای حکومتی از جمله یگان ویژه و بسیج در بخش‌های مختلف این مجموعه مستقر شدند.
+
+🔹پس از این ماموران در سالن‌های مختلف از جمله ورزشگاه ۱۲ هزار نفری آزادی و همچنین سالن‌ها و ساختمان‌های متعلق به فدراسیون‌های ورزشی از جمله کشتی، والیبال، بسکتبال و وزنه‌برداری مستقر شدند.
+
+🔹در پی این اقدامات، سالن ۱۲ هزار نفری ورزشگاه آزادی در حملات هوایی روز پنجشنبه ۱۴ اسفند ۱۴۰۴، تخریب شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337153
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337153_1778761048.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیمارستان الغدیر تهران شامگاه ۱۸ و ۱۹ دی‌ماه، شاهد گوشه‌ای از جنایتی بود که جمهوری اسلامی علیه معترضان مرتکب شد. ده‌ها پیکر بی‌جان و شمار زیادی از مجروحان به این بیمارستان منتقل شدند و به دلیل کمبود فضای سردخانه، تعدادی از کشته‌شدگان، پتوپیچ در حیاط پشت بیمارستان رها شدند. ایران‌اینترنشنال با هدف روشن کردن ابعاد جنایت در بیمارستان الغدیر تهران در ۱۸ و ۱۹ دی‌ماه، کارزاری مردمی برای شناسایی جاویدنامانی که به این بیمارستان منتقل شده بودند راه‌اندازی کرده و تاکنون هویت ۹ نفر از آن‌ها را شناسایی کرده است.
+از همه افرادی که درباره وقایع بیمارستان الغدیر تهران شواهد، اسناد یا اطلاعاتی دارند می‌خواهیم از طریق بات اینتل‌مدیا، اطلاعات خود را ارسال کنند و راوی حقیقت باشند.
+
+گزارش آبتین یزدان‌پناه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337152
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337152_1778761050.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانشجویان متحد گزارش داد متین زمانیان، دانشجوی کارشناسی علوم سیاسی دانشگاه آزاد تهران مرکز، با گذشت بیش از یک‌ماه از بازداشت، در زندان تهران بزرگ نگهداری می‌شود.
+
+بنا بر این گزارش متین زمانیان در طول دوران بازداشت، از حق دسترسی به وکیل مستقل و دادرسی عادلانه محروم مانده است.
+iranintl.com/202605143017
+</div>
+
+## IranIntlTV — post 337151
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337151_1778761051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، گفت هم‌زمان با سفر دونالد ترامپ به پکن، انتظار می‌رود چین سفارش‌های بزرگی برای خرید هواپیما از شرکت بوئینگ ثبت و اعلام کند.
+
+به گفته او، مذاکرات میان واشینگتن و پکن علاوه بر صنعت هوانوردی، حوزه‌هایی مانند انرژی و محصولات کشاورزی را نیز در بر خواهد گرفت.
+
+بسنت همچین به مناقشه تایوان پرداخت و افزود: «ترامپ حساسیت‌های مربوط به این موضوع را درک می‌کند.»
+
+به گفته وزیر خزانه‌داری آمریکا، ترامپ «در روزهای آینده» درباره این مساله صحبت خواهد کرد.
+https://iranintl.com/202605141039
+</div>
+
+## IranIntlTV — post 337150
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«#چشم‌انداز با مهدی مهدوی‌آزاد»؛ شنبه تا چهارشنبه ساعت ۲۱:۰۰ تهران
+
+بررسی آخرین رویدادهای سیاسی، فرهنگی و اجتماعی با حضور کارشناسان.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337149
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337149_1778761051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، پس از سخنان شی جین‌پینگ در ضیافت رسمی در پکن پشت تریبون رفت و از استقبال انجام‌شده قدردانی کرد. او استقبال از خود در پکن را «افتخاری بزرگ» توصیف کرد و از شی جین‌پینگ «برای این استقبال باشکوه» تشکر کرد.
+
+ترامپ گفت: «امروز گفت‌وگوها و دیدارهای بسیار مثبت و سازنده‌ای با هیات چینی داشتیم و این ضیافت نیز فرصتی ارزشمند است تا در جمع دوستان درباره برخی از موضوعاتی که امروز مطرح کردیم گفت‌وگو کنیم.»
+
+رییس‌جمهوری آمریکا همچنین روابط ایالات متحده و چین را «یکی از تاثیرگذارترین روابط در تاریخ بشر» خواند.
+</div>
+
+## IranIntlTV — post 337148
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337148_1778761052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عترشی جین‌پینگ، رهبر چین، در آغاز ضیافت شام رسمی با دونالد ترامپ با بلند کردن جام خود به او و هیات آمریکایی خوشامد گفت و بر ضرورت همکاری میان دو کشور تاکید کرد. رهبر چین تاکید کرد: «دو کشور ما باید شریک باشند، نه رقیب.»
+
+شی در سخنان خود به سال ۲۰۲۶ به عنوان دویست‌وپنجاهمین سالگرد اعلامیه استقلال آمریکا اشاره کرد و گفت: «مردم چین و ایالات متحده هر دو ملت‌های بزرگی هستند.»
+
+او افزود: «تحقق احیای بزرگ ملت چین و عظمت دوباره آمریکا می‌تواند همزمان پیش برود. ما می‌توانیم به موفقیت یکدیگر کمک کنیم و رفاه کل جهان را ارتقا دهیم.»
+</div>
+
+## IranIntlTV — post 337147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337147_1778761052.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه وحدت، نایب‌رییس اتحادیه زنان کارگر سراسر ایران گفت: «نشانه‌های گسترش فقر در جامعه مشهود است. این روزها آدم‌ها را می‌بینیم که حتی برای خرید نان دچار مشکل هستند. این‌ها نشانه‌های کوچکی نیستند. شاید ساده به نظر برسند، اما اگر جدی گرفته نشوند، بعدها به معضل بزرگ اجتماعی تبدیل می‌شوند.»
+
+او افزود: «در شرایط بحرانی، زنان کارگر بیش از دیگران در معرض اخراج قرار می‌گیرند؛ به‌ویژه زنانی که سرپرست خانوار هستند و مسئولیت مستقیم تامین معاش خانواده را برعهده دارند، در اثر این اخراج بیشترین آسیب را متحمل می‌شوند.»
+
+وحدت ادامه داد: «همه از این شرایط خبر دارند، اما مسئله این است که نظارت جدی وجود ندارد.»
+https://iranintl.com/202605143396
+</div>
+
+## IranIntlTV — post 337146
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337146_1778761053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا گفت بازگشایی تنگه هرمز به نفع چین است و پکن هر کاری بتواند برای بازگشایی این آبراه انجام خواهد داد.
+
+او در مصاحبه با سی‌ان‌بی‌سی تاکید کرد چین پشت صحنه و تا جایی که بر جمهوری اسلامی نفوذ داشته باشد، برای بازگشایی تنگه هرمز همکاری خواهد کرد.
+https://iranintl.com/202605140954
+</div>
+
+## IranIntlTV — post 337145
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337145_1778761053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فریده شجاعی، نایب‌رییس بانوان فدراسیون فوتبال، در مراسم بدرقه تیم ملی در شامگاه چهارشنبه ۲۳ اردیبهشت گفت: «به تمامی اعضای هیات‌رییسه فدراسیون فوتبال اعلام شده در جام جهانی حضور داشته باشند.»
+
+🔹صحبت‌های شجاعی در حالی مطرح می‌شد که تیم ملی در فاصله کمتر از یک ماه تا آغاز جام‌جهانی با بحران ویزا و چالش مالی روبه‌رو است. هنوز ویزای ملی‌پوشان صادر نشده و کادر فنی نمی‌داند کدام بازیکن ویزا خواهد گرفت و به کدام بازیکن ویزا نخواهند داد.
+
+🔹احتمال دارد برای برخی اعضای کاروان ایران به دلیل سوابق فعالیت یا ارتباط با سپاه پاسداران، ویزا صادر نشود.
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 14120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو:
+
+💢طرف چینی گفت که آنها موافق نظامی کردن تنگه هرمز یا سیستم عوارضی نیستند و این موضع ما است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14119
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14119_1778761054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢شی در ضیافت شام با ترامپ در پکن:
+
+«برای آینده روشن روابط چین و آمریکا و دوستی بین دو ملت، و برای سلامتی رئیس جمهور ترامپ و همه دوستان حاضر در جلسه دعا می‌ کنم.»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14117
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هویدا نخست وزیر ایران در زمان شاه سیزده سال تورم ایران رو ثابت نگه داشته بود؛
+
+زمانیکه بهش نامه زدن به خاطر ماه محرم اداره ها با تاخير باز بشن، در جواب نوشت:
+“با سلام، موافقت نميشود. عبادت بجز خدمت خلق نيست.”
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14116
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14116_1778761055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم: در حالی که توجه‌ها به سمت ایران معطوف شده، حماس بی سر و صدا در حال تسلیح مجدد خود است.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/24 14:05
 ---
 
@@ -511,8 +1083,6 @@ https://iranintl.com/202605149083
 <div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
 💢زلزله ای در کرمان رخ داده است 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
