@@ -7,6 +7,250 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 02:17
+---
+
+## ChizBergerz — post 46403
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46403_1778798851.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چون دل‌تون برای کصگوی خاتم‌ الانبیا تنگ شده اینو میذارم: 😂😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46402
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46402_1778798852.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae24
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## ChizBergerz — post 46401
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46401_1778798854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موزیک ویدیو موش‌تباه از حامد فرد: 🔥😁👌
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46400
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46400_1778798856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اره داداش، آمریکا تایوان رو میده به چین و ایران رو ازش میگیره.
+
+@ChizBergerz
+</div>
+
+## KiriMohems — post 47511
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47511_1778798856.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#هپی_فرایدی_نایت
+
+امشب چه شبیست شب مراد است امشب
+این کشو پر از کاندوم و لوبریکانت است امشب
+
+#Helsinki
+@KiriMohem
+</div>
+
+## KiriMohems — post 47510
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47510_1778798857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔞 #کیری_پوزیشن
+
+
+🫦نام : در انتظار قطعنامه - Waiting for attack
+
+🔥درجه سختی : پاره‌هنگ
+
+🍌طرف فعال : نر
+
+احتمالا تو این مدت حوصله تون سر رفته که چرا حمله پر ملاتی صورت نگرفته یا چرا چمپیونزلیگ زودتر شروع نمیشه که یهویی زیدی میگه :
+عشقم شب جمعه است یادت رفته ؟
+که تو هم میگی : آره ، خدا همه اسیران خاک رو بیامرزه
+ولی ریدی ، تو همین حالت قفل میشی ، خانومی هم مختصات کص طلایی رو به سمت داشاق بِلکی تنظیم میکنه و برو تا روح و روانت شاد بشه
+
+
+❗️مزایا :
+دخول متعادل
+تحریک مناسب نقطه جی
+اوج سهولت و کون گشادی
+
+
+❌معایب :
+عدم دید به ممه
+امکان خطا فرو رفتن کیر به جای کص در کون
+
+#Helsinki
+@KiriMohem
+</div>
+
+## SportBaadNews — post 251606
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251606_1778798857.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️| تیکه سنگین امباپه به هم تیمی هاش: باید سخت تلاش کنم تا از ماستانتونو، گونزالو و وینی بهتر بشم 😂😂😂😂😂😂
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251604
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251604_1778798858.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️| کیلیان امباپه: ما فصل رو خوب شروع کردیم. ولی نیمه دوم فصل همه‌چی رو از دست دادیم. خیلی درد داره، حس می‌کنم یه سبک بازی و یه ساختار داشتیم، ولی همشو از دست دادیم.
+
+
+🚨
+🔴 آربلوا: کیلیان گفته تیم تو نیمه اول فصل یه ساختار داشت ولی تو نیمه دوم از دستش داد؟ نمی‌دونم. شاید خودش تو نیمه اول فصل بیشتر گل زده تا نیمه دوم فصل.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251603
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251603_1778798858.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️| کیلیان امباپه: حقیقتا درد داره که اینطوری تموم شد فصلمون، چون امسال واقعاً این شانسو داشتیم که کارای بزرگی بکنیم و اول فصل هم نشون دادیم که می‌تونیم. من اسم کسیو نمیارم (صددرصد منظورش ژابیه)، من اینجام فقط از باشگاه دفاع کنم. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251602
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251602_1778798859.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️| کیلیان امباپه: من آماده بودم فیکس بازی کنم ولی آربلوا بهم گفت انتخاب چهارمش بین مهاجم ها هستم و منم پذیرفتم.
+</div>
+
+## IranIntlTV — post 337232
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337232_1778798859.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنج هفته پس از نصب دیوارنگاره‌ای با نشان جمهوری اسلامی و در حمایت از سپاه پاسداران در محله وست‌وود لس‌آنجلس، واکنش‌ها در میان ایرانیان ساکن این منطقه ادامه دارد.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337231
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337231_1778798860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در پستی در شبکه اجتماعی تروث سوشال تاکید کرد «تضعیف نظامی حکومت ایران» در دوره دولت او است که انجام شده است.
+ترامپ این موفقیت را در کنار مجموعه‌ای از دستاوردهای دولت خود ذکر و تاکید کرد این روند درباره جمهوری اسلامی همچنان «ادامه خواهد داشت».
+
+https://iranintl.com/202605148199
+</div>
+
+## IranIntlTV — post 337230
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337230_1778798861.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تام کاتن، سناتور جمهوری‌خواه آمریکا، در حساب کاربری ایکس خود نوشت «توافق‌های فاجعه‌بار» دوران باراک اوباما مسیر جاه‌طلبی‌های هسته‌ای جمهوری اسلامی را هموار کرد، اما ترامپ به این جاه‌طلبی‌ها پایان داد.
+این سناتور نزدیک به دونالد ترامپ همچنین گفت: جمهوری اسلامی اکنون نسبت به ۱۰ ماه پیش «به‌مراتب ضعیف‌تر» شده است.
+
+https://iranintl.com/202605140230
+</div>
+
+## IranIntlTV — post 337229
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337229_1778798862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با آغاز دور جدید مذاکرات مستقیم اسرائیل و لبنان، مقام‌های لبنانی بر آتش‌بس فوری و توقف حملات اسرائیل به جنوب لبنان به‌عنوان اولویت اصلی تاکید کردند.
+
+این مذاکرات در شرایطی برگزار می‌شود که آتش‌بس پیشین همچنان شکننده است و تنش‌ها در جنوب لبنان ادامه دارد.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337228
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337228_1778798864.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پس از دیدار با شی جین‌پینگ پیشنهاد داد چین برای بازگشایی تنگه هرمز کمک کند.
+
+ترامپ همچنین گفت شی به او اطمینان داده چین تجهیزات نظامی در اختیار تهران قرار نخواهد داد.
+
+گزارش امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337227
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337227_1778798865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجلس نمایندگان آمریکا برای سومین بار به طرحی رای منفی داد که هدف آن محدود کردن اختیارات نظامی دونالد ترامپ در قبال حکومت ایران بود. این طرح در قالب قطعنامه‌ای از سوی دموکرات‌ها ارائه شده بود.
+رای‌گیری روز پنجشنبه با نتیجه ۲۱۲ در برابر ۲۱۲ به تساوی رسید و در نهایت با اختلاف یک رای نتوانست به اکثریت لازم برسد و رد شد.
+این سومین بار است که چنین ابتکاری برای مهار اختیارات نظامی رییس‌جمهوری در مجلس نمایندگان آمریکا شکست می‌خورد.
+در جریان بررسی این طرح، جو گاتهایمر، نماینده دموکرات ایالت نیوجرسی، گفت از فشار بر حکومت ایران حمایت می‌کند اما دولت را به نگه داشتن کنگره «در تاریکی» بدون جلسات توجیهی رسمی، متهم کرد.
+
+https://iranintl.com/202605146155
+</div>
+
+## IranIntlTV — post 337226
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337226" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ اگر یک جمله فرصت داشتید با ایران حرف بزنید، چه می‌گفتید؟
+@iranintlTV
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 01:19
 ---
 
