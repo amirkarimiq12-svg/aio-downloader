@@ -7,6 +7,209 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 01:19
+---
+
+## KiriMohems — post 47509
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47509_1778795399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر لو رفته گلشیفته فراهانی و امانوئیل مکرون
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47508
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فووووووریییی
+
+#Berlin
+</div>
+
+## KiriMohems — post 47507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر نیرو : امسال کیرو خایه رو پهن کنید و خیالتون راحت باشه تابستون خاموشی نخواهیم داشت.
+
+#Berlin
+@Kirimohems
+</div>
+
+## SportBaadNews — post 251601
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251601_1778795399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️| کیلیان امباپه: من آماده بودم فیکس بازی کنم ولی آربلوا بهم گفت انتخاب چهارمش بین مهاجم ها هستم و منم پذیرفتم. 
+🔴 سفرم به ایتالیا؟ من اجازه باشگاه رو داشتم و اینکه من تنها بازیکنی نیستم که همیشه سفر میره! 
+🔴 هو شدن توسط هوادارا؟ هو شدن تو زندگی یه بازیکن…
+</div>
+
+## SportBaadNews — post 251600
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251600_1778795399.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️| کیلیان امباپه: من آماده بودم فیکس بازی کنم ولی آربلوا بهم گفت انتخاب چهارمش بین مهاجم ها هستم و منم پذیرفتم.
+
+
+🔴 سفرم به ایتالیا؟ من اجازه باشگاه رو داشتم و اینکه من تنها بازیکنی نیستم که همیشه سفر میره!
+
+
+🔴 هو شدن توسط هوادارا؟ هو شدن تو زندگی یه بازیکن مشهور مثل من عادیه 
+😌
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251599
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251599_1778795400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال گل دوم رو زد - جود: WATCH
+</div>
+
+## SportBaadNews — post 251598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ پایان بازی | 
+⚽️
+2️⃣×
+0️⃣
+⚽️
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251597
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251597_1778795400.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| کیلیان امباپه تو 63‌امین بازیش تو لالیگا به آمار 63 تأثیر مستقیم روی گل تو لالیگا رسید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251596
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال گل دوم رو زد - جود: WATCH
+</div>
+
+## IranIntlTV — post 337225
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337225_1778795401.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو در مراسم روز اورشلیم در «تپه مهمات» اعلام کرد جمهوری اسلامی «ضعیف‌تر از همیشه» شده است و اسرائیل به مقابله قاطع با «تهدیدهای اسلام افراطی» ادامه خواهد داد.
+نخست‌وزیر اسرائیل همچنین گفت اگر اسرائیل در سال ۲۰۲۵ و اوایل امسال به برنامه‌های هسته‌ای و موشکی ایران حمله نکرده بود، حکومت ایران اکنون به سلاح هسته‌ای دست یافته بود.
+نتانیاهو با اشاره به درگیری‌های اخیر با جمهوری اسلامی، حماس و حزب‌الله گفت اقدامات نظامی اسرائیل و همکاری نزدیک‌تر با دولت ترامپ «چهره خاورمیانه را تغییر داده است.»
+او همچنین تاکید کرد اورشلیم «برای همیشه» تحت کنترل اسرائیل باقی خواهد ماند.
+
+https://iranintl.com/202605146830
+</div>
+
+## IranIntlTV — post 337224
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337224_1778795402.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد اسحاق هرتزوگ، رییس جمهوری اسرائیل سفر خود به نیویورک برای سخنرانی در مراسم دانش‌آموختگی مدرسه الهیات یهودی وابسته به دانشگاه کلمبیا را لغو کرده و قرار است به‌صورت مجازی در این مراسم شرکت کند.
+به نوشته وای‌نت، این تصمیم پس از انتقادها و اعتراض‌های دانشجویان حامی فلسطین به حضور هرتزوگ گرفته شد، هرچند دفتر ریاست‌جمهوری اسرائیل تاکید کرده لغو سفر ارتباطی با این اعتراض‌ها نداشته است.
+وای‌نت همچنین گزارش داد هم‌زمان اسرائیل خود را برای احتمال ازسرگیری اقدام نظامی آمریکا علیه جمهوری اسلامی آماده می‌کند و رهبران سیاسی به ارتش دستور داده‌اند آمادگی‌های لازم را در نظر بگیرد.
+
+https://iranintl.com/202605142377
+</div>
+
+## IranIntlTV — post 337223
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337223_1778795402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با آغاز دور جدید مذاکرات مستقیم اسرائیل و لبنان در واشینگتن، مقام‌های اسرائیلی گفتند هدف این گفت‌وگوها خلع سلاح حزب‌الله و رسیدن به توافق صلح است.
+
+گفت‌وگو با ابراهیم روشندل، دیپلمات سابق و کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337222
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337222_1778795404.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استیو دینز، سناتور جمهوری‌خواه، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «او تلاش می‌کند به جنگ ۴۷ ساله‌ای که این رژیم از طریق فعالیت‌های تروریستی خود علیه ایالات متحده و جهان آزاد به راه انداخته پایان دهد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337221
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337221_1778795405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند کشور منطقه شامل بحرین، کویت، عربستان سعودی، امارات متحده عربی، قطر و اردن در نامه‌ای فوری به سازمان ملل متحد، جمهوری اسلامی را مسئول خسارت‌های واردشده به برخی تأسیسات و یک کشتی در منطقه دانسته و خواستار پرداخت غرامت شده‌اند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337220
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337220_1778795407.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اف‌بی‌آی اعلام کرد برای دریافت اطلاعات درباره مونیکا ویت، مامور سابق ضدجاسوسی آمریکا که به ایران پناهنده شده، ۲۰۰ هزار دلار جایزه تعیین کرده است.
+
+او متهم است اطلاعات محرمانه را در اختیار تهران قرار داده و از ۱۳ سال پیش در ایران زندگی می‌کند.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337219
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337219_1778795408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه قطر به العربیه اعلام کرد چند پهپاد ایرانی را در نزدیکی حریم هوایی خود سرنگون کرده است. این وزارتخانه افزود در تماس‌های خود با جمهوری اسلامی بر ضرورت بازگشایی تنگه هرمز تأکید کرده و ابراز امیدواری کرده است توافقی برای تضمین امنیت منطقه‌ای حاصل شود.
+
+وزارت خارجه قطر همچنین گفت کشورهای خلیج فارس خواهان بازگشایی تنگه هرمز و توقف حملات جمهوری اسلامی هستند و از تلاش‌های دیپلماتیک حمایت کرده و بر پرهیز از جنگ تأکید دارند.
+https://iranintl.com/202605149165
+</div>
+
+## Persian_Trend_Official — post 14169
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14169_1778795409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🥱
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 00:13
 ---
 
