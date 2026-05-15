@@ -7,6 +7,238 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 01:11
+---
+
+## ChizBergerz — post 46426
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46426_1778881262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز یکی تو فضای مجازی با هوش مصنوعی یه عکس از ترامپ و ایلان ماسک زیر پرچم داس و چکشِ حزب کمونیست ساخت؛
+بعد تو صداوسیما، خانعلی زاده (کارشناس روابط خارجی و همراه تیم مذاکره کننده تو سفر به پاکستان) خیلی جدی تحلیل کرد که این عکس خروجی سفر ترامپه و این یعنی آمریکا همیشه وابسته به چینه💩😂
+ @ChizBergerz
+</div>
+
+## ChizBergerz — post 46425
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از امروز دیگه هر روز دی‌ان‌اس های جدید شیر و خورشید رو میزارم همینجا، برا بقیه هم بفرستین همگی وصل شن🔥❤️
+</div>
+
+## ChizBergerz — post 46423
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46423_1778881263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid-2026.05.14.apk
+</div>
+
+## ChizBergerz — post 46422
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46422_1778881263.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کولر آبی شده ۳۶ الی ۴۹ میلیون تومن!
+
+@ChizBergerz
+</div>
+
+## KiriMohems — post 47554
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نیویورک‌تایمز: دو مقام کله کیری خاورمیانه‌ای ادعا کردند که آمریکا و اسرائیل در حال آماده‌سازی گسترده برای احتمال ازسرگیری حملات علیه ایران هستند؛ آماده‌سازی‌ای که بزرگ‌ترین سطح از زمان آتش‌بس محسوب می‌شود؛ این حمله ممکن است از هفته آینده آغاز شود.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47553
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47553_1778881264.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اگر نمیگوزید بخندید:
+
+صفحه یوتیوب امیر تتلو: امیرخان درحالی که فقط یک ماه به شروع جام جهانی مونده، از تو زندان استارت تمرین‌هاش رو زده و میخواد عضو یه تیم ملی بشه تا تو این مسابقات شرکت کنه!
+امیرخان خودش داخل قوطی رنگ و بطریِ وایتکس، گچ و سیمان ریخته و داره ازشون به عنوان دمبل استفاده می‌کنه.
+
+
+#professor
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47552
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعرفه سرویس های Vip 
+⭕️ 
+✅ 1 گیگابایت 
+⬅️ 250/000 تومان 
+✅ 3 گیگابایت 
+⬅️ 750/000 تومان استارلینک Vip 
+💫 
+🌟(مناسب برای شرایط بحرانی مثل جنگ و اختلالات) 
+⭐️ 5 گیگابایت 
+⬅️ 1/400/000 تومان 
+⭐️ 10 گیگابایت 
+⬅️ 2/800/000 تومان برای خرید از پشتیبانی به ایدی زیر پیام…
+</div>
+
+## SportBaadNews — post 251670
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251670_1778881264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فوووووووری بن جیکوبز هم تایید کرد: توافق حاصل شد، مورینیو به رئال مادرید پیوست. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251669
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251669_1778881264.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووووری از رومانوووو: مورینیو به رئال مادریددددددد هیر وی گووو بزودییییییییی @SportBaadNews
+</div>
+
+## SportBaadNews — post 251668
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251668_1778881265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووووری از رومانوووو: مورینیو به رئال مادریددددددد هیر وی گووو بزودییییییییی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251666
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251666_1778881265.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکا، آاس و کوپه هر سه خبر زدن که رئال مادرید با مورینیو به توافق رسید و انتقال رسمی به زودی اعلام میشه @SportBaadNews
+</div>
+
+## SportBaadNews — post 251665
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251665_1778881265.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+❌| بعد از 11 سال لیورپول برای اولین بار 12 بازی تو یه فصل پریمیرلیگ رو با باخت به اتمام رسوند @SportBaadNews
+</div>
+
+## SportBaadNews — post 251664
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️تمام، لیورپول با نتیجه 4-2 به استون ویلا باخت و صعودش به چمپیونزلیگ به هفته آخر موکول شد.
+
+
+⚽️
+✅ صعود استون ویلا به چمپیونزلیگ قطعی شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251663
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251663_1778881266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+❌| بعد از 11 سال لیورپول برای اولین بار 12 بازی تو یه فصل پریمیرلیگ رو با باخت به اتمام رسوند
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251662
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی لیورپول رو از زیر استون ویلا بکشه بیرون @SportBaadNews
+</div>
+
+## SportBaadNews — post 251661
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251661_1778881266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی لیورپول رو از زیر استون ویلا بکشه بیرون
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251659
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251659_1778881267.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکا، آاس و کوپه هر سه خبر زدن که رئال مادرید با مورینیو به توافق رسید و انتقال رسمی به زودی اعلام میشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251658
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251658_1778881267.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل دوم استون ویلا به این شکل رو لیز خوردن سوبوزلای رقم خورد تا یاد و خاطرات استیون جرارد زنده بشه 😂😂😂
+@GoalBad
+</div>
+
+## IranIntlTV — post 337391
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337391_1778881268.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال از شرایط سخت معیشتی خود می‌گوید. او اشاره می‌کند که همسر و بچه‌اش را به خانه مادرخانمش فرستاده و خودش تنها در خانه «نان خشک» می‌خورد. او از کار اخراج شده است. صدای او با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## IranIntlTV — post 337390
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337390_1778881270.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماه‌ها پس از اعتراضات دی‌ماه و در شرایطی که بخشی از جامعه نسبت به تغییرات ناامید شده، برخی هنرمندان همچنان تلاش می‌کنند صدای امید و همراهی با معترضان را زنده نگه دارند. در تازه‌ترین نمونه، ابی و شاهین نجفی با انتشار قطعه مشترک «شاهراه» از مقاومت، امید و ادامه مسیر گفته‌اند.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14222
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14222_1778881272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+〰️در تازه‌ترین تحولات امنیتی در منطقه، فرماندهی مرکزی ایالات متحده (سنتکام) با انتشار تصاویری از برخاستن یک فروند بالگرد MH-60R Sea Hawk از عرشه ناوشکن آمریکایی USS Rafael Peralta (DDG-115) در دریای عرب، از ادامه عملیات گسترده دریایی آمریکا خبر داد. این عملیات که با هدف اعمال محدودیت‌ها و نظارت شدید بر خطوط کشتیرانی مرتبط با ایران انجام می‌شود،
+بر اساس ادعای سنتکام، تاکنون ۷۵ کشتی تجاری مسیر حرکت خود را تغییر داده‌اند و ۴ شناور نیز برای اطمینان از اجرای قوانین و مقررات اعلام‌شده، متوقف یا غیرفعال شده‌اند. واشنگتن این اقدامات را بخشی از راهبرد «کنترل امنیت دریایی» عنوان می‌کند؛ اما ناظران معتقدند که چنین تحرکاتی می‌تواند فشار اقتصادی و روانی بر تجارت دریایی منطقه را افزایش دهد.
+
+
+👑:☆Phantom☆
+
+📮 persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 00:08
 ---
 
