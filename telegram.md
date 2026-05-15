@@ -7,6 +7,455 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/25 19:56
+---
+
+## ChizBergerz — post 46416
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46416_1778862406.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیدونم این پسره کیه و چه برنامه‌ای هست ولی داره درست میگه، این اقلیت ۵درصدی رافضی ولایت‌به‌باسن برای اینکه بمونن راضین همرو بکشن!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46415
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46415" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46414
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46414_1778862408.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge25
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46413
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46413_1778862409.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخیرا این ویدیو به شدت درحال وایرال شدنه که جمهوری‌شیطانی نفت رو داره تو خلیج فارس میریزه و فاجعه زیست محیطی درحال رخ دادنه!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46412
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46412_1778862411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه یوتیوب تتلو؛
+امیرخان درحالی که فقط یک ماه به شروع جام جهانی مونده، از تو زندان استارت تمرین‌هاش رو زده و میخواد عضو یه تیم ملی بشه تا تو این مسابقات شرکت کنه.
+خودشم داخل قوطی رنگ و بطریِ وایتکس، گچ و سیمان ریخته و داره ازشون به عنوان دمبل استفاده می‌کنه.
+
+ایشون تو یه فضای 1*1 داره تمرین میکنه و واسه صبحونه، ناهار و شام فقط عدسی و آب‌میوه میخوره!
+
++ :))))))))
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71380
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71380_1778862412.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ درباره ایران:
+ممکن است مجبور شویم کمی کار پاک‌سازی (حذف سران رژیم) انجام دهیم چون ما یک آتش‌بس یک ماهه کوچک داشتیم.
+</div>
+
+## rodast_omiddana — post 71379
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 پاسخ به نوچه گروه هما هنرمندان علیه علی کریمی
+لینک یوتیوب:
+https://www.youtube.com/watch?v=Wca9gO8r21o
+</div>
+
+## rodast_omiddana — post 71378
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71378_1778862415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ با شی:
+"ما درباره ایران صحبت کردیم. احساس ما بسیار مشابه است. ما می‌خواهیم تنگه‌ها باز باشند. الان داریم آن را می‌بندیم. آنها آن را بستند و ما روی آن بستیم—اما ما می‌خواهیم تنگه‌ها باز باشند."
+</div>
+
+## rodast_omiddana — post 71377
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71377_1778862417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مارکو روبیو:
+"رئیس‌جمهور به وضوح می‌گوید اگر ایرانی‌ها فکر می‌کنند که می‌خواهند از سیاست‌های داخلی ما برای فشار آوردن به او جهت رسیدن به یک توافق بد استفاده کنند، این اتفاق نخواهد افتاد."
+</div>
+
+## rodast_omiddana — post 71376
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71376_1778862417.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فرمانده سنتکام، دریاسالار برد کوپر: حماس، حزب‌الله و حوثی‌ها کاملاً از کمک‌های ایران قطع شده‌اند
+</div>
+
+## rodast_omiddana — post 71375
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 سلام امید جان
+من سرباز تیپ ۶۵ نوهد هستم تایم جنگ حدود ۱۲۰ کادر نوهد فرار کرد ۱۵ نفر به جرم جاسوسی بازداشت شدن.
+۶ تا کادری رفتن میدون صبح گاه پرچم جمهوری اسلامی رو دادن پایین و پرچم شیروخورشید بدن بالا که فیلم بگیرن ولی گرفتنشون و الان بازداشتن
+</div>
+
+## rodast_omiddana — post 71374
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 حمله فواد ایزدی به پدیده اصولگرایان غربگرا
+لینک یوتیوب:
+https://www.youtube.com/watch?v=ef2-mLX5Mms
+</div>
+
+## KiriMohems — post 47539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#کیری_کاربردی
+
+🔴بدون استعلام این موارد یهو کصخلت درنره و ماشین بخری
+
+1⃣ استعلام از پلیس+۱۰
+
+2⃣ پیامک کردن شماره پلاک ماشین بدون حروف به شماره ۳۰۰۰۵۳۵۳
+
+3⃣ استعلام با کد ملی مالک و پلاک ماشین از طریق http://www.rahvar120.ir
+
+4⃣ استعلام با کد ملی مالک و پلاک ماشین از طریق اپلیکیشن پلیس من
+
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#خایه_کنید
+🔴طالبان افغانستان ، ازدواج دختران زیر ۹ سال رو مجاز اعلام کرد
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47537
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47537_1778862418.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید برای آلبوم جدید دریک مراتب خایمالی رو به اجرا درآورده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47536
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47536_1778862419.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#پشماتون_بریزه
+
+🔴میگن : آمریکایی ها قبل از سوار شدن به هواپیمای ایر فورس وان برای ترک پکن، هر کصشعری که چینی ها بهشون هدیه داده بودن مثل : نشان‌ها، پین‌ها، اقلام یادبودی رو تو سطل زباله ریختن
+
+دلیل این کار ، جلوگیری از جاسوسی سولاخ بادومی ها از شمارش گوز آمریکایی ها بوده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251640
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نویر و اولرایش هر دو تا 2027 با بایرن تمدید کردن
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337349
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337349" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: تاکید ترامپ بر برچیدن کامل برنامه هسته‌ای
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337348
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337348_1778862420.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام وزارت خارجه آمریکا به الجزیره گفت فضای دومین روز مذاکرات میان لبنان و اسرائیل بسیار مثبت بوده و روند گفت‌وگوها فراتر از انتظارها پیش رفته است.
+
+این دومین روز از سومین دور مذاکرات میان اسرائیل و لبنان با میانجی‌گری ایالات متحده بود.
+https://iranintl.com/202605151409
+</div>
+
+## IranIntlTV — post 337347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیمارستان الغدیر تهران شامگاه ۱۸ و ۱۹ دی‌ماه ۱۴۰۴، شاهد گوشه‌ای از جنایتی بود که جمهوری اسلامی علیه معترضان مرتکب شد. ده‌ها پیکر بی‌جان و شمار زیادی از مجروحان به این بیمارستان منتقل شدند و به دلیل کمبود فضای سردخانه، تعدادی از کشته‌شدگان، پتوپیچ در حیاط پشت بیمارستان رها شدند. ایران‌اینترنشنال تاکنون هویت ۹ نفر از آن‌ها را شناسایی کرده که در این ویدیو چهار تن از آنها معرفی شده‌اند.
+فرنوش فرجی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد.
+</div>
+
+## IranIntlTV — post 337346
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337346_1778862421.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر خارجه ایتالیا اعلام کرد به دنبال راه‌حلی سریع برای مشکلات تمدید اقامت و گذرنامه ایرانیان مقیم این کشور است و این موضوع را در سطح اروپا نیز پیگیری می‌کند. آنتونیو تایانی تاکید کرد ایتالیا در کنار مردم ایران و خواست آزادی و دموکراسی ایستاده است.
+جزییات بیشتر با صدف باغبانی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 337345
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337345_1778862422.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد اسحاق دار، وزیر خارجه پاکستان، اعلام کرد که ۱۱ شهروند پاکستانی و ۲۰ شهروند ایرانی که در کشتی‌های توقیف‌شده از سوی آمریکا حضور داشتند، به کشورهایشان بازگردانده شده‌اند.
+به گفته او قرار است همه این افراد امشب به اسلام آباد برسند و سپس بازگشت شهروندان ایران تسهیل خواهد شد.
+https://iranintl.com/202605151087
+</div>
+
+## IranIntlTV — post 337344
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337344_1778862423.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مخاطبان ایران‌اینترنشنال با اشاره به وضعیت اقتصادی می‌گوید مردم ایران برای چه «منفعت ملی» این حجم از فشار اقتصادی و نگرانی را تحمل می‌کنند. این پیام با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337343
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در این قسمت چرتکه، محمد ماشین‌چیان، قدرت خرید یک درآمد ماهانه ۴۰ میلیون تومانی را با در نظر گرفتن سناریوهای رشد نرخ دلار، تا پایان ۱۴۰۵ بررسی و پیش‌بینی می‌کند.
+
+
+
+مساله فرسایش زندگی، محدود به کارگران ما نیست. حتی هموطنانی که در گذشته‌ای نه‌چندان دور، زندگی متوسط و قابل قبولی داشتند نیز از آسیب نوسانات دلار مصون نخواهند ماند.
+
+
+تماشای نسخه کامل «چرتکه» در یوتیوب:
+https://youtu.be/1W2RoMvSqPQ
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337342
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337342_1778862425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی حسینی‌همدانی، امام جمعه کرج، ۲۵ اردیبهشت در نماز جمعه این شهر گفت: بر اساس توصیه قرآن باید تا پایان «فتنه»، جنگ را ادامه داد و تاکید کرد مجازات اسرائیل، محو کامل آن است.
+
+او همچنین اطاعت از مجتبی خامنه‌ای را عامل پیروزی خواند و گفت باید عوامل نافرمانی را از میان برداشت.
+https://iranintl.com/202605155975
+</div>
+
+## IranIntlTV — post 337341
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337341_1778862426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های ارسالی مخاطبان به ایران‌اینترنشنال از کمبود و گرانی داروهای حوزه سلامت حکایت دارد. یک شهروند شاغل در صنعت دارو می‌گوید شربت «لیسکانتین» برای بیماران صرع و تشنج نایاب شده و قیمت آن از ۹۰۰ هزار تومان به ۴ میلیون و ۲۰۰ هزار تومان افزایش یافته است.
+جزییات بیشتر با سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337340
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337340_1778862428.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در تازه‌ترین نظرسنجی جهانی، کانادا برای نخستین‌بار به‌عنوان جذاب‌ترین مقصد سرمایه‌گذاری زیرساختی معرفی شد. انجمن سرمایه‌گذاران زیرساخت جهانی، سیاست‌های جذب سرمایه خصوصی و ایجاد صندوق ثروت ۲۵ میلیارد دلاری را از عوامل اصلی این جایگاه دانست.
+مهسا مرتضوی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337339
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام‌های ارسالی مخاطبان به مدیا بات ایران‌اینترنشنال از گرانی، کمبود و نایاب شدن دارو و اقلام حوزه سلامت حکایت دارد. یک شهروند می‌گوید حتی داروهای ساده و مسکن‌هایی مانند قرص کدئین نیز نایاب شده‌اند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337338
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337338_1778862430.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران اعلام کردند نمایشگاه کتاب تهران امسال به صورت «مجازی» برگزار خواهد شد.
+بر اساس این خبر، نمایشگاه کتاب تهران از روز شنبه، ۲۶ اردیبهشت و به صورت آنلاین آغاز خواهد شد.
+باوجود آتش‌بس میان جمهوری اسلامی و آمریکا، بسیاری از برنامه‌های عادی در ایران همچنان تعطیل بوده یا به‌صورت مجازی برگزار می‌شود.
+https://iranintl.com/202605157688
+</div>
+
+## IranIntlTV — post 337337
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337337_1778862431.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال درباره گرانی‌ها از افزایش شدید نوشیدنی‌های الکلی در ایران خبر داده و می‌گوید هر لیتر «عرق سگی» یک میلیون و ۵۰۰ هزار تومان شده است. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337336
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337336_1778862433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، گفت موضوع اورانیوم غنی‌شده به دلیل پیچیدگی‌ها به بن‌بست رسیده و تصمیم گرفته شده در مراحل بعدی مذاکرات بررسی شود. او افزود تهران زمانی به مذاکرات بازمی‌گردد که مطمئن شود آمریکا برای یک توافق «عادلانه» آمادگی دارد.
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337335
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337335_1778862435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الهه محمدی و الناز محمدی، دو روزنامه‌نگار ایرانی، از سوی بنیاد بین‌المللی زنان رسانه مستقر در آمریکا به عنوان دریافت‌کنندگان جایزه «شجاعت در روزنامه‌نگاری» در سال ۲۰۲۶ معرفی شدند.
+این نهاد با اعلام اسامی برگزیدگان امسال تاکید کرد که این روزنامه‌نگاران با وجود فشارها، تهدیدها و محدودیت‌های گسترده، به فعالیت حرفه‌ای خود ادامه داده‌اند.
+
+بنیاد بین‌المللی زنان رسانه هر سال این جایزه را به روزنامه‌نگارانی اهدا می‌کند که در شرایط پرخطر و محدودکننده، فعالیت رسانه‌ای خود را ادامه می‌دهند. امسال علاوه بر دو روزنامه‌نگار ایرانی، خبرنگارانی از آمریکا، میانمار و فیلیپین نیز در میان برگزیدگان قرار دارند.
+https://iranintl.com/202605155076
+</div>
+
+## Persian_Trend_Official — post 14200
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14200_1778862436.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بجا مانده از رزمایش خامنه ای !!! به نظر شما چه چیزی در این تصویر جلب توجه میکند ؟ اضافه وزن نیروی سپاه پاسداران که اصلا شبیه یک نظامی ورزیده نیست . به مدل نشستن رو زاپاس هم اصلا نمیپردازیم ! وقتی میگم سپاه پاسداران از یک ارتش حرفه ای به یک گروه مسلح تبدیل…
+</div>
+
+## Persian_Trend_Official — post 14199
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14199_1778862437.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بجا مانده از رزمایش خامنه ای !!!
+
+به نظر شما چه چیزی در این تصویر جلب توجه میکند ؟
+
+اضافه وزن نیروی سپاه پاسداران که اصلا شبیه یک نظامی ورزیده نیست .
+به مدل نشستن رو زاپاس هم اصلا نمیپردازیم !
+
+وقتی میگم سپاه پاسداران از یک ارتش حرفه ای به یک گروه مسلح تبدیل شده دلیلش این هست.
+تازه عرزشی ها اعتقاد دارن جنگ زمینی تخصص اون هاست !
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14198
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14198_1778862437.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا چرا ؟
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14197
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14197_1778862438.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد منان رئیسی، نماینده مجلس: خسارت مستقیم جنگ به ایران فقط ۳۰ میلیارد دلار برآورد می‌شود در حالی که درآمد هر سال عوارض تنگه هرمز ۵۰ میلیارد دلار خواهد بود !!!
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/25 18:14
 ---
 
