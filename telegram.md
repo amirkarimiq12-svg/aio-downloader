@@ -7,6 +7,104 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 03:05
+---
+
+## rodast_omiddana — post 71390
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71390_1778888155.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سلام امید جان
+صدای پدافند شدید در شوشتر
+</div>
+
+## rodast_omiddana — post 71389
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71389_1778888155.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+"ما ۹ تا دوربین مختلف اطراف سایت هسته ای ایران داریم
+می‌تونیم اسم طرف رو هم بخونیم
+مثلاً اگه اسمش محمد باشه، ‌که خب بیشترشون محمدن، تقریباً می‌تونیم حدس بزنیم که حدود ۵۰٪ اطلاعاتش درست در میاد"
+</div>
+
+## KiriMohems — post 47557
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47557_1778888156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : من می‌تونم پل‌ها و شبکه برق ایران رو ظرف دو روز بگا بدم
+#Helsinki
+@KiriMohems
+</div>
+
+## IranIntlTV — post 337400
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337400_1778888158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر چین در سازمان ملل از پیش‌نویس قطعنامه پیشنهادی آمریکا و بحرین درباره تنگه هرمز انتقاد کرد و گفت «هم محتوا و هم زمان آن نامناسب است» و کمکی به کاهش تنش‌ها با جمهوری اسلامی نخواهد کرد.
+این پیش‌نویس از تهران می‌خواهد حملات و فعالیت‌های مین‌گذاری در تنگه هرمز را متوقف کند. چین و روسیه ماه گذشته نیز قطعنامه مشابهی را با این استدلال که جمهوری اسلامی را ناعادلانه هدف قرار می‌دهد، مسدود کرده بودند.
+
+https://iranintl.com/202605154459
+</div>
+
+## IranIntlTV — post 337399
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337399_1778888158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر چین در سازمان ملل از پیش‌نویس قطعنامه پیشنهادی آمریکا و بحرین درباره تنگه هرمز انتقاد کرد و گفت «هم محتوا و هم زمان آن نامناسب است» و کمکی به کاهش تنش‌ها با جمهوری اسلامی نخواهد کرد.
+این پیش‌نویس از تهران می‌خواهد حملات و فعالیت‌های مین‌گذاری در تنگه هرمز را متوقف کند. چین و روسیه ماه گذشته نیز قطعنامه مشابهی را با این استدلال که جمهوری اسلامی را ناعادلانه هدف قرار می‌دهد، مسدود کرده بودند.
+
+https://iranintl.com/202605154459
+</div>
+
+## IranIntlTV — post 337398
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337398_1778888159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سفیر چین در سازمان ملل از پیش‌نویس قطعنامه پیشنهادی آمریکا و بحرین درباره تنگه هرمز انتقاد کرد و گفت «هم محتوا و هم زمان آن نامناسب است» و کمکی به کاهش تنش‌ها با جمهوری اسلامی نخواهد کرد.
+این پیش‌نویس از تهران می‌خواهد حملات و فعالیت‌های مین‌گذاری در تنگه هرمز را متوقف کند. چین و روسیه ماه گذشته نیز قطعنامه مشابهی را با این استدلال که جمهوری اسلامی را ناعادلانه هدف قرار می‌دهد، مسدود کرده بودند.
+
+https://iranintl.com/202605154459
+</div>
+
+## IranIntlTV — post 337397
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337397_1778888160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس یادگاری سرمایه‌داری و کمونیسم در پکن، برای تهران تصویری آرامش‌بخش نبود؛ سفر ترامپ به چین نشان داد جمهوری اسلامی در اوج ضعف، بیش از آن‌که بازیگر میز قدرت‌ها باشد، به کارتی در دست واشینگتن و پکن تبدیل شده است.
+
+آرین ریسباف گزارش می‌دهد.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14225
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14225_1778888161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 02:07
 ---
 
