@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 20:08
+---
+
+## ChizBergerz — post 46458
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لینک دانلود اپ شیر و خورشید با نت ملی:
+
+https://punkpaste.ir/f/ShirOKhorshid-v-2026-o8t4ik
+
+لینک رو کپی کنید و تو مرورگر کروم بدون فیلترشکن باز کنید، این لینک طی ۲۴ ساعت آینده منقضی میشه.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46457
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46457_1778949537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاقبت بسته موندن مدارس و مهد‌کودک‌ها:
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71425
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71425_1778949537.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دوستان عزیز من خودم میدانم باید فایل برنامه ها و گفتگوها با آقای یوسیان را بزارم و پیامهای زیاد شما برای اینکه فایل را بزار بیشتر وقتمو میگیره، فایل نیاز به خروجی داره و کم کردن حجم و در کنار هزاران کار دیگری که برای برنامه شب باید انجام بدم اینکارم انجام میدهم، بنابراین هر شب و هر روز پیام ندید فایلها چی شد، همیشه در اولین فرصت که خروجی بگیرم میزارم، به پیامهای اینچنینی پاسخ نمیدم دمتون گرم ❤️
+</div>
+
+## rodast_omiddana — post 71424
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71424_1778949537.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک مقام آمریکایی به فاکس نیوز:
+ترامپ در آستانه صدور چراغ سبز برای آغاز جنگ قرار گرفته است.
+</div>
+
+## rodast_omiddana — post 71422
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂 رسوایی بزرگ برای 3پا...
+کویت تصاویر لحظه بازداشت تروریستهای 3پا را منتشر کرد..
+چقدر شیک با دیدن اولین اسلحه دست سرباز کویتی تسلیم شدند!
+
+پانوشت:
+تجهیزات این نیروهای ویژه 3پا در یک عملیات واقعی هم جالب است
+حتی تجهیزات غواصی هم مخصوص عملیات نیروی ویژه نیست
+گفته شده بود اینها روی لنج بودند ولی با توجه به عکس به نظر روی یک قایق تندرو بودند و حتی پیش از آغاز عملیات خفت شدند
+با این حساب پاشون به جزیره بوبیان هم نرسید
+</div>
+
+## KiriMohems — post 47590
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47590_1778949538.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به جای استفاده ۱ گیگ VPN برای کصچرخ زدن تو اینستاگرام ، چه کارهایی میشه کرد؟
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47589
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47589_1778949538.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وضعیت خایه جفت کُن توچال در عصر امروز
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251705
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251705_1778949539.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🇩🇪 فووری از پلتنبرگ: بازگشت نویر به تیم ملی آلمان واسه جام جهانی قطعیه و قراره گلر اول آلمان تو این تورنومنت باشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⏺ فقط و فقط با دعوت ۲ نفر کانفیگ رایگان دریافت کنید ، اختصاصی اسپورت بد نیوز
+👇
+
+
+🤖 @Confingfreeirbot
+</div>
+
+## SportBaadNews — post 251703
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمتر از یک ماه دیگه جام جهانی 2026 شروع میشه، فک کن توی تایمی که بزرگترین تورنمنت فوتبالی تاریخ درحال برگزاریه و مردم سراسر دنیا دارن لذت میبرن از بازیا، ما باید در به در دنبال چهارتا سرور رایگان کصشر باشیم که فقط بتونیم نتایج رو دنبال کنیم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251702
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251702_1778949540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسمی: منچسترسیتی با پیروزی مقابل چلسی قهرمان جام حذفی انگلیس (اف ای کاپ) شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251701
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251701_1778949540.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسمی: منچسترسیتی با پیروزی مقابل چلسی قهرمان جام حذفی انگلیس (اف ای کاپ) شد
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337501
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337501_1778949541.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتر اول با نیوشا صارمی، شنبه ۲۶ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337500
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337500_1778949542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری ایالات متحده، در گفت‌وگوی تلفنی با آنتوان اولار، خبرنگار بی‌اف‌ام تی‌وی در واشنگتن، گفت که حکومت ایران بهتر است به توافق برسد. او افزود: «اگر این کار را نکنند، دوران بسیار بدی در انتظارشان خواهد بود.»
+https://iranintl.com/202605163090
+</div>
+
+## IranIntlTV — post 337499
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337499_1778949542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی زینی‌وند، سخنگوی وزارت کشور، گفت: «محوریت تصمیم‌گیری در کشور خصوصا در حوزه صلح و جنگ، رهبری است. رهبری هم مسلط، فرمان دستش است و فرماندهی می‌کند. کسی در جایگاه مسئولیت، استاندار، نماینده، تریبون به‌دست، اگر خلاف سیاست‌های راهبری نظام اظهارنظر کند، شایسته نیست.»
+https://iranintl.com/202605169314
+</div>
+
+## IranIntlTV — post 337498
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337498_1778949543.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در آبادان با ارسال پیامی به ایران اینترنشنال از بیکاری در این شهر در پی بحران اقتصادی روایت می‌کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337497
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337497_1778949544.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، اعلام کرد با ادامه محاصره دریایی جمهوری اسلامی، تاکنون ۷۸ کشتی تجاری وادار به تغییر مسیر شده و ۴ کشتی دیگر نیز غیرفعال شده‌اند.
+جزییات بیشتر با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337496
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337496_1778949546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احسان قاضی‌زاده هاشمی، نماینده مجلس، درباره مذاکرات با آمریکا گفت: «قبل از ورود به بحث مذاکرات، باید آمریکا ادبیات ارعاب و تهدید خود را کنار بگذارد. وقتی چنین ادبیاتی وجود دارد، دیگر نمی‌توان آن را مذاکره نامید، بلکه به نوعی ارائه پیشنهادات و دادن سندی برای تسلیم است.»
+
+قاضی‌زاده هاشمی گفت: «باید این ادبیات آمریکایی که شامل ارعاب، تهدید و قلدری است، برطرف شود.»
+https://iranintl.com/202605169448
+</div>
+
+## IranIntlTV — post 337495
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337495_1778949546.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام این کشور خبر داد ترامپ ظرف ۲۴ ساعت آینده درباره حمله دوباره به ایران تصمیم می‌گیرد. این مقام رسمی گفت جنگ دوباره با جمهوری اسلامی نزدیک است. همزمان روزنامه معاریو چاپ اسرائیل نوشت ترامپ در آستانه دادن چراغ سبز جنگ است
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 19:16
 ---
 
