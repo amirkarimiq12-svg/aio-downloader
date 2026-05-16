@@ -7,6 +7,438 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 18:22
+---
+
+## ChizBergerz — post 46450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان اپ شیر و خورشید که دیشب گذاشتم عالی داره کار میکنه🔥 184.24.77.42 184.24.77.32 184.24.77.5 184.24.77.7 184.24.77.16 184.24.77.36 184.24.77.21 184.24.77.11 185.200.232.49 185.200.232.50 185.200.232.42 185.200.232.41 23.48.23.186 23.48.23.133 TEL: @chizBergerz…
+</div>
+
+## ChizBergerz — post 46449
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعضیا تو دایرکت میگن اپ شیر و خورشید رو با نت 3G تست کنید راحت تر و بهتر وصل میشه
+</div>
+
+## ChizBergerz — post 46448
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46448_1778943158.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی
+💅 توله موسوی، رئیس سابق ستاد کل نیروهای مسلح ج.ا: جنازه پدرمو پس‌از ۳۰ روز گشتن زیر آوار پیدا کردیم!🔥 @ChizNewz
+</div>
+
+## ChizBergerz — post 46447
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46447_1778943159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داره فاکتو میکنه بره پولشو بگیره شبم همونجا بخوابه و کص بده: 😂😂
+
+#کص_فدا
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46446
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46446" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46445
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46445_1778943160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge26
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46444
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46444_1778943161.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو اهواز یه خایمال نظام مست کرده و داره مثل کصخلا وسط خیابون قر میده: 😐😂
+
++ با اینا میخواید به جنگ زمینی با ارتش آمریکا برید؟😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم با همه نتا تست کنید:
+23.2.13.136
+72.246.28.37
+2.18.63.49
+2.16.53.11
+2.16.53.50
+2.16.19.136
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.11
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+2.22.250.149
+23.58.193.140
+23.48.23.151
+2.19.126.81
+23.202.138.125
+23.43.237.239
+104.112.146.82
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چندتا آیپی دیگه تست شده رو ایرانسل برای شیر خورشید:
+23.65.119.52
+23.73.2.141
+104.110.138.190
+104.83.5.202
+92.122.166.236
+92.122.166.234
+92.122.166.237
+96.16.122.70
+23.67.136.200
+23.67.136.202
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46441
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آی‌پی‌ها مخصوص اپ شیر و خورشید که بیشتر روی ایرانسل جوابه:
+184.24.77.42,
+184.24.77.32,
+184.24.77.5,
+184.24.77.7,
+184.24.77.16,
+184.24.77.36,
+184.24.77.21,
+184.24.77.11,
+185.200.232.49,
+185.200.232.50,
+185.200.232.42,
+185.200.232.41,
+23.48.23.186,
+23.48.23.133,
+23.48.23.195,
+23.48.23.178,
+184.24.77.29,
+2.22.21.152,
+95.101.23.82,
+23.215.0.164,
+23.197.161.35,
+184.28.230.87,
+23.220.128.221,
+96.17.207.142,
+23.50.131.18,
+23.36.162.209,
+23.219.3.212,
+23.223.245.150,
+96.16.122.59,
+23.2.13.138,
+23.2.13.144,
+96.17.207.135,
+23.220.113.51,
+96.17.72.41,
+23.203.185.105,
+2.16.27.71,
+2.16.244.11,
+2.17.147.89,
+2.17.251.98,
+2.18.190.26,
+2.18.190.27,
+2.19.10.30,
+2.19.196.105,
+2.20.255.113,
+2.21.89.66,
+2.21.239.10,
+2.21.239.21,
+2.21.239.23,
+2.21.239.29,
+2.22.6.68,
+2.23.176.166,
+@ChizBergerz
+</div>
+
+## KiriMohems — post 47585
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47585_1778943162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایسنا: چندساعت پیش یه کارخونه روغن موتور تو مراغه دچار آتش‌سوزی کیری سنگینی شده که نیروهای آتش‌نشانی در حال خاموش کردن آتش هستن.
+
++خوشبختانه تا این لحظه مصدوم یا تلفات جانی‌ای گزارش نشده.
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47584
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های رسمی ایران: کشورهای اروپایی در حال گفتگو و خایه مالی با تهران درباره تنگه هرمز هستند
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47583
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47583_1778943164.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از صحبت‌هایی که با کانال MVP داشتیم، تونستیم برای برو بچ کیری مهم یه تخفیف خفن بگیریم 
+🎉
+🚀 کانفیگ‌هاشون برای اتصال به اینترنت جهانی مناسب گیم، ترید، اینستاگرام، توییتر، تلگرام و… رو با تخفیف خیلی خفنی قرار دادن
+🤑 کیفیتشون تضمین شده هست 
+✅. ۲ ماه هست که…
+</div>
+
+## SportBaadNews — post 251698
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251698_1778943165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️| بیانیه محمد صلاح: من دیدم این باشگاه از شک و تردید رسید به باور و از باور رسید به قهرمانی. من همیشه با کار سخت هر کاری از دستم برمی‌اومد انجام دادم تا به اینجا برسیم و هیچچیز به اندازه این منو مغرور نمیکنه.
+
+
+🔴 این‌که دوباره این فصل چند تا باخت داشتیم خیلی برام دردناک بود و چیزی نیست که هوادارای لیورپول لیاقتشو داشته باشن. من میخوام لیورپول برگرده به همون تیم هجومی و ترسناک همیشگی، همون تیمی که همه ازش حساب میبردن. این همون فوتبالیه که من بلدم بازی کنم و این هویت باید برگرده و حفظ بشه، و هیچ‌کس نباید درش شک کنه.
+
+
+🔴 بردهای معمولی و گه‌گاهی برای لیورپول کافی نیست. همه تیم‌ها یه جاهایی میبرن. لیورپول همیشه برای من و خانواده‌م مهم بوده و می‌خوام حتی بعد از من هم به موفقیت ادامه بده.
+
+
+🔴 و همون‌طور که همیشه گفتم، رسیدن به لیگ قهرمانان حداقل چیزیه که باید بهش برسیم و من تا جایی که بتونم برای این هدف می‌جنگم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاقبت مجازی کردن مدارس و مهد‌کودک‌ها : 
+😶 @Okhtapooous
+</div>
+
+## IranIntlTV — post 337490
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337490_1778943165.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری آناتولی ترکیه گزارش داد که هاکان فیدان، وزیر خارجه ترکیه، با علی باقری‌کنی، معاون بین‌الملل دبیرخانه شورای عالی امنیت ملی، روز شنبه در استانبول دیدار کرد. این خبرگزاری اعلام کرد جزئیات بیشتری از این دیدار منتشر نشده است.
+https://iranintl.com/202605168367
+</div>
+
+## IranIntlTV — post 337489
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337489_1778943166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم استکهلم، شنبه ۲۶ اردیبهشت در حمایت از انقلاب ملی تجمع کردند. تجمع‌کنندگان ضمن حمایت از شاهزاده رضا پهلوی، می‌گویند هدف از برگزاری این تجمعات، رساندن صدای مردم ایران به جهان است.
+
+مهران عباسیان، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337488
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337488_1778943167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲۶ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337487
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337487_1778943169.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در یکی دیگر از آخر هفته‌های اعتراضی ایرانیان خارج از کشور، شنبه ۲۶ اردیبهشت تجمعات و راهپیمایی‌های گسترده‌ای در شهرهای مختلف اروپا در حمایت از انقلاب ملی مردم ایران برگزار شد.
+
+گفت‌وگوی احمد صمدی ، خبرنگار ایران‌اینترنشنال، با شرکت‌کنندگان در تجمع برلین
+@iranintltv
+</div>
+
+## IranIntlTV — post 337486
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337486_1778943170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه به نقل از منابعی خبر داد که سفر محسن نقوی، وزیر کشور پاکستان، به ایران با هدف رسیدن به چارچوب یک توافق انجام شده است. بر اساس این گزارش، پیشرفت مثبتی درباره تنگه هرمز حاصل شده و درها برای مذاکره درباره موارد باقی‌مانده از جمله موضوع هسته‌ای، باز است
+https://iranintl.com/202605165331
+</div>
+
+## IranIntlTV — post 337485
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337485_1778943171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در یکی دیگر از آخر هفته‌های اعتراضی ایرانیان خارج از کشور، شنبه ۲۶ اردیبهشت تجمعات و راهپیمایی‌های گسترده‌ای در شهرهای مختلف اروپا در حمایت از انقلاب ملی مردم ایران برگزار شد.
+
+احمد صمدی ، خبرنگار ایران‌اینترنشنال، از برلین گزارش می‌دهند
+@iranintltv
+</div>
+
+## IranIntlTV — post 337484
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337484_1778943173.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه گزارش‌ها از لکه نفتی ایجادشده در اطراف جزیره خارک، وبسایت تانکر ترکرز نوشت این موضوع ناشی از نشت نفت از اسکله غربی این جزیره است. خبرگزاری بلومبرگ نیز نوشت توقف صادرات نفت ایران از خارک، به احتمال زیاد ناشی از نشت اخیر نفت بوده است.
+
+گفت‌وگو با آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337483
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337483" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | شنبه ۲۶ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337482
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337482_1778943175.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ هشدار داد اگر جمهوری اسلامی اورانیوم غنی‌شده خود را تحویل ندهد، آمریکا «در زمان مناسب» وارد ایران خواهد شد. او تاکید کرد در صورت لزوم، زیرساخت‌های باقی‌مانده را «ظرف دو روز» نابود می‌کند.
+گفت‌وگو با جابر رجبی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337481
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337481_1778943177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، مرکز فرماندهی ایالات متحده، اعلام کرد که از آغاز محاصره سواحل جنوب ایران تاکنون، ۷۸ کشتی تجاری وادار به تغییر مسیر شده‌اند و ۴ کشتی برای تضمین اجرای محاصره از کار افتاده‌اند.
+
+سنتکام با انتشار نمایی از داخل یک بالگرد بر فراز آب‌های منطقه‌ای نزدیک تنگه هرمز، نوشت که این بالگرد ارتش آمریکا کشتی‌های تجاری را در جریان اجرای محاصره دریایی ایران زیر نظر دارد.
+https://iranintl.com/202605164791
+</div>
+
+## IranIntlTV — post 337480
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337480_1778943177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایلا واویه، سخنگوی ارتش اسرائیل برای رسانه‌های عربی، در پیامی نوشت لبنان «میان چنگ ملایان و رشته‌های وابستگی» از یک کشور به گروگان تبدیل شده است.
+
+او نوشت زمانی که جنگ‌ها «با انگشتان ایرانی اداره می‌شود»، مردم لبنان بهای آن را با «ویرانی و خاکستر» می‌پردازند.
+
+واویه همچنین اعلام کرد لبنان به سکویی تبدیل شده و حزب‌الله «رشته‌هایی است که از سوی تهران حرکت داده می‌شود» و نتیجه این وضعیت، به گفته او، «کشوری که سیاه‌پوش می‌شود و بی‌گناهانی که جز آینده‌ای نامعلوم سهمی ندارند» است.
+
+سخنگوی ارتش اسرائیل در پایان پرسید: «لبنان به کجا می‌رود؟ و تا کی؟»
+https://iranintl.com/202605163963
+</div>
+
+## IranIntlTV — post 337479
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337479_1778943178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان سوئیس روز شنبه با تجمع در شهر برن به حمایت از انقلاب ملی و شاهزاده رضا پهلوی پرداختند و شعار «جاوید شاه» سر دادند.
+</div>
+
+## IranIntlTV — post 337478
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337478_1778943180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در واکنش به نمایش و آموزش کار با سلاح در صداوسیما یک شهروند در پیامی به ایران اینترنشنال این اقدام را نشانه سقوط حکومت خواند و مخاطبی دیگر به حرکت مشابه در لیبی قبل از سقوط حکومت معمر قذافی اشاره کرد.
+
+پیام این مخاطبان با هوش مصنوعی بازخوانی شده است.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 17:29
 ---
 
