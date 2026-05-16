@@ -7,6 +7,348 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 12:30
+---
+
+## rodast_omiddana — post 71403
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71403_1778922002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانال12:
+"بر اساس برآوردها، دونالد ترامپ ظرف ۲۴ ساعت آینده درباره اقدام نظامی احتمالی علیه جمهوری اسلامی تصمیم خواهد گرفت.
+یک مقام ارشد اسرائیلی در همین رابطه گفت:
+ازسرگیری جنگ نزدیک است و برای چند روز تا چند هفته جنگ آماده می‌شویم."
+</div>
+
+## rodast_omiddana — post 71402
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 حمله میثم مطیعی با پوشش وحدت به مخالفین قالیباف و مذاکرات
+لینک یوتیوب:
+https://www.youtube.com/watch?v=bTWMM52g4E0
+</div>
+
+## rodast_omiddana — post 71401
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71401_1778922002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پوتین سه‌شنبه به چین سفر می‌کند
+</div>
+
+## rodast_omiddana — post 71400
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71400_1778922002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 واشنگتن پست:
+ایران واضح‌ترین بازنده دیدار ترامپ از پکنه؛ با مخالفت علنی پکن با اختلال در هرمز، تعهد به عدم ارسال تجهیزات نظامی به تهران و توافق بر اینکه تنگه باید باز بمونه، ایران به یه بازنده‌ی واقعی تبدیل شده.
+</div>
+
+## rodast_omiddana — post 71399
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71399_1778922002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خضریان نماینده مجلس، به کویت میگوید حواست باشد تا دوباره 90 دقیقه ای اشغال نشوی...
+یکی به این بچه شیعه ها که عادت کردن داستان را نصفه تعریف کنند بگه ادامش کویت 45 دقیقه ای هم آزاد شد..
+</div>
+
+## rodast_omiddana — post 71398
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71398_1778922003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ: در مورد رژیم ایران صبرم تمام شده
+احتمالا یک پاکسازی از سران رژیم خواهیم داشت!
+</div>
+
+## KiriMohems — post 47565
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیشب تو بعضی از برنامه های کصشعر صداوسیما، مجری هاش فاز عرِ گوزی برداشتن و با تفنگ اومدن
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47564
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47564_1778922005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴در و دافای عربی بدجوری روی عباس عراقچی کراش زدن و براش اینجوری خیس میکنن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251678
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251678_1778922006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مورینیو هیچ علاقه ای به استراحت نداره
+
+
+🟡2000 — بنفیکا
+
+🟡2001–2002 — یونیائو ده لیریا
+
+🟡2002–2004 — پورتو
+
+🟡2004–2007 — چلسی
+
+🟡2008–2010 — اینتر
+
+🟡2010–2013 — رئال مادرید
+
+🟡2013–2015 — چلسی
+
+🟡2016–2018 — من یونایتد
+
+🟡2019–2021 — تاننهام
+
+🟡2021–2024 — رم
+
+🟡2024–2025 — فنرباغچه
+
+🟡2025–2026 — بنفیکا
+
+🟡2026— 
+❓— رئال مادرید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251677
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251677_1778922007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز ساعت 17:30 فینال جام حذفی انگلیس بین چلسی و من سیتی برگزار میشه.
+
+نتایج 14 بازی اخیر دو تیم :
+
+✅ 11 برد سیتی
+
+🔵 3 تساوی
+
+✅ 0 برد چلسی
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337431
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337431_1778922007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیمای جمهوری اسلامی جمعه چند برنامه پخش کرد که در آنها مجریان در بخش‌های استودیویی با در دست داشتن تفنگ ظاهر شدند و کار با سلاح‌های سبک آموزش داده شد. مجریان در این برنامه‌ها اعلام کردند که در صورت لزوم به جنگ خواهند پیوست.
+
+این برنامه‌ها که دست‌کم در سه بخش پخش شد، در رسانه‌های داخلی بازنشر و در شبکه‌های اجتماعی با واکنش‌هایی همراه شد. برخی کاربران شبکه‌های اجتماعی این بخش‌ها را نشانه‌ای از بسیج در شرایط جنگی توصیف کردند.
+
+جکسون هینکل، مفسر سیاسی آمریکایی، در شبکه اجتماعی ایکس نوشت تلویزیون دولتی ایران نحوه استفاده و شلیک با کلاشینکف را به‌عنوان «آمادگی برای تهاجم زمینی آمریکا» نشان می‌دهد.
+https://iranintl.com/202605169752
+</div>
+
+## IranIntlTV — post 337430
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337430_1778922008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جشنواره فیلم کن در حالی وارد پنجمین روز خود شد که واکنش‌ها به نمایش و نشست خبری فیلم «داستان‌های موازی» ساخته اصغر فرهادی همچنان ادامه دارد.
+
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337429
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337429_1778922009.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حسین شریعتمداری، نماینده رهبر جمهوری اسلامی در روزنامه کیهان، نوشت کشورهای عربستان سعودی، امارات متحده عربی، کویت، قطر، بحرین و اردن در جنگ اخیر «حضور و شرکت مستقیم داشتند» و به همین دلیل، باید «بخشی از اهداف نشاندار» حکومت ایران در انتقام خون علی خامنه‌ای باشند.
+
+او افزود مذاکره با آمریکا و این کشور‌های عربی «بخشی از سازوکار تعریف‌شده نظام» است، اما «جنگ نباید و نمی‌تواند بدون انتقام سخت از قاتلان امام شهیدمان به نقطه پایان برسد».
+https://iranintl.com/202605169925
+</div>
+
+## IranIntlTV — post 337428
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337428_1778922010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رویترز به نقل از یک منبع آگاه گزارش داد که متیاس گرافستروم، دبیرکل فیفا، روز شنبه در استانبول با مقام‌های فدراسیون فوتبال ایران دیدار می‌کند و درباره حضور تیم ملی در جام جهانی ۲۰۲۶ «اطمینان خاطر» خواهد داد. این درحالی است که مهدی تاج پیش از این خواستار تضمین‌هایی از فیفا شده بود.
+
+🔹به گفته این منبع، «فیفا با مقام‌های ذی‌ربط همکاری نزدیک دارد تا همه تیم‌های حاضر در جام جهانی بتوانند در محیطی امن و مطمئن رقابت کنند.»
+
+🔹فدراسیون فوتبال در فاصله کمتر از یک ماه تا آغاز جام‌جهانی با بحران ویزا و چالش مالی دست‌به‌گریبان است. امیر قلعه‌نویی هنوز نمی‌داند کدام بازیکن ویزا خواهد گرفت و کدام بازیکن را در آمریکا در اختیار خواهد داشت.
+
+🔹احتمال دارد برای برخی اعضای کاروان ایران به دلیل سوابق فعالیت یا ارتباط با سپاه پاسداران، ویزا صادر نشود.
+
+🔹مهدی تاج، رییس فدراسیون فوتبال، پنج‌شنبه ۲۴ اردیبهشت گفت: «در ترکیه جلسه‌ای سرنوشت‌سازی با فیفا داریم، چون باید به ما گارانتی بدهند. مساله ویزا حل نشده و هنوز هیچ ویزایی ندادند. منتظریم ببینیم رفتار طرف مقابل چیست.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337427
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337427_1778922010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس اعلام کرد خاموشی دیجیتال در ایران وارد دوازدهمین هفته خود شده و اکنون به هفتاد و هشتمین روز رسیده است؛ وضعیتی که به گفته این نهاد، یک قطعی بی‌سابقه در مقیاس ملی به شمار می‌رود.
+
+بر اساس این گزارش، قطع اینترنت که کشوری با ۹۰ میلیون جمعیت را تا حد زیادی آفلاین کرده، همچنان به تضعیف گسترده حقوق بشر، اقتصاد و آزادی‌های اساسی ادامه می‌دهد.
+https://iranintl.com/202605169641
+</div>
+
+## IranIntlTV — post 337426
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337426_1778922011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک کشاورز با ارسال پیامی به ایران‌اینترنشنال درباره نصف شدن سهمیه کود نسبت به سال گذشته می‌گوید: «وقتی همین سهمیه کم می‌آید، فقط دو سه روز مهلت برای خرید داریم. اگر کسی توانایی خرید نداشته باشد سهمش می‌سوزد. دولت هم سهم کود دولتی آن فرد را به صورت آزاد می‌فروشد.»
+</div>
+
+## IranIntlTV — post 337425
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337425_1778922012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست دو روزه بریکس در دهلی‌نو بدون صدور بیانیه مشترک درباره بحران خاورمیانه پایان یافت. هند، رییس دوره‌ای نشست، اعلام کرد اختلاف‌نظر عمیق میان اعضا مانع دستیابی به موضع مشترک شده است.
+
+گزارش راضیه دانش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337424
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337424_1778922013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل از هدف قرار گرفتن عزالدین حداد، فرمانده شاخه نظامی حماس و از طراحان حمله ۷ اکتبر، در حمله هوایی به غزه خبر داد. او ارشدترین مقام حماس است که پس از توافق آتش‌بس در غزه هدف حمله قرار گرفته است.
+
+اشکان صفایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337423
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337423_1778922015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کرملین در بیانیه‌ای اعلام کرد ولادیمیر پوتین، رییس‌جمهوری روسیه، به‌زودی راهی چین خواهد شد و در روزهای سه‌شنبه و چهارشنبه، ۲۹ و ۳۰ اردیبهشت، با مقام‎‌های این کشور دیدار خواهد کرد.
+
+بر اساس این بیانیه، پوتین و شی جین‌پینگ، رییس‌جمهوری چین، قرار است درباره «روابط دوجانبه» و «مسائل کلیدی بین‌المللی و منطقه‌ای» گفت‌وگو کنند.
+
+پوتین در حالی به چین سفر خواهد کرد که دونالد ترامپ، رییس‌جمهوری آمریکا، سفر دوروزه خود به پکن را ۲۵ اردیبهشت به پایان رساند.
+https://iranintl.com/202605160617
+</div>
+
+## IranIntlTV — post 337422
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337422_1778922016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در فاصله یک ماه تا شروع جام جهانی، تیم ملی فوتبال در پی انزوای سیاسی جمهوری اسلامی نتوانست با حریفان تدارکاتی مناسب دیدار کند و درباره بازی‌های تدارکاتی تناقض‌گویی در صحبت‌های مدیران فدراسیون فوتبال جمهوری اسلامی دیده می‌شود.
+
+🔹توضیحات رها پوربخش، ایران‌اینترنشنال در برنامه هت‌تریک
+
+🔹تماشای نشخه کامل هت‌تریک؛👇
+https://youtu.be/v5Exyf8Nyes
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337421
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337421_1778922017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در پیامی به پاپ لئو، رهبر کاتولیک‌های جهان، از آنچه «موضع اخلاقی و منطقی» او در قبال جنگ ایران خواند، قدردانی کرد.
+
+در این پیام آمده است: «حملات آمریکا و اسرائیل صرفا علیه ایران نیست، بلکه علیه حاکمیت قانون و ارزش‌های انسانی است.»
+
+پزشکیان افزود جمهوری اسلامی «در چارچوب دفاع مشروع، اهداف و منافع متجاوزین را مورد هدف قرار داد».
+
+او همچنین خواستار واکنش «مسئولانه» جامعه جهانی به «اقدامات غیرقانونی» ایالات متحده شد.
+https://iranintl.com/202605167385
+</div>
+
+## Persian_Trend_Official — post 14233
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14233_1778922017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فراخوان مشمولان متولد ۱۳۵۵ تا ۱۳۸۷ برای تعیین‌تکلیف سربازی
+
+🔹سازمان وظیفهٔ عمومی فراجا اعلام کرد: همهٔ مشمولان غایب و غیرغایب متولد سال‌های ۱۳۵۵تا ۱۳۸۷ باید خدمت وضعیت خدمتی خود را تعیین‌تکلیف کنند و مشمولانی که در مهلت تعیین‌شده وضعیت خود را مشخص نکنند، وارد غیبت می‌شوند و با محرومیت‌های اجتماعی مواجه خواهند شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14230
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اجرای برنامه ها به صورت مسلح در صداوسیما ..
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14229
+
+
+
+
+## Persian_Trend_Official — post 14228
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر به تاریخ، مسائل نظامی و پشت‌پرده اتفاقات منطقه علاقه داری، پیشنهاد می‌کنم حتماً پادکست پرشین ترند رو هم دنبال کنی.
+
+این‌جا فقط خبر گفته نمی‌شه؛
+موضوعات از پایه باز می‌شن، تحلیل می‌شن و با یک روایت قابل فهم ارائه می‌شن.
+
+از بررسی سلاح‌ها و تکنولوژی‌های نظامی گرفته تا اتفاقات تاریخی و تحولات روز، با یک نگاه متفاوت و عمیق.
+
+اگر دوست داری بدونی واقعاً پشت این خبرها چی می‌گذره، این پادکست رو از دست نده 👇
+
+
+
+https://castbox.fm/channel/%D9%BE%D8%B1%D8%B4%DB%8C%D9%86-%D8%AA%D8%B1%D9%86%D8%AF-%7C-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA-%D8%AA%D8%B1%DB%8C%D9%86-%D9%BE%D8%A7%D8%AF%DA%A9%D8%B3%D8%AA-%D8%AA%D8%A7%D8%B1%DB%8C%D8%AE%DB%8C-%D9%88-%D9%86%D8%B8%D8%A7%D9%85%DB%8C-%D9%81%D8%A7%D8%B1%D8%B3%DB%8C-id6056489?nojump=1&country=gb
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 10:36
 ---
 
