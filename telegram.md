@@ -7,6 +7,219 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:03
+---
+
+## ChizBergerz — post 46467
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46467_1778967202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی به تاکتیک‌های ناشناخته محسن رضایی اعتماد‌ میکنی: 😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46466
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46466_1778967202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری‌اسهالی اومده یه سایت بنام "Hormuz Safe" راه اندازی کرده و هر کشتی‌ای میخواد رد بشه باید بیاد اینجا عوارضی رو بصورت بیت‌کوین پرداخت کنه: 
+💩
+💩
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46465
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46465_1778967202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجری: خواهش می‌کنم سلام من رو به مجتبی مقوایی برسونید.
+
+حدادعادل: منم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونیم
+💩😂
+
++ راست میگه، چطور کسی که سلامتو به کسی که مُرده برسونه؟
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46464
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46464_1778967204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چی شد؟ مگه ۳۰ میلیون جان‌فدا نداشتید؟ افتادید دنبال ۵۰ ساله‌ها برای گوشت دم توپ کردن؟
+
+@ChizBergerz
+</div>
+
+## SportBaadNews — post 251734
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ ژوزه مورینیو با بنفیکا فصل 2025/26 تو لیگ پرتغال رو بدون شکست و در رتبه سوم به پایان رسوند! @SportBaadNews
+</div>
+
+## SportBaadNews — post 251733
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251733_1778967205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ ژوزه مورینیو با بنفیکا فصل 2025/26 تو لیگ پرتغال رو بدون شکست و در رتبه سوم به پایان رسوند!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251732
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251732_1778967205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔙| روزی روزگاری رئال مادرید...
+
+
+⚪️ ارزش دانلود 99 از 100
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فابریزیو رومانو: خرید باستونی توسط بارسلونا فعلا سرش گرده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251730
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251730_1778967207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها بازیکنی که تو دوران سلطنت مسی و رونالدو تونست برنده توپ طلا بشه 
+🥇
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251729
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251729_1778967207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀 بازارو حدس نزن… تحلیلش کن!
+
+
+➕با قوی ترین ربات تحلیلگر هوش مصنوعی: سریع‌تر از بازار تصمیم بگیر.
+
+
+📊سریع، دقیق، رایگان
+
+
+📊دلار ٫ طلا ٫ کریپتو
+
+الگو آنالایزر | دستیار هوشمند معامله‌گران
+
+
+✨@algo_analyzer_bot
+</div>
+
+## IranIntlTV — post 337534
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337534_1778967208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «شاهزاده رضا پهلوی روز شنبه در نشستی درباره آینده تکنولوژی در ایران، بر غیرقابل‌اصلاح بودن جمهوری اسلامی و وجود اتفاق‌نظر ملی برای سرنگونی آن تاکید کرد و گفت سیاست مماشات با حکومت نتیجه‌ای نخواهد داشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337533
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337533_1778967209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «اکثریت مردم در صورت شروع جنگ جدید امیدوارند که این جنگ به سرنگونی جمهوری اسلامی منتج شود. اکثریت مردم از حمله به ساختارهای سرکوب و هدف قرار گرفتن مقامات و فرماندهان سرکوبگر حمایت می‌کنند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337532
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337532_1778967210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ گزارش داد توقف صادرات نفت ایران از خارک به احتمال زیاد ناشی از لکه نفتی ایجادشده اطراف این جزیره است.
+
+بنابر این گزارش، تولید نفت ایران نسبت به پیش از جنگ روزانه نیم‌میلیون بشکه کاهش یافته است.
+
+گفت‌وگو با مهدی مصلحی، کارشناس بازار نفت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337531
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337531_1778967212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ماتیاس گرافستروم، دبیرکل فیفا پس از جلسه با مهدی تاج، رییس فدراسیون فوتبال ایران درباره گفت: «نشست بسیار خوبی با فدراسیون فوتبال ایران داشتیم. فکر می‌کنم بسیار نزدیک با یکدیگر همکاری می‌کنیم و مشتاقانه منتظر استقبال از آن‌ها در جام جهانی ۲۰۲۶ در آمریکا، کانادا و مکزیک هستیم.»
+
+🔹او گفت: «همچنین فرصت داشتیم درباره برخی مسائل اجرایی صحبت کنیم؛ همان‌طور که با تمام فدراسیون‌های عضو این کار را انجام می‌دهیم.»
+
+🔹دبیرکل فیفا در پاسخ به سوالی درباره تضمین‌های مورد نظر فدراسیون فوتبال ایران برای ویزا و ورود تیم ملی به آمریکا و کانادا گفت: «فکر می‌کنم اینجا جای مطرح کردن جزئیات نیست. مشتاق ادامه گفت‌وگوها هستیم. درست مانند گفت‌وگوهایی که با همه فدراسیون‌های عضو داریم.»
+
+🔹همچنین تاج درباره این جلسه گفت: «جلسه خیلی خوبی بود؛ ۱۰ موردی که گفته بودیم را شنیدند و برای هر کدام راه حل‌هایی ارائه کردند. امیدوارم که تیم ملی به جام جهانی برود و نتایج خوبی بگیرد.»
+
+🔹تاج پیش‌تر گفته بود اگر فیفا به فدراسیون فوتبال ضمانت‌های لازم را ندهد، تیم ملی در جام جهانی حاضر نخواهد شد.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337530
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337530_1778967214.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام این کشور گزارش داد دونالد ترامپ ظرف ۲۴ ساعت آینده درباره حمله دوباره به ایران تصمیم خواهد گرفت.
+
+این مقام همچنین گفته جنگ دوباره با جمهوری اسلامی نزدیک است.
+
+گفت‌وگو با بن سبطی، پژوهشگر ایران و اسرائیل
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار بزرگ در بیت‌شمش 💢رسانه‌های عبری از وقوع انفجاری بسیار بزرگ در بیت‌شمش در اسرائیل خبر می‌دهند. 💢این رسانه‌ها با بیان اینکه ارتش مانع از ورود خودروهای امدادی به محل حادثه می‌شود، تصریح کردند این انفجار احتمالاً در تأسیساتی حساس رخ داده است. 🫆:Tony…
+</div>
+
+## Persian_Trend_Official — post 14278
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14278_1778967215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های اسرائیلی از انفجار در کارخانه صنایع موشکی «تومر» خبر دادند 💢رسانه‌های اسرائیلی گزارش دادند انفجاری در کارخانه شرکت «تومر» رخ داده است؛ شرکتی که در حوزه توسعه و تولید موتورهای موشکی و سامانه‌های پیشران فعالیت می‌کند. ▪️بر اساس گزارش‌ها، این شرکت…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 00:07
 ---
 
