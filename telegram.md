@@ -7,6 +7,316 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 17:29
+---
+
+## rodast_omiddana — post 71418
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71418_1778939958.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨همین الان زنده در اینستاگرام پشتیبانی با بهروز یوسیان
+👇
+https://www.instagram.com/risheh86/
+</div>
+
+## rodast_omiddana — post 71417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 ترامپ از چین برگشت
+احتمالا این هفته حملات آغاز شود
+لینک یوتیوب:
+https://www.youtube.com/watch?v=RF854bo34gs
+</div>
+
+## KiriMohems — post 47582
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47582_1778939959.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از صحبت‌هایی که با کانال MVP داشتیم، تونستیم برای برو بچ کیری مهم یه تخفیف خفن بگیریم 
+🎉
+🚀
+
+کانفیگ‌هاشون برای اتصال به اینترنت جهانی مناسب گیم، ترید، اینستاگرام، توییتر، تلگرام و… رو با تخفیف خیلی خفنی قرار دادن
+🤑
+
+
+کیفیتشون تضمین شده هست 
+✅. ۲ ماه هست که تیم کیری مهم از همین کانفیگ‌ها استفاده می‌کنه 
+⚙️
+♨️
+🔐
+
+ادرس رباتشون 👇
+@Mvp_paybot
+
+ادرس کانالشون👇
+@VpnMVP
+</div>
+
+## KiriMohems — post 47581
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47581_1778939959.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فراخوان خدمت کیر خری سربازی برای داداچی های متولد ۸۷
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47580
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47580_1778939960.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاید سوالی ذهن شما رو سوراخ کرده که چطور از نمایشگاه مجازی کتاب بخریم؟
+
+هفتمین نمایشگاه مجازی کتاب تا دوم خرداد در سامانه قابل دسترسی و انگولک کاری است.
+
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47579
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47579_1778939963.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفر گوز ناشتایی و یهویی وزیر کشور پاکستان به تهران
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47578
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47578_1778939964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز ، روز جهانی پسره
+
+به یاد تمام پسران #جاویدنام و سیاوش هایی که از جون شیرین خودشون برای ایران عزیز گذشتن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔴 بایرن مونیخ 1 بازی دیگه تو بوندسلیگا داره و اگه 8 تا بزنه با رکورد تورینو برابری میکنه
+</div>
+
+## SportBaadNews — post 251695
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251695_1778939965.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ ماریو کورتیانا و گیلرمو رای: دنی کارواخال آخر فصل از رئال مادرید جدا میشه @SportBaadNews
+</div>
+
+## SportBaadNews — post 251693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| ترکیب رسمی منچسترسیتی و چلسی برای فینال FA CUP، ساعت 17:30
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251692
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط و فقط بیسسسسسسس و شیش روز دیگه تا جام جهانی مونده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251691
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251691_1778939966.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇰🇷
+⚽️| لیست تیم ملی کره جنوبی با حضور سون دوست داشتنی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251690
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251690_1778939967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش شیر و خورشید داری ببین برو تو تنظیمات بزن تونل مای اس و فلان چندتا ایپی تمیز فیلتر نشده از سایت 220393 دانلود کن بعد اکسترکت کن بعد بزن اپ تلوبیون برو نصبش کن تو تنظیمات گوشیت بهش دسترسی بده حالا گوشیتو نیم ساعت بزار تو فریزر حالا درش بیار ده دقه بزار ابش خشک بشه حالا وقتشه دو دقه بزاریش تو ماکرویو حالا یه چهار تا پنج ساعت صبر کن وصل میشه داداش تضمینی نیست منطقه ای هستش ولی سرعت عالی خدا نصبش کن رایگانه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337477
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337477_1778939968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان آلمان روز شنبه همزمان با سایر کشورها در حمایت از انقلاب ملی علیه جمهوری اسلامی در شهر کاسل تجمع کردند.
+</div>
+
+## IranIntlTV — post 337476
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337476_1778939971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاریو گزارش داد که حوثی‌ها ابزارهای مدرن، از جمله دستگاه‌های جی‌پی‌اس را در اختیار دزدان دریایی سومالی قرار داده‌اند که به آنها کمک می‌کند مسیرهای حرکت کشتی‌های تجاری را با دقت بیشتری ردیابی کنند.
+
+پیش‌تر محمد موسی ابوله، معاون رییس اطلاعات پلیس دریایی پونتلند، در ژانویه ۲۰۲۶ گفته بود که نیروهای امنیتی برآورد می‌کنند برخی اعضای این گروه‌ها حتی آموزش‌های نظامی را در یمن گذرانده‌اند.
+
+به گفته او، فناوری جدید برنامه‌ریزی حملات در فاصله‌ای دور از سواحل سومالی را بسیار آسان‌تر کرده است. یک ماه پیش از آن، در دسامبر ۲۰۲۵، نیروهای امنیتی پونتلند یک شناور حامل مواد منفجره و مواد شیمیایی مورد استفاده در ساخت بمب را در نزدیکی سواحل ایل متوقف کردند. در این قایق هفت نفر شامل دو شهروند یمنی و پنج شهروند سومالیایی حضور داشتند.
+https://iranintl.com/202605167159
+</div>
+
+## IranIntlTV — post 337475
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337475_1778939971.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در تجمعی که به فراخوان تامی رابینسون، فعال راست‌گرای بریتانیا، در لندن برگزار شد، شماری از ایرانیان با پرچم شیر و خورشید حضور پیدا کردند. رابینسون این تجمع را «بزرگ‌ترین گردهمایی ملی‌گرایانه» توصیف کرده است.
+گفت‌وگو با تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337474
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337474_1778939974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از وقوع آتش‌سوزی در «کارخانه روغن موتور» در مراغه خبر داد. رییس آتش‌نشانی شهرستان مراغه بعد از ظهر شنبه اعلام کرد این کارخانه از ساعاتی پیش دچار آتش‌سوزی شده است و نیروهای امدادی و آتش‌نشانی در حال اطفای حریق هستند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337473
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337473_1778939975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر از وقوع آتش‌سوزی در «کارخانه روغن موتور» در مراغه خبر داد. رییس آتش‌نشانی شهرستان مراغه بعد از ظهر شنبه اعلام کرد این کارخانه از ساعاتی پیش دچار آتش‌سوزی شده است و نیروهای امدادی و آتش‌نشانی در حال اطفای حریق هستند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337472
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337472_1778939976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال با اشاره به بحران معیشتی می‌گوید که سه ماه است مجلس با خاک یکی شده و نباید آن‌ها «حقوق آن‌چنانی»‌ بگیرند. پیام این مخاطب با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## IranIntlTV — post 337471
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337471_1778939979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیمای جمهوری اسلامی روز جمعه برنامه‌ای پخش کرد که در آن یک نظامی به مجری استفاده از سلاح گرم را آموزش می‌داد. این برنامه در شبکه‌های اجتماعی موجی از واکنش‌ها را به همراه داشت. مجری در این برنامه به پرچم امارات متحده عربی شلیک کرد.
+جزییات بیشتر با محسن مهیمنی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337470
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337470_1778939981.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان فنلاند روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی در هلسینکی تجمع کردند و شعار «تغییر رژیم» سر دادند.
+</div>
+
+## IranIntlTV — post 337469
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337469_1778939984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع استکهلم در گفت‌وگو با مهران عباسیان، خبرنگار ایران‌اینترنشنال، گفت: «ما پشت مردم داخل کشور هستیم و تا روز آزادی ایران به خیابان‌ها می‌آییم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337468
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337468_1778939987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم کره جنوبی و ژاپن بار دیگر در پاسخ به فراخوان حمایت از انقلاب ملی و در راستای جلب توجه دولت سئول و توکیو به نقض گسترده حقوق بشر و اعدام‌‌ها توسط جمهوری اسلامی تجمع کردند.
+
+گزارش توماج طاهباز، خبرنگار ایران‌اینترنشنال، از پیام شرکت‌کنندگان در این تجمع‌ها
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14239
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14239_1778939989.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ دوستان توجه داشته باشید که تیم «پرشین ترند» در هیچ‌یک از پلتفرم‌های داخلی، کانال یا گروه رسمی ندارد و هیچ‌گونه فعالیتی در این بسترها انجام نمی‌دهد. ⚠️ لطفاً نسبت به سوءاستفاده افراد سودجو و صفحات جعلی هوشیار باشید. 📝 Nick 📌 @persian_trend_official پرشین…
+</div>
+
+## Persian_Trend_Official — post 14238
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14238_1778939990.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ دوستان توجه داشته باشید که تیم «پرشین ترند» در هیچ‌یک از پلتفرم‌های داخلی، کانال یا گروه رسمی ندارد و هیچ‌گونه فعالیتی در این بسترها انجام نمی‌دهد.
+
+⚠️ لطفاً نسبت به سوءاستفاده افراد سودجو و صفحات جعلی هوشیار باشید.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ آسوشیتدپرس: بازگشت ناو هواپیمابر جرالد فورد به پایگاه پس از ۱۱ ماه مأموریت.
+
+وزارت‌جنگ آمریکا اعلام کرد پیت هگست، وزیر جنگ، روز شنبه در پایگاه دریایی نورفولک در ویرجینیا از ناو هواپیمابر جرالد فورد و ۴۵۰۰ ملوان آن پس از ۱۱ ماه مأموریت استقبال می‌کند.
+
+این ناو ۳۲۶ روز در دریا بوده که طولانی‌ترین استقرار یک ناو هواپیمابر آمریکایی در ۵۰ سال گذشته و سومین رکورد از زمان جنگ ویتنام است.
+
+پ.ن: آخرین باری که این ناو هواپیمابر در پایگاه خشکی مستقر بود، هنوز جنگ ۱۲ روزه نیز آغاز نشده بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 15:43
 ---
 
