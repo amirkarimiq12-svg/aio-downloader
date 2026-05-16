@@ -7,6 +7,397 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 14:48
+---
+
+## ChizBergerz — post 46440
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46440_1778930326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی انگلیس وقتی یه پیرمرد بالاخره به رویاش رسید و یه خانم زیبا رو بوس کرد، از شدت هیجان و شادی بیهوش شد و کارش به بیمارستان کشید: 😐😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46439
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46439_1778930328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیمای لیبی دقیقا ۱۰ روز قبل‌از سرنگونی حکومت قذافی: دیکتاتورها شبیه هم هستن! @ChizBergerz
+</div>
+
+## ChizBergerz — post 46438
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46438" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46437
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46437_1778930330.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+re26
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏لیست مشاغل باقی مانده در ایران :
+کانفیگ فروش
+عرق فروش
+آدم فروش
+اسنپ
+تریاک فروش
+
+بقیه هم نشستن همو نگاه میکنن …
+</div>
+
+## ChizBergerz — post 46435
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46435_1778930331.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیشب مجری‌های حرومزاده صداوسیما اسلحه به دست برنامه‌های کصشعرشونو اجرا کردن، این یعنی حکومت میدونه قیامی بزرگ از طرف مردم نزدیکه و فکر کرده با اینکار مردم میترسن! ترکیب حمله زمینی ارتش آمریکا + قیام مردم ایران >>>>> سکس @ChizBergerz
+</div>
+
+## ChizBergerz — post 46434
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46434_1778930332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیشب مجری‌های حرومزاده صداوسیما اسلحه به دست برنامه‌های کصشعرشونو اجرا کردن، این یعنی حکومت میدونه قیامی بزرگ از طرف مردم نزدیکه و فکر کرده با اینکار مردم میترسن!
+
+ترکیب حمله زمینی ارتش آمریکا + قیام مردم ایران >>>>> سکس
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71411
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71411_1778930332.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑این دست پیامها روزانه برام زیاد میاد..
+خدا رو شکر در سیاه ترین روزهای کشورمون دستکم با پادکستهای شبانه توانستم با تیمم یکم به مردم آرامش بدم..
+اینم نقش من بود که سالها سانسور شدید بشم و طردم کنند ولی در نهایت در حساسترین روزهای کشورمون جز پر شنونده ترینها باشم، زندگی واقعا پیچیده ست..
+خدایا شکرت..
+</div>
+
+## rodast_omiddana — post 71408
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71408_1778930333.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 دیشب مجریان صداوسیما در یک حرکت غافلگیرانه دست به اسلحه برنامه هایشان را اجرا کردند.
+این یعنی رژیم میداند بزودی خیابان به خیابان باید با نیروهای آمریکایی و مردم مسلح ایران درگیر بشه..
+داریم وارد فاز جنگ شهری و خیابانی میشویم..
+تیک تاک..
+</div>
+
+## rodast_omiddana — post 71407
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71407_1778930333.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ دمتون گرم
+</div>
+
+## KiriMohems — post 47575
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47575_1778930334.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شلیک با اسلحه کیری در برنامۀ زندۀ تلویزیون:
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251685
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251685_1778930336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ پست خداحافظی لواندوفسکی: بعد از چهار سال پر از چالش و سختی، وقتشه که برم سراغ یه مسیر جدید. دارم میرم در حالی که حس میکنم مأموریتم کامل شده. 4 فصل، 3 قهرمانی. محبتی که از همون روزای اول از هوادارا گرفتم هیچوقت یادم نمیره. کاتالونیا برای من مثل خونه‌ست.…
+</div>
+
+## SportBaadNews — post 251684
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران اینترنت ندارد، روز هفتاد و هشتم ...
+ایران اینترنت ندارد، روز هفتاد و هشتم ...
+ایران اینترنت ندارد، روز هفتاد و هشتم ...
+ایران اینترنت ندارد، روز هفتاد و هشتم ...
+ایران اینترنت ندارد، روز هفتاد و هشتم ...
+ایران اینترنت ندارد، روز هفتاد و هشتم ...
+</div>
+
+## SportBaadNews — post 251683
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251683_1778930336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+❌| لواندوفسکی پست خداحافظی گذشت و از هواداران بارسلونا خداحافظی کرد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251682
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251682_1778930337.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+❌| لواندوفسکی پست خداحافظی گذشت و از هواداران بارسلونا خداحافظی کرد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251681
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251681_1778930337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆
+⚽️| النصر امشب تو فینال لیگ قهرمانان آسیا دو بازی داره و رونالدو میتونه اولین جام خودش با النصر رو با قهرمانی تو آسیا کسب کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251680
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251680_1778930338.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیورپول آرنه اسلوت این فصل فقط 50% از بازیاشو برده. 
+🔴 56 بازی 
+🔴 28 برد 
+🔴 19 باخت 
+🔴 9 مساوی 
+❌| بعد از 16 سال، اونا 19 باخت تو یک فصل رو تجربه کردن. 
+❌| بعد از 11 سال اونا 12 باخت تو یک فصل لیگ جزیره رو تجربه کردن. 
+❌ | بعد از 14 سال اونا 9 باخت خارج از خونه…
+</div>
+
+## IranIntlTV — post 337459
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337459_1778930338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها حاکی از بحران جدی بهداشت و درمان در زندان فشافویه تهران است. بر اساس روایت زندانیان، شیوع بیماری پوستی گال، تراکم بالای جمعیت و نبود دسترسی به پزشک و دارو، وضعیت زندانیان را بحرانی کرده است.
+
+گفت‌وگو با محمد مقیمی، وکیل دادگستری و کارشناس ارشد حقوق بشر
+@iranintltv
+</div>
+
+## IranIntlTV — post 337458
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337458_1778930340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عطا حسینیان، روزنامه‌نگار اقتصادی و حوزه انرژی، گفت ایران در حال حاضر در زمینه تولید بنزین با مشکلات جدی مواجه است. او «حملات به پارس جنوبی، محاصره دریایی، روابط مخدوش جمهوری اسلامی با امارات و کمبود منابع مالی» را از جمله عوامل موثر بر تولید و عرضه بنزین در کشور دانست.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337457
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337457_1778930342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان نیوزیلند روز شنبه ۲۶ اردیبهشت‌ماه در حمایت از شاهزاده رضا پهلوی و علیه قطع اینترنت و اعدام‌های جمهوری اسلامی در اوکلند تجمع برگزار کردند.
+</div>
+
+## IranIntlTV — post 337450
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻اریک کانتونا، اسطوره فوتبال فرانسه و یکی از عوامل مستند «کانتونا»، در جریان فوتوکال این فیلم که در بخش «نمایش‌های ویژه» هفتاد و نهمین جشنواره فیلم کن ارائه شد، روز شنبه ۲۶ اردیبهشت مقابل دوربین عکاسان ژست گرفت.
+
+🔹مستند «کانتونا» که در جشنواره فیلم کن رونمایی شد، پرتره‌ای از اریک کانتونا، ستاره فرانسوی دهه ۹۰ منچستریونایتد، ارائه می‌دهد؛ فوتبالیستی جذاب اما تندخو که هم به‌واسطه نبوغ فوتبالی‌اش و هم به دلیل جنجال‌هایش به چهره‌ای اسطوره‌ای بدل شد.
+
+🔹این فیلم به کارگردانی دیوید تری‌هورن و بن نیکلاس، سازندگان مستند «پله»، با ترکیبی از گفت‌وگوهای تازه با کانتونا و روایت‌هایی از الکس فرگوسن، دیوید بکام و گی رو، تلاش می‌کند تصویری کامل از «مرد، اسطوره، افسانه» بسازد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337449
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337449_1778930344.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲۶ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337448
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337448_1778930345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان استرالیا روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی تجمع کرده و با حمل پرچم شیروخورشید ترانه‌های ملی را هم‌خوانی کردند.
+</div>
+
+## IranIntlTV — post 337447
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337447_1778930347.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه معاریو به نقل از منابع آگاه گزارش داد که دولت دونالد ترامپ در روزهای اخیر آمادگی خود را برای دادن «چراغ سبز» به اقدام نظامی در صورت شکست نهایی تلاش‌های دیپلماتیک با جمهوری اسلامی نشان داده است.
+
+بر اساس این گزارش، با وجود این رویکرد، هنوز تصمیم نهایی برای آغاز عملیات نظامی اتخاذ نشده است.
+
+این منابع افزودند که «پنجره دیپلماتیک به سرعت در حال بسته شدن است» و روزهای آینده می‌تواند در تعیین مسیر تحولات سرنوشت‌ساز باشد.
+https://iranintl.com/202605162346
+</div>
+
+## IranIntlTV — post 337446
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337446_1778930347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش تنش‌ها میان امارات متحده عربی و جمهوری اسلامی، یک مجری صدا و سیمای جمهوری اسلامی در برنامه‌ای با محور آموزش کار با سلاح، پرچم امارات متحده عربی را به‌عنوان هدف انتخاب کرد و به سوی آن شلیک کرد.
+
+این بخش از برنامه در حالی پخش شد که روابط تهران و ابوظبی در هفته‌های اخیر با تنش‌هایی همراه بوده است.
+
+صدا و سیمای جمهوری اسلامی جمعه چند برنامه پخش کرد که در آنها مجریان در بخش‌های استودیویی با در دست داشتن تفنگ ظاهر شدند و اعلام کردند در حال یادگیری کار با سلاح‌های سبک هستند و در صورت لزوم به جنگ خواهند پیوست.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337445
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337445_1778930349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مخاطبان ایران اینترنشنال طی روزهای اخیر با ارسال پیام‌هایی درباره سلامت و جان فاطمه سپهری، زندانی سیاسی، ابراز نگرانی کرده و از ایرانیان خواستند در خارج از کشور صدای او باشند. پیام مخاطبان با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## IranIntlTV — post 337444
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337444_1778930351.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنا بر گزارش کانال۱۲ اسرائیل، رییس‌جمهور آمریکا قرار است ظرف ۲۴ ساعت آینده نشستی ویژه با مشاورانش برگزار کند تا تصمیم نهایی درباره جمهوری اسلامی را اتخاذ کند.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337443
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337443_1778930353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مخبر، مشاور رهبر جمهوری اسلامی، با انتشار مطلبی در ایکس با هشتگ کویت و امارات نوشت: «ایران سال‌ها به چشم دوست و برادر به آنها نگاه کرد، ولی آنها با پیش‌فروش استقلال خود، حتی خاک و خانه‌هایشان را در اختیار دشمنان فلسطین و ایران قرار دادند.»
+
+او تهدید کرد: «پاسخ جمهوری اسلامی به سنگرهای استیجاری سنتکام در جنگ اخیر تمام‌عیار نبود، اما قطعا این خویشتن‌داری همیشگی نیست.»
+https://iranintl.com/202605169610
+</div>
+
+## Persian_Trend_Official — post 14236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://castbox.fm/vi/945846191
+
+لطفا چک کنید ببنید دسترسی دارید ؟
+</div>
+
+## Persian_Trend_Official — post 14235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «از همراهی و توجه شما واقعاً ممنونیم ❤️ اینکه با رأی‌ها، نظرات و مشارکت‌تون مسیر پرشین ترند رو دقیق‌تر می‌کنید، برای ما خیلی ارزشمنده. بر اساس همین بازخوردها، از این به بعد نسخه صوتی برنامه‌ها در «کست‌باکس» و سایر پادگیر ها مثل اسپاتیفای، اپل موزیک و ...…»
+</div>
+
+## Persian_Trend_Official — post 14234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از همراهی و توجه شما واقعاً ممنونیم ❤️
+اینکه با رأی‌ها، نظرات و مشارکت‌تون مسیر پرشین ترند رو دقیق‌تر می‌کنید، برای ما خیلی ارزشمنده.
+
+بر اساس همین بازخوردها، از این به بعد نسخه صوتی برنامه‌ها در «کست‌باکس» و سایر پادگیر ها مثل اسپاتیفای، اپل موزیک و ... منتشر میشه 🎧
+
+با توجه به اینکه هم تلگرام و هم کست‌باکس فیلتر هستند، از نظر دسترسی تفاوت خاصی وجود نداره؛
+اما برای کسانی که استفاده از فیلترشکن براشون سخت‌تره، نسخه تصویری برنامه‌ها طبق روال قبل در هاست داخلی و وب‌سایت قرار می‌گیره 📥
+
+در عین حال تلاش می‌کنیم وب‌سایت پرشین ترند رو هم حرفه‌ای‌تر و کامل‌تر توسعه بدیم تا دسترسی به محتوا راحت‌تر بشه.
+
+مثل همیشه ممنون از همراهی‌تون 🙏
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 13:43
 ---
 
