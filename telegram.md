@@ -7,6 +7,394 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 21:09
+---
+
+## ChizBergerz — post 46459
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تست شده برای اپ شیر و خورشید
+
+185.200.232.43  
+185.200.232.40
+167.82.48.223
+151.101.128.223
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 ترامپ از چین برگشت، جنگ شروع میشه؟
+گفتگو با بهروز یوسیان افسر سابق اطلاعات اسرائیل
+لینک یوتیوب:
+https://www.youtube.com/watch?v=lCxHp2fmf2Y
+</div>
+
+## rodast_omiddana — post 71430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 برنامه امشب:
+*فشار دولت ترامپ به امارات برای تصرف جزیره لاوان
+*حمله قطعی شده و بزودی آغاز میشود
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71427
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71427_1778953178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 فوری_نیویورک تایمز:
+"ایالات متحده "محمد باقر سعد داوود السعدی"، فرمانده ارشد در شبه‌نظامیان حزب‌الله عراق، را دستگیر کرده و اتهامات تروریستی علیه او مطرح کرده است.
+او متهم است که از اواخر فوریه حداقل ۱۸ حمله در اروپا، ایالات متحده و کانادا برنامه‌ریزی کرده است، که ظاهراً در واکنش به حملات آمریکا و اسرائیل علیه ایران بوده است.
+طبق کیفرخواست، السعدی برنامه‌ریزی کرده بود تا غیرنظامیان آمریکایی و یهودی را در لس‌آنجلس و نیویورک به قتل برساند و همچنین برنامه‌ریزی حمله به یک کنیسه در شهر نیویورک را آغاز کرده بود.
+کیفرخواست همچنین بیان می‌کند که به عنوان بخشی از نقش خود در سازمان، شخصاً قاسم سلیمانی، فرمانده نیروی قدس سپاه پاسداران که در ژانویه ۲۰۲۰ کشته شد، را می‌شناخته است.
+انتظار می‌رود که امروز در دادگاه فدرال در منهتن حضور یابد، اگرچه هنوز گزارش نشده است که چگونه، کی و کجا دستگیر شده است."
+</div>
+
+## rodast_omiddana — post 71426
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71426_1778953178.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 
+🚨پاول دوروف، مدیرعامل تلگرام:
+دبی دوباره شلوغ و پر از ترافیک شده است. از همین حالا دلم برای آتش‌بازی‌های ایران تنگ شده؛ آن‌ها کمک کردند تا شهر از افراد زودباور (وحشت‌زده) خالی شود.
+پدافند هوایی امارات زیر آتش (حملات) عالی عمل کرد.
+ما با پرداخت ۰٪ مالیات، حفاظت بهتری نسبت به اروپایی‌هایی دریافت می‌کنیم که پنجاه درصد مالیات می‌دهند.
+</div>
+
+## KiriMohems — post 47593
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47593_1778953179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه مشت از این خایه مالای فلسطین ، از داشاق ایفل بالا کشیدن و پرچم کیری فلسطین رو از طبقه اولش آویزون کردن.
+
+شش نفر از این کصکشا توسط پلیس تو گونی شدن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47592
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47592_1778953181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇 g26🅰
+
+✈️https://t.me/+RvVnWMHCqUc4YzFk
+</div>
+
+## KiriMohems — post 47591
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47591_1778953182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تلگراف : مقامات کلفت دولت ترامپ ، خایه های امارات رو مالیدن تا توی جنگ علیه ایران بیشتر وارد عمل بشه..
+
+حتی صحبت سوسکی از حمله به جزایر ایرانی تو خلیج فارس هم شده!
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امباپه امروز رفته و با بچه مچه های آکادمی رئال وقت گذرونده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251710
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز تا جام جهانی @SportBadTweet | TF
+</div>
+
+## SportBaadNews — post 251709
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251709_1778953182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوووووووری از رومانو: ژابی آلونسو به چلسی Here We Gooooooooooooooo @SportBaadNews
+</div>
+
+## SportBaadNews — post 251708
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251708_1778953183.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوووووووری از رومانو: ژابی آلونسو به چلسی
+Here We Gooooooooooooooo
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251707
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251707_1778953184.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووری از فابریس هاوکینز: ژابی با چلسی به توافق دو ساله رسید @SportBaadNews
+</div>
+
+## SportBaadNews — post 251706
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251706_1778953184.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووری از فابریس هاوکینز: ژابی با چلسی به توافق دو ساله رسید
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337507
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337507_1778953185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز گزارش داد آمریکا و اسرائیل در حال گسترده‌ترین آمادگی نظامی از زمان برقراری آتش‌بس هستند و تنها تصمیم نهایی دونالد ترامپ باقی مانده است.
+
+گفت‌وگو با اشکان صفایی و اردوان روزبه، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337506
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337506_1778953187.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخی مجری‌های صداوسیمای جمهوری اسلامی در برنامه‌های زنده تلویزیونی با اسلحه روی آنتن رفتند. در شبکه افق، وابسته به سپاه پاسداران، یک نیروی نظامی با صورت پوشیده نحوه استفاده از سلاح را آموزش داد و مجری برنامه هم در استودیو شلیک کرد و گفت گلوله‌ها به سمت پرچم امارات شلیک شده‌اند.
+
+گفت‌وگو با ایمان آقایاری، فعال سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337505
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337505_1778953189.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم آلمان روز جمعه ۲۶ اردیبهشت علیه جمهوری اسلامی در شهر هامبورگ راهپیمایی کردند و شعار «شرم بر این سه فاسد، ملا چپی مجاهد» سردادند.
+</div>
+
+## IranIntlTV — post 337504
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337504_1778953191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی آمریکا در آفریقا (AFRICOM)، با انتشار ویدیویی در ایکس، از عملیات شامگاه جمعه ۲۵ اردیبهشت خبر داد که به کشته شدن شمار زیادی از جنگجویان داعش در شمال شرقی نیجریه منجر شد.
+پیش‌تر، ترامپ در تروث‌سوشال اعلام کرده بود ابو بلال المینوکی، نفر دوم داعش در جهان، در این عملیات کشته شده است.
+</div>
+
+## IranIntlTV — post 337503
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337503_1778953192.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم نروژ روز شنبه ۲۶ اردیبهشت با در دست گرفتن پرچم‌های شیروخورشید علیه جمهوری اسلامی در شهر اسلو راهپیمایی کردند.
+</div>
+
+## IranIntlTV — post 337502
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337502_1778953195.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان استرالیا روز شنبه در حمایت از انقلاب ملی علیه جمهوری اسلامی تجمع کرده و ضمن حمل پرچم شیروخورشید ترانه‌های ملی را هم‌خوانی کردند.
+</div>
+
+## Persian_Trend_Official — post 14248
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14248_1778953198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢عارف معاون اول رئیس‌جمهور:
+
+💢دیگر اجازهٔ عبور تجهیزات نظامی دشمن از تنگهٔ هرمز را نخواهیم داد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14247
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: اگر توافقی حاصل نشود، جمهوری اسلامی «روزگار بسیار بدی» خواهد داشت
+
+دونالد ترامپ در یک گفت‌وگوی تلفنی با شبکه خبری تلویزیونی ب اف ام فرانسه اظهار داشت که نمی‌داند آیا به‌زودی توافقی با جمهوری اسلامی حاصل خواهد شد یا نه.
+
+رییس‌جمهور ایالات متحده گفت: «هیچ ایده‌ای ندارم که آیا آن‌ها این کار را خواهند کرد یا نه. اگر این کار را نکنند، روزگار بسیار بدی خواهند داشت، روزگار بسیار بدی. بهتر است که یک توافق منعقد کنند.»
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹زمین‌لرزه‌ای به بزرگی ۴.۵ ریشتر دقایقی پیش گلوگاه در استان مازندران را لرزاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لایو امشب ساعت 22 آغاز میشه
+</div>
+
+## Persian_Trend_Official — post 14244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل شنبه اعلام کرد که در آخر این هفته حدود ۱۰۰ موضع حزب‌الله را در جنوب لبنان مورد حمله قرار داده است.
+
+بر اساس اعلام ارتش اسرائیل، این اهداف شامل پست‌های مراقبت و دیده‌بانی، انبارهای تسلیحات و سایر زیرساخت‌هایی بوده که توسط این گروه برای پیشبرد حملات استفاده می‌شود.
+
+این حملات در سراسر جنوب لبنان انجام شده و منطقه صور را نیز دربر گرفته است.
+
+در همین حال، در ۲۴ ساعت گذشته، حزب‌الله چندین پهپاد و گلوله خمپاره به سمت نیروها در جنوب لبنان شلیک کرده است.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14243
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14243_1778953199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم تشییع جنازه عزالدین الحداد، فرمانده نظامی حماس که دیشب کشته شد، در نوار غزه انجام شد.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14242
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14242_1778953200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅پست جدید ترامپ در تروث سوشال:
+بازی نداریم! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیفته!
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14240
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ اگر از مخاطبان پرشین ترند هستید و تلگرام پرمیوم دارید،
+با بوست کردن کانال کمک بزرگی به رشد و دیده‌شدن بیشتر پرشین ترند می‌کنید.
+این بوست‌ها باعث می‌شود امکانات بیشتری برای انتشار محتوا، استوری و قابلیت‌های ویژه کانال فعال شود و در شرایط فعلی، به ادامه پوشش سریع و تحلیل‌های روزانه کمک زیادی می‌کند.
+🙏 اگر مایل بودید، از طریق لینک زیر کانال را بوست کنید:
+https://t.me/boost/persian_trend_official
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 20:08
 ---
 
