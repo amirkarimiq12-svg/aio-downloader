@@ -7,6 +7,341 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 01:59
+---
+
+## ChizBergerz — post 46474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رفقا اپ شیر و خورشید فقط برای اندرویده و ایفون نداره، لطفا دایرکت کانالو سوراخ نکنید❤️
+</div>
+
+## ChizBergerz — post 46473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اونایی که میگن براشون کار نمیکنه، حتما چندبار روی حالت هواپیما بزارید و دربیارید و تست کنید، یاهم روی 3G تست کنید، هربار حدودا یک دقیقه صبرش بدید، یبار وصل شد دیگه چندساعت قطع نمیشه
+</div>
+
+## ChizBergerz — post 46471
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46471_1778970565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم از آموزش ویدیویی تنظیم و اتصال به اپ شیر و خورشید برای اونایی دایرکت کانالو سوراخ کردن: @ChizBergerz
+</div>
+
+## ChizBergerz — post 46470
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46470_1778970566.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم از آموزش ویدیویی تنظیم و اتصال به اپ شیر و خورشید برای اونایی دایرکت کانالو سوراخ کردن:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46469
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیست آیپی تست شده شیر و خورشید(ایرانسل)
+
+همه رو یک‌جا کپی و در شیروخورشید پیست کنید.
+
+⚙️ More Options > CDN Fronting > CDN edge IPs
+
+184.24.77.21
+184.24.77.11
+2.23.168.47
+2.23.170.80
+2.23.168.144
+2.23.168.213
+2.23.168.174
+185.200.232.43  
+185.200.232.40
+167.82.48.223
+151.101.128.223
+185.200.232.49
+2.23.168.96
+2.23.168.254
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+184.24.77.16
+184.24.77.36
+23.48.23.186
+23.48.23.133
+23.48.23.195
+184.24.77.29
+23.48.23.178
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیست آیپی تست شده شیر و خورشید(همراه اول)
+
+همه رو یک‌جا کپی و در شیروخورشید پیست کنید.
+
+⚙ More Options > CDN Fronting > CDN edge IPs
+
+
+185.200.232.43  
+2.17.100.200
+2.19.205.42
+2.19.205.50
+2.19.252.134
+2.20.169.70
+2.20.170.91
+95.101.111.144
+2.16.245.188
+2.18.69.150
+2.16.106.4
+23.58.222.107
+184.25.28.31
+23.47.124.134
+23.50.131.147
+23.46.190.18
+23.58.222.147
+23.56.162.186
+23.44.203.68
+23.12.156.115
+23.216.77.16
+23.62.61.53
+23.39.148.245
+23.210.73.133
+23.44.201.136
+23.205.46.167
+184.30.150.142
+23.220.161.217
+184.28.165.4
+23.46.230.133
+88.221.168.204
+104.96.158.174
+184.51.252.4
+172.234.199.15
+104.85.26.14
+172.237.145.27
+92.123.103.24
+172.234.159.58
+184.86.103.210
+96.16.248.183
+92.122.16.5
+96.16.249.60
+96.16.249.9
+
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71433
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71433_1778970566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پست امشب ترامپ:
+«آرامش قبل از طوفان»
+</div>
+
+## KiriMohems — post 47597
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا بیرانوند :
+
+سرود جمهوری اسلامی ایران رو با صدای جوری میخونم که کونم پاره بشه و مخالفا هم هیچ کاری نمیتونن بکنن
+
+#Berlin
+@Kirimohems
+</div>
+
+## SportBaadNews — post 251737
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251737_1778970567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جورجینای ناراحت بعد باخت شوهرش
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251736
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251736_1778970567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 هنوز داری دنبال لینک می‌گردی؟
+
+
+✅ حرفه‌ای‌ها مستقیم وارد میشن!
+با ربات وینکوبت، ورود به سایت فقط چند ثانیه زمان می‌بره: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+⚡ بدون فیلتر و دردسر
+⚡ بدون لینک‌های الکی
+⚡ فقط یه کلیک تا ورود
+
+🎁 اگه سریع و راحت میخوای وارد شی، این همون چیزیه که دنبالش بودی!
+
+
+🤖 @Wincobet_bot
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال وینکوبت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 251735
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251735_1778970568.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️ ژوزه مورینیو: 99% احتمال داره که توی بنفیکا بمونم، چون با بنفیکا قرارداد دارم و علاوه بر اون، یه پیشنهاد تمدید قرارداد هم بهم دادن که هنوز ندیدمش، ولی مدیر برنامه‌هام گفته پیشنهاد فوق‌العاده‌ایه.
+
+
+🔴 هنوز هیچ خبری از طرف رئال مادرید بهم نرسیده، ولی خب هیچ‌کدوممون هم ساده نیستیم و بین جرج، رئیس باشگاه و مدیرای باشگاه یه‌سری صحبت‌ها در جریانه.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337543
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337543_1778970569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در نشست «آینده تکنولوژی در ایران» گفت با فروپاشی جمهوری اسلامی و بازگشت کارآفرینان ایرانی خارج از کشور، می‌توان در مناطق محروم ایران از جمله سیستان و بلوچستان نیز مراکز بزرگ فناوری و تکنولوژی تاسیس کرد.
+
+او همچنین بر نقش دیاسپورای ایرانی در رساندن صدای مردم ایران و سرنگونی جمهوری اسلامی به جهان تاکید کرد.
+
+گفت‌وگو با نجات بهرامی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337542
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337542_1778970571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پارسا تاجیک، مهندس شرکت «ایکس ای‌آی»، در گفت‌وگو با نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، درباره روند تغییر پرچم ایران به شیروخورشید در شبکه اجتماعی ایکس، توییتر سابق، توضیح داد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337541
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337541" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: آرامش قبل از طوفان
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337540
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337540_1778970573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شرکت‌کنندگان در تجمع اعتراضی ایرانیان در سان‌فرانسیسکو به نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، گفت: «همه ایرانیان قهرمانان زندگی ما هستند و می‌خواهیم بگوییم از اینجا پشت شما هستیم.»
+
+او افزود: «هیچ‌وقت متوقف نمی‌شویم تا زمانی که جمهوری اسلامی سرنگون شود و همه زندانیان سیاسی آزاد شوند. میلیون‌ها نفر در سراسر دنیا در کنار شما و در کنار شاهزاده‌مان ایستاده‌اند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337539
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337539_1778970575.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن سان‌فرانسیسکو تجمعی اعتراضی در حمایت از انقلاب ملی ایرانیان و شاهزاده رضا پهلوی و درخواست برای همراهی دولت آمریکا با مردم ایران برگزار کردند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال و گفت‌وگو با یکی از شرکت‌کنندگان
+@iranintltv
+</div>
+
+## IranIntlTV — post 337538
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337538_1778970577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز گزارش داد دستیاران دونالد ترامپ در حال آماده‌سازی طرح‌هایی برای از سرگیری حملات نظامی علیه جمهوری اسلامی هستند.
+
+دو مقام خاورمیانه‌ای نیز به این روزنامه گفته‌اند احتمال دارد این حملات از اوایل هفته آینده آغاز شود.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337537
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337537_1778970579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز شنبه ۲۶ اردیبهشت، در شبکه اجتماعی تروث سوشال انیمیشنی منتشر کرد که در آن به یک ناو جنگی آمریکا دستور می‌دهد به هواپیمایی با پرچم جمهوری اسلامی شلیک کند و می‌گوید: «بسیار خب، آن را در دیدرس داریم. آتش!»
+</div>
+
+## IranIntlTV — post 337536
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337536_1778970581.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد سیاسی، گفت: «ترامپ پس از سفر چین گزینه‌های مختلفی در برابر جمهوری اسلامی دارد. از تشدید فشار محاصره به امید توافق تا عملیات محدود در تنگه هرمز و خلیج فارس و در نهایت حملات گسترده و هدف قراردادن لایه دیگری از مقامات و فرماندهان ارشد سپاه پاسداران.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337535
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337535_1778970584.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میخائیل اولیانوف، نماینده روسیه در سازمان‌های بین‌المللی با اشاره به قریب‌الوقوع بودن ازسرگیری احتمالی حملات علیه جمهوری اسلامی در ایکس نوشت: «اگر این موضوع درست باشد، به این معناست که آمریکا و اسرائیل از اشتباهات راهبردی گذشته خود درس نمی‌گیرند.»
+https://iranintl.com/202605163047
+</div>
+
+## Persian_Trend_Official — post 14280
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14280_1778970584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️🌙✨️
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 01:03
 ---
 
