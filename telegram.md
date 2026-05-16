@@ -7,6 +7,143 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 02:45
+---
+
+## rodast_omiddana — post 71441
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71441" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_فشار دولت ترامپ به امارات برای تصرف جزیره لاوان_حمله قطعی شده و بزودی آغاز میشود
+</div>
+
+## rodast_omiddana — post 71440
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71440" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 فشار دولت ترامپ به امارات برای تصرف جزیره لاوان_حمله قطعی شده و بزودی آغاز میشود
+</div>
+
+## rodast_omiddana — post 71439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_فشار دولت ترامپ به امارات برای تصرف جزیره لاوان_حمله قطعی شده و بزودی آغاز میشود
+</div>
+
+## rodast_omiddana — post 71438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_فشار دولت ترامپ به امارات برای تصرف جزیره لاوان_حمله قطعی شده و بزودی آغاز میشود
+</div>
+
+## rodast_omiddana — post 71437
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71437" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_ترامپ از چین برگشت، جنگ شروع میشه؟_گفتگو با بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## rodast_omiddana — post 71436
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71436" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 ترامپ از چین برگشت، جنگ شروع میشه؟_گفتگو با بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## rodast_omiddana — post 71435
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️کیفیت 360_ترامپ از چین برگشت، جنگ شروع میشه؟_گفتگو با بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## rodast_omiddana — post 71434
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 240_ترامپ از چین برگشت، جنگ شروع میشه؟_گفتگو با بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## KiriMohems — post 47603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر برنامه ای چیزی اومده برای vpn رایگان شک کنید ممکنه علاوه بر خودتون دیگران هم بگا دهید!
+
+هرچیزی که رایگانه باید شک داشته باشید
+حتی کص
+</div>
+
+## KiriMohems — post 47602
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47602_1778973301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار فاکس نیوز:
+
+ترامپ درحال آماده‌شدن برای دور جدیدی حملات نظامی به ایران است
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47601
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47601_1778973301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+این آرامش قبل طوفان بود! بزودی میگوزم
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدا و سیما :
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251738
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251738_1778973302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️ ژوزه مورینیو: 99% احتمال داره که توی بنفیکا بمونم، چون با بنفیکا قرارداد دارم و علاوه بر اون، یه پیشنهاد تمدید قرارداد هم بهم دادن که هنوز ندیدمش، ولی مدیر برنامه‌هام گفته پیشنهاد فوق‌العاده‌ایه. 
+🔴 هنوز هیچ خبری از طرف رئال مادرید بهم نرسیده، ولی خب…
+</div>
+
+## IranIntlTV — post 337544
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337544_1778973302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای دریافتی نشان می‌دهد جمعی از ایرانیان ساکن نیویورک، شنبه ۲۶ اردیبهشت، در حمایت از مردم ایران و شاهزاده رضا پهلوی در منهتن تجمع و راهپیمایی برگزار کردند. آن‌ها با فریاد «اینترنت برای ایران» و اجرای پرفورمنسی علیه اعدام‌های جمهوری اسلامی، توجه جامعه جهانی را به وضعیت ایران جلب کردند.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 01:59
 ---
 
