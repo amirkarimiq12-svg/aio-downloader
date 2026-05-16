@@ -7,6 +7,204 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/26 19:16
+---
+
+## ChizBergerz — post 46456
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46456_1778946390.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این داشمون رو یادتونه؟
+که سریال بریکینگ بد و سریال گیم آف ترونز رو جوری که خودش دوست داشته بود ساخت.
+الان سریال اسکویید گیم هم درست کرده😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه بیرون میرید و ایست بازرسی عرازشه ممکنه گوشیتونو چک کنه، میتونید توی اپ شیروخورشید قسمت Option > More Options بزید و از گزینه App appearance آیکون و اسم برنامه رو با یه کلیک تغییر بدید که توی منوی گوشی مشخص نباشه چنین برنامه ای با چنین لوگویی روی گوشیتون نصبه
+
+میتونید به ماشین حساب، هواشناسی، نوت و ساعت اسم و آیکونشو تغییر بدید
+
+اگه گزینه پایینی یعنی Stealth notifications رو هم بزنید نوتیفیکشن برنامه هم بسته به اون اسمی که تغییر داده بودید تغییر میکنه
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از وقتی اپ شیر و خورشید اومده فیلترشکن فروشا قیمت هرگیگو آوردن زیر ۲۰۰ هزارتومن😂😂
+</div>
+
+## ChizBergerz — post 46452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لینک دانلود با نت ملی اپ شیر و خورشیدو بزودی میزارم
+</div>
+
+## ChizBergerz — post 46451
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46451_1778946392.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دی‌ان‌اس‌های جدید برای شیر و خورشید که با همراه اول تست شده:
+2.22.250.149
+23.58.193.140
+23.48.23.151
+2.19.126.81
+23.202.138.125
+23.43.237.239
+Tel: @ChizBergerz
+104.112.146.82
+23.2.13.136
+72.246.28.37
+2.18.63.49
+2.16.53.11
+2.16.53.50
+2.16.19.136
+
+به نظر میرسه در حالِ حاضر با اینترنتِ همراه بهتر متصل میشه . در صورتی که نتونستید متصل بشید ، چندبار رویِ حالتِ هواپیما بگذارید و بردارید، یاهم روی 3G بزارید و دوباره تست کنید.
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71421
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71421_1778946393.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ در مصاحبه با فاکس‌نیوز:
+در این مصاحبه ترامپ خیلی صریح محمد باقر قالیباف رئيس مجلس ایران را به ترور و حذف فیزیکی تهدید کرده و او را "محمد یه چیزی.." می‌نامد و میگوید ما می‌توانیم آن‌ها را از فضا شناسایی کنیم و اگر نزدیک منطقه ذخیره‌سازی اورانیوم غنی سازی شده بشوند ترورشان خواهیم کرد.
+</div>
+
+## rodast_omiddana — post 71420
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 در حاشیه دیدار ترامپ از چین بازم عراقچی داره میخنده و میگه برای همه چیز آمادست
+لینک یوتیوب:
+https://www.youtube.com/watch?v=e7FYPoAN07s
+</div>
+
+## rodast_omiddana — post 71419
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 احتمال فرار قالیباف و برخی مقامات به مسکو به بهانه امنیت
+لینک یوتیوب:
+https://www.youtube.com/watch?v=s4XAN_p-iLg
+</div>
+
+## KiriMohems — post 47588
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47588_1778946393.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴طبق حرفای رفسنجانی، خون کودکان میناب و تمام قربانیان جنگ ایران و آمریکا به گردن خامنه‌ایه.
+
+هاشمی رفسنجانی:
+نظرم این بوده که باید مسائل با آمریکا رو حل کنیم. با خامنه‌ای یکی دو ساعت بحث کردیم، ولی به نتیجه نرسیدیم.
+
+من گفتم: ما حرف دیگه‌ای به شما نمیتونیم بزنیم، فقط مساله‌ی ما هست و خدا؛ بالاخره روز قیامت از ما میپرسن این همه ضرری که به مردم ایران زدید، اگر اینا رو شما به عهده میگیرید من دیگه حرفی ندارم.
+
+خامنه‌ای گفت: «بله جواب خدا با من».
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47587
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47587_1778946396.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ در تروث سوشال:
+بازی نداریم کصکشا! ببین قراره بعدش تو موضوع مورد علاقت چه اتفاقی بیوفته!
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251700
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251700_1778946397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین آمار گلزنی باشگاه ها در تاریخ 5 لیگ معتبر : 
+⚽️ 125 گل زده - تورینو 1947/48 
+⚽️ 121 گل زده - رئال 2011/12 
+⚽️ 118 گل زده - رئال 2014/15 
+⚽️ 118 گل زده - میلان 1949/50 
+⭕️
+⚽️ 117 گل زده - بایرن 2025/26 
+⚽️
+🔴 بایرن مونیخ 1 بازی دیگه تو بوندسلیگا داره و اگه…
+</div>
+
+## SportBaadNews — post 251699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاول دورف مالک بهترین اپلیکیشن جهان یعنی تلگرام: دبی دوباره پر از ترافیک و شلوغی شده. دلم واسه «آتش‌بازی‌های» ایران تنگ شده بود... حداقل یه مدت شهر رو از آدمای زودرنج خالی کرده بود. پدافند اماراتم زیر حمله حسابی خودشو ثابت کرد. ما با مالیات صفر درصد، محافظتی بهتر از اروپاییایی می‌گیریم که نصف حقوقشونو مالیات میدن.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337494
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337494_1778946397.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدصالح جوکار، رییس کمیسیون امور داخلی مجلس، گفت: «آمریکا به دنبال آن است تا آنچه را که در میدان به دست نیاورده پای میز مذاکره به دست آورد. در این‌باره باید بگویم هرگز آمریکا به خواسته‌های نامشروعش در مذاکرات نخواهد رسید.»
+
+جوکار گفت که آمریکا باید شروط تهران را برای توافق بپذیرد و راهی جز تعظیم در برابر خواسته‌های جمهوری اسلامی ندارد
+https://iranintl.com/202605165329
+</div>
+
+## IranIntlTV — post 337493
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337493_1778946398.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیمای جمهوری اسلامی در برنامه‌ای آموزش استفاده از سلاح گرم توسط یک نظامی به مجری را به نمایش گذاشت. در بخشی از این برنامه، مجری به پرچم امارات متحده عربی شلیک کرد.
+گفت‌وگو با فروغ کنعانی، پژوهشگر جامعه‌شناسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337492
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337492_1778946400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر کشور پاکستان برای دیدار با مقام‌‌های جمهوری اسلامی وارد تهران شد. همزمان رسانه‌های ایران گزارش دادند محسن نقوی در دیدار با وزیر کشور جمهوری اسلامی، درباره‌ی ازسرگیری مذاکرات صلح، گفت‌وگوهای مفصلی انجام داده‌اند.
+
+گفت‌وگو با جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337491
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337491_1778946402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دانش‌آموز در پیام به ایران اینترنشنال با اشاره به مجازی شدن آموزش می‌گوید باید برای مدرسه‌ای که نرفتیم ۱۵۰ میلیون تومان شهریه بدهیم. پیام این دانش‌آموز با هوش مصنوعی بازخوانی شده است.
+</div>
+
+---
 📅 بروزرسانی: 1405/02/26 18:22
 ---
 
