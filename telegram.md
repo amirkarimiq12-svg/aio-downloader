@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 16:21
+---
+
+## rodast_omiddana — post 71466
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71466_1779022275.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 احتمال حمله مشترک امارات و آمریکا به جزایر ایرانی در این هفته
+لینک یوتیوب:
+https://www.youtube.com/watch?v=t22Ng_fY5PA
+</div>
+
+## rodast_omiddana — post 71465
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71465_1779022276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تایید نشده_انفجار در اصفهان (صنایع نظامی زرینشهر-ورنامخواست )
+صدای عظیمی بود
+</div>
+
+## rodast_omiddana — post 71464
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71464_1779022277.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری_نتانیاهو:
+"امروز با ترامپ گفت‌وگو خواهم کرد
+امروز با دونالد ترامپ، درباره سفر اخیر او به چین و «احتمالا» پرونده ایران گفت‌وگو خواهم کرد، چشمان ما به سوی ایران باز است و برای همه احتمالات آماده هستیم."
+</div>
+
+## KiriMohems — post 47623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انجمن فولاد: گرون شدن ماشین هیچ ارتباطی با قیمت فولاد ما نداره ، چرا فحش ناموصی رو نثار ما میکنید؟ ما کون خودمون رو پاره کنیم ، فولاد ده درصد قیمت تمام شده یک ماشین رو تشکیل میده و مثلا تو یه ماشین یک میلیاردی فقط ۷۰ میلیون تومن فولاد هست
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نقل از N12 News :
+
+اسرائیل بیشتر از یک سال دوتا پایگاه نظامی مخفی تو بیابون‌های عراق مکان کرده بود و برای عملیات‌هاش علیه ایران ازشون استفاده میکرد
+
+#Helsinki
+@KiriMoheme
+</div>
+
+## KiriMohems — post 47621
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47621_1779022277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیش‌فرویش بلیت‌ قطار مسافری نیمه اول خرداد از فردا
+
+رجا اعلام کرده : پیش فروش بلیت‌ قطارهای مسافری برای چاک کون زمانی یک تا ۱۶ خرداد، از فردا (دوشنبه، ۲۸ اردیبهشت) آغاز ‌میشه.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47620
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47620_1779022278.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴حادثه تلخ در عسلویه؛ واژگونی اتوبوس ۸ فوتی داشت
+
+فرمانده پلیس راه سیراف - عسلویه:
+
+🔹باقی سرنشینان اتوبوس که دچار مصدومیت شده‌اند، بلافاصله توسط تیم‌های امدادی از محل حادثه جمع‌آوری و به بیمارستان‌های عسلویه و کنگان منتقل شدند.
+
+🔹کارشناسان پلیس راه در محل حادثه حاضر شده و علت این واژگونی را در نقص فنی در سیستم ترمز تشخیص داده‌اند.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## IranIntlTV — post 337621
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337621_1779022279.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جابر رجبی، تحلیل‌گر سیاسی، می‌گوید آمریکا مذاکرات را تنها برای خارج کردن اورانیوم غنی‌شده جمهوری اسلامی ادامه می‌دهد و همزمان تهران تصور می‌کند با طولانی کردن بحران در تنگه هرمز می‌تواند از واشینگتن امتیاز بگیرد. او هشدار داد این «توهم» در نهایت به اسرائیل کمک می‌کند تا سناریوی جنگ را پیش ببرد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337620
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337620" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | یکشنبه ۲۷ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337619
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337619_1779022282.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی‌الله بیاتی، عضو کمیسیون امور داخلی مجلس، به ایسنا گفت: «مذاکرات باید ادامه پیدا کند، اما در عین حال دست ما روی ماشه است و آمادگی کامل برای ادامه نبرد وجود دارد.»
+بیاتی گفت: «وضعیت «نه صلح نه جنگ» خیلی از کارها را در کشور معطل نگه می دارد. این وضعیت آسیب زیادی وارد می‌کند.»
+https://iranintl.com/202605179834
+</div>
+
+## IranIntlTV — post 337618
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337618_1779022283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنامان انقلاب ملی ایرانیان
+«محسن شریف‌کاظمی» در شامگاه ۱۸ دی‌ماه در فردیس کرج مورد اصابت گلوله جنگی نیروهای سرکوبگر جمهوری اسلامی قرار گرفت و جان سپرد. نامش در حافظه‌ی این سرزمین می‌ماند و یادش چراغ راه آزادی‌خواهان است.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337617
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد مراسم تولد ایلیا قدسی، جاویدنام ۱۷ ساله کشته‌شده در شامگاه ۱۸ دی، بر سر مزارش برگزار شده است. مادر این نوجوان جان‌باخته با سخنرانی در این مراسم خطاب به پسرش گفت: «تو قدم بزرگی برای ما برداشتی. راهت را ادامه خواهیم داد.»
+</div>
+
+## IranIntlTV — post 337616
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337616_1779022285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال زنان «نائه‌گو‌هیَنگ» کره شمالی روز یکشنبه وارد کره جنوبی شد؛ برای نخستین بار در هفت سال و نیم گذشته ورزشکارانی از کره شمالی پا به خاک کره جنوبی می‌گذارند. این تیم روز چهارشنبه در مرحله نیمه‌نهایی لیگ قهرمانان زنان آسیا، با «سوون اف‌سی وومن» از کره جنوبی بازی می‌کند.
+
+🔹سفر یک تیم فوتبال زنان از کره شمالی به کره جنوبی، اتفاقی نادر در شرایطی است که تنش‌های سیاسی میان دو کشور به سطحی رسیده که دولت‌هایشان عملاً هیچ ارتباط مستقیمی با یکدیگر ندارند.
+
+🔹برخی رویدادهای ورزشی در گذشته میان دو کره نقش کانال دیپلماتیک را ایفا کرده‌اند؛ هرچند این بار انتظار نمی‌رود این سفر به کاهش تنش‌ها منجر شود.
+
+🔹دیدار ورزشکاران دو کره، که از نظر فنی همچنان در وضعیت جنگی قرار دارند، معمولاً فراتر از یک مسابقه ورزشی تلقی می‌شود.
+
+🔹تمام شهروندان کره شمالی که به خارج از کشور سفر می‌کنند، تحت همراهی مأموران پلیس مخفی قرار دارند؛ مأمورانی که هرگونه نشانه بی‌وفایی را زیر نظر می‌گیرند.
+
+🔹درباره این اتفاق کم‌سابقه در وبسایت ایران اینترنشنال بیشتر بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337615
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337615_1779022286.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای ابوظبی در امارات از حمله پهپادی به یک ژنراتور برق در محدوده نیروگاه هسته‌ای براکه در منطقه الظفر خبر داد. بر اساس این گزارش، این حمله باعث آتش‌سوزی در بخشی از نیروگاه شده و ژنراتور برق هدف قرار گرفته است.
+جزییات بیشتر با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 15:23
 ---
 
