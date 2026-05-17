@@ -7,6 +7,370 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 14:18
+---
+
+## arianheidarii — post 20044
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👆🏼کانال استاد آریان حیدری در اپ بله 👆🏼
+⚠️با توجه به شرایط ، حتماً عضو باشید❗️
+</div>
+
+## arianheidarii — post 20039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+http://ble.ir/arianheidariioriginal
+</div>
+
+## arianheidarii — post 20038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⬆️ 20 امتحان نهایی ⬆️
+❌بدون نیاز به هیچ منبع دیگری!❌
+</div>
+
+## arianheidarii — post 20035
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ مختص کنکوریهای 1️⃣4️⃣0️⃣5️⃣ ⭕️
+
+کلاس های ویژه‌ی امتحان تشریحی پایه دوازدهم استاد آریان حیدری ⚠️
+
+🟣لینک جلسه اول حسابان رشته‌ی ریاضی ویژه امتحان نهایی دوازدهم (آفلاین) :
+
+https://www.aparat.com/v/vcy39kw
+
+🔵لینک جلسه اول ریاضیات تجربی ویژه امتحان نهایی دوازدهم (آفلاین) :
+
+https://www.aparat.com/v/jyiglsb
+
+🟢لینک جلسه اول ریاضیات انسانی ویژه امتحان نهایی دوازدهم (آفلاین) :
+
+https://www.aparat.com/v/zvpkk3v
+
+⚠️ لینک ثبت نام دوره های امتحان نهایی:
+
+https://panel.classino.com/auth?referral=konkourgeram
+</div>
+
+## rodast_omiddana — post 71460
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 تهدید خانواده ترامپ و نتانیاهو توسط علی عبدی در صداوسیما
+لینک یوتیوب:
+https://www.youtube.com/watch?v=RFfusxRxO_U
+</div>
+
+## rodast_omiddana — post 71459
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71459_1779014896.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کابینه امنیتی و سیاسی اسرائیل قرار است امشب بطور محدود تشکیل جلسه دهد
+</div>
+
+## rodast_omiddana — post 71458
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71458_1779014896.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⌛️ تیک تاک...
+</div>
+
+## rodast_omiddana — post 71457
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 رژیم تهدید میکنه کویت را که 90 دقیقه ای اشغالت میکنیم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=eGYd59WA6wY
+</div>
+
+## KiriMohems — post 47615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 کصشعر گزاری فارس: جزئیاتی از درخواست‌های آمریکا از جمهوری اسلامی در مذاکرات
+
+۵ شرط اصلی واشنگتن به این شرح اعلام شده است:
+
+غرامت سرش گرده
+
+مثل بچه آدم ۴۰۰ کیلو اورانیوم رو برمیداری و به ما تحویل میدی
+
+دارایی های بلوکه شده ایران ، حتی ۲۵ درصدش رو هم نمیدم
+
+یکی از مجموعه های هسته ای باید فعال بمونه ، در بقیه رو گل بگیر
+
+میایی میشینی سر میز مذاکره تا منم جنگ ها رو جمع کنم
+
+حالا جمهوری اسلامی گفته کص ننت و انجام هرگونه مذاکره رو منوط به تحقق ۵ پیش‌شرط اعتمادساز اعلام کرده:
+
+کصکشا این جنگ ها رو تو همهٔ جبهه‌ها به‌ویژه لبنان جمع و جور کنید
+
+تحریم های ضد ایرانی رو لول کن و بکن تو کونت
+
+پول های بلوک شده مون رو بده لاشخور
+
+خسارات ناشی از جنگ رو سریع میزنی به کارتم
+
+حق حاکمیت ایران روی تنگه هرمز رو قبول میکنی
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47614
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47614_1779014896.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تصویر و گزارشات منتشر شده‌ای از بازداشت نیروهای سپاه در آب های کویت که بصورت نفوذی وارد حریم دریایی این کشور شدند
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴چمران ، رئیس شورای شهر تهران: مُفتی کردن مترو و اتوبوس تو تهران کار احساسیه! فردا آخرین روز رایگان بودن حمل و نقل عمومی تو تهرانه و و به قول اون یارو دلخوش نباشید چون دوباره تمدید نمیشه ، بسه دیگه سر کیسه رو شل کنید #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47612
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47612_1779014897.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نروژ کیرشاد‌ترین کشور جهان در سال ۲۰۲۶
+
+نروژ در سال ۲۰۲۶ به عنوان مرفه‌ترین کشور جهان رتبه‌بندی شده که این رتبه‌بندی ترکیبی از عواملی مانند درآمد و خرپولی ، مراقبت‌های بهداشتی، آمیزش چیز ببخشید آموزش، اعتماد عمومی و ثبات اقتصادیه.
+
+با وجود داشتن کلفت ترین اقتصاد جهان، آمریکا در کل رتبه بسیار گوهی تری داره که همین موضوع تفاوت چاک لاپستانی اندازه اقتصادی و نتایج گسترده‌تر کیفیت زندگی را نشان می‌دهد.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## IranIntlTV — post 337604
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337604_1779014897.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقتصادنیوز گزارش داد اینترنت پرو برای بسیاری از کاربران کارآمد نبوده است. بر اساس این گزارش، کاربران با پرداخت حدود دو میلیون تومان تنها ۵۰ گیگابایت اینترنت دریافت می‌کنند.
+
+گفت‌وگو با سحر تحویلی، پژوهشگر در حوزه فناوری اطلاعات و هوش مصنوعی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337603
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337603_1779014899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای یکشنبه ۲۷ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337602
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337602_1779014900.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای یکشنبه ۲۷ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337601
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337601_1779014901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای ابوظبی اعلام کرد که در پی حمله پهپادی به محوطه نیروگاه هسته‌ای براکه در الظفره، ژنراتور برق در خارج از محوطه داخلی نیروگاه دچار آتش‌سوزی شده است. این نهاد افزود که این حادثه آسیب جانی نداشته است.
+https://iranintl.com/202605173331
+</div>
+
+## IranIntlTV — post 337600
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337600_1779014901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای ابوظبی اعلام کرد که در پی حمله پهپادی به محوطه نیروگاه هسته‌ای براکه در الظفره، ژنراتور برق در خارج از محوطه داخلی نیروگاه دچار آتش‌سوزی شده است. این نهاد افزود که این حادثه آسیب جانی نداشته است.
+https://iranintl.com/202605173331
+</div>
+
+## IranIntlTV — post 337599
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337599_1779014902.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر قلعه‌نویی، سرمربی تیم فوتبال ایران، فهرست ۳۰ نفره اعزامی به جام جهانی ۲۰۲۶ آمریکا را اعلام کرد. در این فهرست نام سردار آزمون دیده نمی‌شود. اگرچه قلعه‌نویی تاکید کرده سردار آزمون به دلایل فنی از لیست کنار گذاشته شده است، اما پیش‌تر او به‌دلیل انتشار عکسی با حاکم دبی، از اردوهای تیم ملی کنار گذاشته شده و گزارش‌هایی از مصادره اموالش منتشر شده بود.
+گفت‌وگو با کوروش بازیار، مربی فوتبال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337598
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337598_1779014903.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمیدرضا حاجی‌بابایی، نایب‌رییس مجلس، گفت: «اگر قرار شد نفت ما را بزنند، باید نفت منطقه را بزنیم. چه آن‌که ادعای دوستی می‌کند، چه آن‌که دشمنی می‌کند.»
+
+او گفت: «به نفت ما آسیب برسد، کاری می‌کنیم که آمریکا و تمام جهان تا مدت قابل توجهی از این منطقه نفت به دست نیاورد. اگر انرژی ما را بزنند، باید انرژی منطقه را بزنیم.»
+https://iranintl.com/202605170342
+</div>
+
+## IranIntlTV — post 337597
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337597_1779014903.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ارسالی به ایران‌اینترنشنال، از کمبود بنزین و اعمال محدودیت در برخی جایگاه‌های سوخت با هدف «مقابله با قاچاق» خبر می‌دهد. یک شهروند از بندرعباس می‌گوید بیش از چهار ساعت در صف بنزین منتظر بوده است.
+جزییات بیشتر با مهدی تاجیک، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337596
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337596_1779014905.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیام به ایران‌اینترنشنال می‌گوید: «نان سنگک ساده شده ۱۷ هزار تومان، کنجدی هم شده ۲۵ هزار تومان. نانوایی‌ها ترفندی زده‌اند؛ نان بزرگ‌تری را با کنجد زیاد درست کرده و ۸۰ هزار تومان می‌فروشند. کسانی که حوصله صف ندارند، مجبورند همان نان گران را بخرند.»
+پیام این شهروند با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## Persian_Trend_Official — post 14320
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14320_1779014907.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار در امارات 💢منابع عربی اعلام کردند که انفجارهایی خیابان فاطمه بنت مبارک در ابوظبی را لرزاند. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14319
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14319_1779014907.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار در امارات
+
+💢منابع عربی اعلام کردند که انفجارهایی خیابان فاطمه بنت مبارک در ابوظبی را لرزاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14318
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14318_1779014908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بقائی: آمریکا و اسرائیل خود عامل بی‌ثباتی در بازار انرژی هستند
+
+اسماعیل بقائی، سخنگوی وزارت خارجه، ادعاهای آمریکا و اسرائیل درباره «حفظ ثبات بازار جهانی انرژی» را رد کرد و آن را «دروغی بزرگ» توصیف کرد.
+
+بقائی گفت:
+
+▪️ جنگی که آمریکا و اسرائیل آغاز کردند، روند دیپلماسی را نابود کرد
+▪️ حمله نظامی به ایران باعث ناامنی در مسیرهای حیاتی انرژی شد
+▪️ سپس ایران را به بی‌ثبات‌سازی متهم کردند
+
+او با اشاره به آنچه «تاکتیک تبلیغاتی گوبلز» خواند، افزود:
+
+▪️ «دیگران را به همان کاری متهم می‌کنند که خودشان انجام می‌دهند»
+
+سخنگوی وزارت خارجه همچنین تأکید کرد:
+
+▪️ آمریکا و اسرائیل ابتدا بحران و جنگ ایجاد می‌کنند
+▪️ سپس با شعار «بازگرداندن ثبات» و «دفاع از صلح» به تشدید درگیری‌ها ادامه می‌دهند
+
+بقائی در پایان گفت:
+
+▪️ «آن‌ها ویرانی ایجاد می‌کنند و نامش را صلح می‌گذارند»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14317
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14317_1779014908.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌انتشار چاپ پنجم کتاب «قدرت مذاکره» همراه با فصل جدید «دیپلماسی زیر آتش» 🔹کتاب قدرت مذاکره به قلم دکتر سید عباس عراقچی حاصل بیش از سی سال تجربه کاری نویسنده در وزارت امور خارجه است. 🔹در این کتاب تلاش میشود ضمن تبیین و تحلیل ماهیت مذاکره و مذاکره سیاسی،…
+</div>
+
+## Persian_Trend_Official — post 14316
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رسانه‌های ایرانی جزئیات پاسخ واشینگتن به پیشنهاد توافق را منتشر کردند
+
+رسانه‌های ایرانی مدعی شدند پاسخ آمریکا به پیشنهاد توافق با ایران شامل ۵ شرط اصلی بوده است:
+
+▪️ آمریکا هیچ‌گونه غرامت یا خسارتی پرداخت نخواهد کرد
+
+▪️ ۴۰۰ کیلوگرم اورانیوم از ایران خارج و به آمریکا تحویل داده شود
+
+▪️ فقط یک مجموعه از تأسیسات هسته‌ای ایران فعال باقی بماند
+
+▪️ حتی ۲۵ درصد از دارایی‌های بلوکه‌شده ایران نیز آزاد نخواهد شد
+▪️ آتش‌بس در همه جبهه‌ها به روند مذاکرات گره بخورد
+
+در این گزارش آمده است:
+
+▪️ حتی در صورت پذیرش این شروط از سوی ایران، خطر حمله آمریکا و اسرائیل همچنان باقی خواهد ماند
+▪️ برخی تحلیلگران ایرانی معتقدند واشینگتن به‌دنبال تحقق اهدافی است که در جنگ به آن نرسیده است
+
+در مقابل، گزارش‌ها می‌گویند ایران نیز ۵ پیش‌شرط برای آغاز مذاکرات مطرح کرده است:
+
+▪️ پایان جنگ در تمامی جبهه‌ها، به‌ویژه لبنان
+
+▪️ رفع تحریم‌های ایران
+
+▪️ آزادسازی دارایی‌های بلوکه‌شده ایران
+
+▪️ پرداخت غرامت خسارات جنگ
+
+▪️ به‌رسمیت شناختن حاکمیت ایران بر تنگه هرمز
+
+تاکنون هیچ‌یک از این جزئیات به‌صورت رسمی از سوی تهران یا واشینگتن تأیید نشده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 12:48
 ---
 
