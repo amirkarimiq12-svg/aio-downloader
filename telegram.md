@@ -7,6 +7,292 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 21:10
+---
+
+## ChizBergerz — post 46495
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46495_1779039614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبقه بالای بخچال، پشت شیشه مربای هویج😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46494
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46494_1779039615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هواپیماهای ترابری ارتش آمریکا دوباره بصورت قطاری دارن میان خاورمیانه برای مذاکره با ج.ا: 🤭😁
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 برنامه امشب تا یکساعت دیگه:
+*گفتگو تلفنی نتانیاهو و ترامپ قبل از جلسه امنیتی اسرائیل برای حمله به رژیم ایران
+*چند روز تا حمله مانده؟
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 کارشناس صداوسیما:
+اسرائیل از هر زمانی آماده تر است و به ما حمله میکند
+https://www.youtube.com/watch?v=0Nm8XfXhbcU
+</div>
+
+## rodast_omiddana — post 71479
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71479_1779039617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 هر وقت ناامید شدید بروید آرشیو پستها قبل از دو جنگ 12 و 39 روزه را ببینید
+</div>
+
+## rodast_omiddana — post 71478
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ میدونه چیکار میکنه
+</div>
+
+## rodast_omiddana — post 71477
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71477_1779039617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨ویس من 18 روز قبل از کشتن خامنه ای و در اوج ناامیدی شما عزیزان
+👇
+👇
+👇
+</div>
+
+## rodast_omiddana — post 71476
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71476_1779039617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کاتز، وزیر دفاع اسرائیل شرکت خود را در حداقل سه رویداد عمومی که برای روزهای آینده برنامه‌ریزی شده بود، لغو کرد تا برای بازگشت به جنگ با ایران آماده شود.
+تیک تاک..
+</div>
+
+## rodast_omiddana — post 71475
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71475_1779039617.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری_ترامپ
+"برای رژیم ایران، ساعت در حال تیک‌تاک است و بهتر است سریع حرکت کنند، وگرنه چیزی از آنها باقی نخواهد ماند. زمان مهم است!"
+</div>
+
+## rodast_omiddana — post 71474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Voice message
+</div>
+
+## rodast_omiddana — post 71473
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71473_1779039618.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تکرار میکنم حملات آمریکا و اسرائیل به امید خدا تا قبل از دوشنبه 25می برابر با چهارم خرداد انجام خواهد شد..
+به امید خدا لایه برداری دُرشتی در راه است..
+</div>
+
+## KiriMohems — post 47652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیانیه قطر: از تلاش های دیپلماتیک پاکستان برای رسیدن به توافقی جامع حمایت میکنیم و بهشون اطلاع داده ایم که کیرتونو درارید ما بخوریم
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47651
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47651_1779039618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توئیت خایه جفت کن ترامپ : برای ایران، ساعت در حال تیک‌تاکه و بهتره سریع حرکت کنه (پا بزن آشغال) وگرنه گوزی از اونا باقی نمیمونه؛ زمان اهمیت حیاتی داره! #بوی_بگایی #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 13 اسرائیل : ترامپ چندتا رویداد که قرار بود تو اونا شرکت کنه رو کیر کرده و الان جلسه‌ درباره ایران برگزار کرده
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47649
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47649_1779039618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توئیت خایه جفت کن ترامپ :
+
+برای ایران، ساعت در حال تیک‌تاکه و بهتره سریع حرکت کنه (پا بزن آشغال) وگرنه گوزی از اونا باقی نمیمونه؛ زمان اهمیت حیاتی داره!
+#بوی_بگایی
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47647
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47647_1779039619.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منابع مختلفی نوشتن :
+پس از تماس نتانیاهو با ترامپ ، کون طاقچه‌ای چندتا رویداد که قرار بود تو اونا شرکت کنه رو کنسل کرده و جلسه‌‌ای کیری فوری درباره ایران برگزار کرده
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251774
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گگگلگلل رئال وینییی پاس گلل امباپه: WATCH
+</div>
+
+## IranIntlTV — post 337664
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337664_1779039620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی سخنگوی کمیسیون امنیت ملی مجلس، گفت: «آمریکا یا باید شرایط جمهوری اسلامی را بپذیرد و تسلیم دیپلمات‌های ما شود و یا اینکه از موضع قدرت با او مذاکره می‌کنیم و باید تسلیم موشک‌های ما شود.»
+او افزود: «تاریخ تنگه هرمز را باید به قبل و بعد از کشته‌شدن علی خامنه‌ای تقسیم کرد.»
+https://iranintl.com/202605179775
+</div>
+
+## IranIntlTV — post 337663
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337663_1779039620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد بنیامین نتانیاهو و دونالد ترامپ در تماس تلفنی‌ای که بیش از نیم ساعت طول کشید، درباره احتمال ازسرگیری درگیری با جمهوری اسلامی گفت‌وگو کردند.
+
+گفت‌وگو با منشه امیر، کارشناس امور خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337662
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337662_1779039622.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «من هم مثل خیلی از هموطنان بیکار شدم و برای ادامه زندگی، با قسط و قرض یک کامیون خریدم. حالا سوخت خیلی کم است و ناچارم یک لیتر گازوئیل را بین ۵۰ تا ۷۵ هزار تومان بخرم که اصلا مقرون به‌صرفه نیست.»
+</div>
+
+## IranIntlTV — post 337661
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337661_1779039624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت که زمان برای ایران به‌سرعت در حال سپری شدن است و بهتر است آن‌ها هرچه زودتر اقدام کنند در غیر این صورت «چیزی از آن‌ها باقی نخواهد ماند». ترامپ تاکید کرد: «زمان بسیار حیاتی است.»
+https://iranintl.com/202605171452
+</div>
+
+## IranIntlTV — post 337659
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337659_1779039625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله بن زاید آل‌نهیان، وزیر خارجه امارات متحده عربی پس از حمله پهپادی به نیروگاه هسته‌ای این کشور، تلفنی با رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی گفت‌وگو کرده است.
+
+به گزارش خبرگزاری دولتی امارات متحده عربی، وزیر خارجه این کشور تاکید کرد که ابوظبی حق کامل دارد به چنین «حملات تروریستی» پاسخ دهد.
+https://iranintl.com/202605177152
+</div>
+
+## Persian_Trend_Official — post 14346
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14346_1779039626.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعاتی پیش کانال Fighter Bomber رسانه غیررسمی اما معتبر هوانوردی روسیه تصویری از تست پروازی نسخه دوکابین سوخو-۵۷ منتشر کرد. Su-57D؟ Su-57UB؟ Su-57ED؟ هنوز کسی نمی‌داند و این ابهام در مرحله آزمایش اولیه طبیعی است.
+
+Su-57UB = گزینه اول
+روسیه برای نسخه‌های دوکابین آموزشی-رزمی سنت تاریخی با پسوند UB دارد؛ مثل سوخو-۲۷UB و میگ-۲۹UB — الگویی شناخته‌شده که مشتریان صادراتی آن را می‌شناسند.
+
+Su-57D = گزینه دوم
+پسوند D در روسی به نسخه‌های تخصصی اشاره دارد. اگر مسکو بخواهد نقش رزمی مستقل این پلتفرم را برجسته کند، این گزینه منطقی‌تر می‌شود.
+
+Su-57ED = آخرین گزینه
+ترکیب غیرمعمول حروف و اشاره به نسخه صادراتی، این را ضعیف‌ترین گزینه برای نام رسمی داخلی می‌کند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14345
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14345_1779039626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 ترامپ:
+
+برای ایران ساعت در حال تیک‌تاک است، و بهتر است خیلی سریع شروع به حرکت کنند، وگرنه هیچ چیزی از آن‌ها باقی نخواهد ماند.
+
+زمان یک عامل حیاتی است!
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14344
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14344_1779039627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای ساعدی نیا
+قلب میلیون ها ایرانی همراه شماست.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 20:08
 ---
 
