@@ -7,6 +7,528 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 12:48
+---
+
+## rodast_omiddana — post 71452
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71452_1779009522.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 آگوست 2012 تامی رابینسون فعال ملی‌گرای انگلیس یک تظاهرات کوچک در استکهلم برگزار کرد من و تعدادی از بچه ها با پرچم شیرخورشید رفتیم، وقتی رفتیم دیدیم ما 100 نفریم و مخالفینی که آمدن که نیروهای اسلامگرا و چپگرا هستن چند هزار نفرن، پلیس از ما حمایت میکرد و به سمت ما هر چی دستشون می آمد پرت میکردن..
+من موفق شدم بیش از 20 دقیقه با تامی رابینسون از طریق دوستم که به زبان مسلط بود حرف بزنم و بهش بگم ما ایرانیان با مهاجرهایی که میشناسی فرق داریم، ما ایرانیان با رژیم اسلامی فرق داریم و ما ایرانیان میتوانیم مهمترین متحد تو باشیم..
+حالا تامی رابینسون در تظاهرات دیروز لندن عکس شاهزاده را بالا برد و حرفهایی که سال 2012 بهش گفتم را مو به مو تکرار کرد..
+ویدیوها و تصاویر از تظاهرات سال 2012...
+
+پانوشت:
+به برگزار کنندگان گفتم باید پرچم شیرخورشید را روی جایگاه سخنرانان بالای همه پرچمها بزارم، گفت چرا بالا همه؟ گفتم چون قدمت ایران از همه شماها بیشتره و ما بیشترین هزینه را بابت ایستادگی در برابر اسلامگرایی پرداختیم..
+</div>
+
+## rodast_omiddana — post 71451
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71451_1779009524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 دیشب با یکی از چهره های مطرح در داخل کشور حرف میزدم، میگفت امید میدانی چرا اینقدر ما عاشق نتانیاهو هستیم، چون بهترین لحظات زندگیمونو در دوسال گذشته رقم زده و برای همین ما یک دل نه صد دل عاشق بی بی و اسرائیل شدیم..
+خدایش راست میگه، سپاسگزار ارتش اسرائیل هستیم که لحظات شادی برامون ساخت..
+</div>
+
+## rodast_omiddana — post 71450
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71450_1779009524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 مقام دوم در مسابقه آواز یوروویژن را به مردم عزیز اسرائیل تبریک میگم..
+
+🇮🇱
+🇮🇱
+</div>
+
+## rodast_omiddana — post 71449
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71449_1779009525.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 قالیباف نماینده ویژه جمهوری اسلامی در امور چین شد..
+فکر نکنم دیگه برسه به این امورات، برو صدقه ای چیزی بده، قرآن بخون، قرضاتو بده، بچه هاتو ببین، فرصت بودنت در این دنیا کمه..
+اینم تحلیل نیست بلکه دیتا هست!
+</div>
+
+## rodast_omiddana — post 71448
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71448_1779009526.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درخواست امید دانا از بهروز یوسیان افسر سابق اطلاعات اسرائیل برای ح*ف اژه ای و قضات دادگاه انقلاب
+</div>
+
+## rodast_omiddana — post 71447
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71447_1779009527.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨فشار دولت ترامپ به امارات برای تصرف جزیره لاوان
+حمله قطعی شده و بزودی آغاز میشود
+</div>
+
+## rodast_omiddana — post 71446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬رائفی پور: احتمال زیاد چین ما را فروخته
+لینک یوتیوب:
+https://www.youtube.com/watch?v=ec7Smonlg60
+</div>
+
+## KiriMohems — post 47611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قالیباف، نمایندۀ کلفت جمهوری اسلامی در امور چین شد
+
+قبلا ، لاریجانی و عبدالرضا رحمانی فضلی این مسئولیت رو برعهده داشتن
+
+ما هم نمیدونیم چرا بعد از سفر ترامپ به چین ، این مسئولیت رو به قالیباف دادن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47610
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47610_1779009530.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴‏مجری صدا وسیما : داداش ناموصا سلام من رو به مجتبی برسون.
+‏
+حدادعادل ریقو : والا من خودم به دامادم دسترسی ندارم، از همین‌جا بهش سلام می‌رسونم.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47609
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47609_1779009532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بارش انزال کننده‌ی برف بهاری در روستای قزلسوری چالدران اونم وسط بهار
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251753
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251753_1779009534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسسسمییی؛ ژابی سرمربی چلسی شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251752
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251752_1779009534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسسسمییی؛ ژابی سرمربی چلسی شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251751
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251751_1779009535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کینگ ژابی
+
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251750
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251750_1779009535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آاس: منچستر سیتی گواردیول رو به رئال مادرید پیشنهاد کرده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251746
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇷🇺
+⚽️| مری راک پورن استار روسی یه پیام برای دروازه‌بان پاریس، متوی سوفانوف گذاشته و گفته به تعداد سیو هایی که تو فینال لیگ قهرمانان انجام بدی به همون تعداد شب میام پیشت و بهت حال میدم.
+
+
+🔴 مری راک حتی اضافه کرده اگه بتونه مقابل آرسنال کلین‌ شیت کنه براش یه صبحونه ویژه هم درست میکنه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251745
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251745_1779009536.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆
+🇮🇹 | آیا می‌دانستید طی 20 سال گذاشته تعداد حضور اکس پیکه تو جام جهانی ها از تعداد حضور ایتالیا تو جام جهانی ها بیشتر بوده؟
+
+
+🔴 اکس پیکه 4 حضور تو جام جهانی
+
+🟢 ایتالیا 3 حضور تو جام جهانی
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337595
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337595_1779009537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، از برگزاری نخستین جلسه دادگاه رسیدگی به اتهامات صادق ساعدی‌نیا، مدیرعامل مجموعه «املاک و صنایع ساعدی‌نیا» و از حامیان اعتصاب‌ها و اعتراضات دی‌ماه، در دادگاه انقلاب قم خبر داد.
+طبق این گزارش، ساعدی‌نیا با اتهاماتی از جمله «فعالیت تبلیغی یا رسانه‌ای برخلاف امنیت کشور»، «اقدام عملیاتی در راستای فراخوان‌های گروه‌های معاند برای برهم زدن امنیت کشور» و «فعالیت تبلیغی علیه نظام» روبه‌رو است.
+انتشار استوری، فعالیت در فضای مجازی، حضور در تجمعات اعتراضی، تعطیل کردن کافه‌ها و مغازه‌های متعلق به خود و تشویق برخی کارکنانش به حضور در اعتراضات از مصادیق اتهامات مطرح‌شده علیه او عنوان شده است.
+نماینده دادستان، مواردی مانند فعالیت‌های ساعدی‌نیا در فضای مجازی، تهیه کلیپی از یکی از کارکنانش با نوشته «جاوید شاه» روی دست، ایجاد و مدیریت گروه واتساپی کارکنان کافه‌ها، انتشار پیام صوتی درباره خاموش کردن گوشی برای جلوگیری از ردیابی، حضور برخی کارکنان در اعتراضات و برنامه‌ریزی برای تعطیلی کافه‌ها و کارخانه‌ها همزمان با فراخوان‌های اعتراضی را از مصادیق اتهامات مطرح‌شده علیه او عنوان کرد.
+</div>
+
+## IranIntlTV — post 337594
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337594_1779009537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابوالفضل شکارچی، سخنگوی ارشد نیروهای مسلح جمهوری اسلامی، گفت که دونالد ترامپ باید بداند در صورت عملی شدن تهدیدها و حمله مجدد به جمهوری اسلامی، دارایی‌ها و ارتش آمریکا با «سناریوهای جدید، هجومی، غافلگیرکننده و طوفانی» روبه‌رو خواهند شد و در «باتلاق خودساخته‌» فرو خواهند رفت.
+https://iranintl.com/202605170463
+</div>
+
+## IranIntlTV — post 337593
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337593_1779009538.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اسرائیلی معاریو به نقل از ارزیابی نهادهای اطلاعاتی اسرائیل گزارش داد جمهوری اسلامی همچنان بیش از هزار موشک بالستیک دوربرد و ۲۰۰ پرتابگر در اختیار دارد که قادر به هدف قرار دادن خاک اسرائیل هستند.
+جزییات بیشتر با اشکان صفائی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در آتش‌بس- یکشنبه۲۷ اردیبهشت ۱۴۰۵
+
+🔹چیزی به اسم ساعت مرگ شنیدین؟ ساعتی که همه‌چیز، از جمله انگیزه از بین میره. برای من، اون روزی بود که مجبور شدم به خاطر شرایط تحمیل‌شده، ۶ نفر از ۱۴ نفر از نیروهام رو تعدیل کنم.
+
+🔹هنوز نتونستم میوه این فصل رو به دلیل قیمت‌های وحشتناک گرون برای خانواده بخرم؛ توت‌فرنگی، گوجه‌سبز و زردآلو.
+
+🔹قبل از جنگ می‌خواستم یه هارد بخرم، ۵۰ میلیون تومان بود و الان شده ۱۶۰ میلیون تومان.
+
+🔹نان سنگک ساده شده ۱۷ هزار تومان، کنجدی هم شده ۲۵ هزار تومان. نانوایی‌ها یه ترفند زدن؛ یک نون بزرگ‌تر با کنجد زیاد درست کردن به قیمت ۸۰ هزار تومان می‌فروشن. کسانی که حوصله صف ندارن، مجبورن همون نون گرون رو بخرن.
+
+🔹من خانم هستم و آتلیه عروسی داشتم. شغل ما همیشه زیر سایه تهدید شدید اماکن بوده و اجازه گذاشتن نمونه‌ کار نداشتیم. الان با این گرونی و قطعی اینترنت کلا نابود شدیم، چون هیچ عروسی برگزار نمی‌شه.
+
+🔹من تریدرم و از وقتی اینترنت قطع شده، درآمد ندارم. چند سال زحمت کشیدم اما تریدینگ‌ویو، ابزار کارم باز نمی‌شه. برای ترید نیاز به اینترنت پایدار و آرامش دارم که هیچ‌کدوم نیست.
+
+🔹در بلوچستان هر ۲۰ لیتر بنزین آزاد، بین یک میلیون و ۳۰۰ هزار تومان تا یک میلیون و ۵۰۰ هزار تومان هست؛ یعنی حدودا لیتری ۶۰ تا ۷۰ هزار تومان.
+
+🔹دارم خونه می‌سازم و هر لحظه قیمت‌ها بیشتر می‌شه. کل هزینه ساختن تا قبل از عید یک میلیارد و نیم بود اما الان کابینت جنس معمولی شده یک میلیارد تومان.
+</div>
+
+## IranIntlTV — post 337591
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337591_1779009539.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با انتشار گزارش‌ها از احتمال ازسرگیری حملات آمریکا و اسرائیل علیه جمهوری اسلامی، دونالد ترامپ، رییس‌جمهوری ایالات متحده، گفت اگر جمهوری اسلامی توافق نکند، روزگار بسیار بدی خواهد داشت.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند از بندرعباس با ارسال ویدیویی به ایران‌اینترنشنال، صف طولانی خودروها مقابل پمپ‌بنزین را نشان می‌دهد و می‌گوید: «به عنوان مقابله با قاچاق، کارت‌های سوخت جایگاه‌ها را برداشته و به هر جایگاه فقط یک کارت داده‌اند.»
+</div>
+
+## IranIntlTV — post 337588
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337588_1779009541.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علاءالدین بروجردی، عضو کمیسیون امنیت ملی مجلس، درباره مذاکرات با آمریکا، گفت: «طرف مقابل باید بپذیرد که جمهوری اسلامی حاکم بر تنگه هرمز است. بدانند که موضوع هسته‌ای هیچ ارتباطی با آمریکا ندارد و به هیچ‌وجه حاضر نیستیم از آن کوتاه بیاییم.»
+
+بروجردی درباره شروط جمهوری اسلامی برای حضور در مذاکرات، گفت: «آنها باید بپذیرند که هرگونه توافق در مذاکرات احتمالی آینده، توافق با کل جبهه مقاومت اعم از لبنان، عراق و یمن خواهد بود. اگر این قواعد را قبول نداشته باشند، ورود به مذاکره بی‌فایده خواهد بود.»
+
+عضو کمیسیون امنیت ملی گفت: «آنها باید بپذیرند که اموال بلوکه‌شده آزاد شود. همچنین باید تحریم‌ها برداشته شوند. پذیرش این شروط الزامی است.»
+https://iranintl.com/202605174982
+</div>
+
+## IranIntlTV — post 337587
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337587_1779009542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی تاج، رییس فدراسیون فوتبال پس از جلسه با دبیرکل فیفا گفت: «جلسه خیلی خوبی بود؛ ۱۰ موردی که گفته بودیم را شنیدند و برای هر کدام راه حل‌هایی ارائه کردند. امیدوارم که تیم ملی به جام جهانی برود و نتایج خوبی بگیرد.» این درحالی است که ماتیاس گرافستروم از اظهارنظر دراین‌باره خودداری کرد.
+
+🔹ماتیاس گرافستروم، دبیرکل فیفا پس از جلسه با مهدی تاج، در پاسخ به سوالی درباره تضمین‌های مورد نظر فدراسیون فوتبال ایران برای ویزا و ورود تیم ملی به آمریکا و کانادا گفت: «ما درباره تمام مسائل مرتبط گفت‌وگو کردیم.»
+
+🔹او گفت: «فکر می‌کنم اینجا جای مطرح کردن جزئیات نیست. اما در مجموع نشست بسیار مثبتی بود و مشتاق ادامه گفت‌وگوها هستیم. درست مانند گفت‌وگوهایی که با همه فدراسیون‌های عضو داریم و مشتاق برگزاری جام جهانی هیجان‌انگیزی در آمریکا، کانادا و مکزیک هستیم. متشکرم.»
+
+🔹گرافستروم گفت: «فرصت داشتیم درباره برخی مسائل اجرایی صحبت کنیم؛ همان‌طور که با تمام فدراسیون‌های عضو این کار را انجام می‌دهیم.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337586
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337586_1779009542.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی از اصفهان به ایران‌اینترنشنال، تجمع حامیان حکومت را در شامگاه جمعه ۲۵ اردیبهشت نشان می‌دهد و از آزار و اذیت خیابانی آنها می‌گوید: «راه را بند آورده‌اند و ترافیک ایجاد کرده‌اند. اینها شریک جناینکاران هستند و برخلاف مردم، آزادی کامل دارند.»
+</div>
+
+## IranIntlTV — post 337585
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337585_1779009544.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیر قلعه‌نویی فهرست ۳۰ نفره‌ تیم فوتبال ایران برای جام جهانی ۲۰۲۶ را اعلام کرد. جنجالی‌ترین نکته این فهرست، غیبت سردار آزمون، رکورددار بیشترین گل ملی ایران پس از علی دایی است.
+
+گفت‌وگو با آیدین مقیمی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337584
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337584_1779009546.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی باقری، معاون دبیر شورای عالی امنیت ملی جمهوری اسلامی، در سفر به ترکیه با هاکان فیدان، وزیر خارجه این کشور، دیدار و گفت‌وگو کرد. منابع دیپلماتیک اعلام کردند دو طرف درباره تحولات سیاسی و امنیتی منطقه و همچنین همکاری‌های دوجانبه رایزنی کردند.
+جزییات بیشتر با نرگس هورخش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337583
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337583_1779009548.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس، خبرگزاری وابسته به سپاه پاسداران، گزارش داد که محمدباقر قالیباف، رییس مجلس شورای اسلامی، نماینده ویژه جمهوری اسلامی در امور چین شد. پیش‌تر علی لاریجانی با حکم علی خامنه‌ای و پس از آن عبدالرضا رحمانی‌فضلی با حکم مسعود پزشکیان این سمت را در اختیار داشتند.
+https://iranintl.com/202605178453
+</div>
+
+## IranIntlTV — post 337582
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337582_1779009548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند ایرانیان مقیم فرانسه و ایتالیا روز شنبه ۲۶ اردیبهشت علیه جمهوری اسلامی و قطع اینترنت ایران در شهرهای بوردو و تورین تجمع کردند.
+</div>
+
+## IranIntlTV — post 337581
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337581_1779009550.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش نت‌بلاکس، نهاد پایش وضعیت اینترنت در جهان، قطع سراسری اینترنت در ایران وارد هفتادونهمین روز خود در دوازدهمین هفته شده است: «این اقدام گسترده سانسور، ماهیت مشارکت مدنی را دگرگون کرده و کنترل اطلاعات به ابزاری برای تقلیل شهروندان عادی به ناظران تحولات تبدیل شده است.»
+https://iranintl.com/202605174006
+</div>
+
+## IranIntlTV — post 337580
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337580_1779009551.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیوهای ارسال‌شده‌ به ایران‌اینترنشنال، ایرانیان مقیم کانادا شنبه ۲۶ اردیبهشت علیه جمهوری اسلامی و قطع اینترنت ایران در مونترال تجمع کردند و شعار «مرگ بر جمهوری اسلامی» سردادند.
+</div>
+
+## IranIntlTV — post 337579
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337579_1779009553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرمانده پلیس راه سیراف عسلویه اعلام کرد که در پی واژگونی اتوبوس در محور عسلویه به کنگان، هشت نفر در محل حادثه جان خود را از دست دادند. کارشناسان پلیس راه علت این واژگونی را نقص فنی در سیستم ترمز تشخیص داده‌اند.
+https://iranintl.com/202605172998
+</div>
+
+## IranIntlTV — post 337578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم ملبورن استرالیا در یکی دیگر از آخر هفته‌های اعتراضی ایرانیان خارج از کشور، با حضور در مرکز این شهر و در حمایت و همبستگی با مردم ایران، سرود «ای‌ایران» را هم‌خوانی کردند.
+گزارش علیرضا محبی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14314
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ دوستان، این حساب رسمی نیست. این اکانت صرفاً با پرداخت حدود ۱۰۰۰ دلار در ماه، تیک زرد (تأیید اشتراکی) دریافت کرده است. حساب‌های رسمی دولتی و سازمانی معمولاً تیک خاکستری دارند و اطلاعات هویتی و سازمانی آن‌ها به‌صورت شفاف در بخش Bio یا مشخصات حساب ثبت شده…
+</div>
+
+## Persian_Trend_Official — post 14313
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14313_1779009553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢توییت اتاق جنگ اسرائیل 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان
+
+💢دادگاه رسیدگی به اتهامات صادق ساعدی‌نیا برگزار شد
+
+🔹جلسه رسیدگی به اتهامات صادق ساعدی‌نیا، مدیرعامل شرکت صنعت غذایی و مدیر کافه‌های زنجیره‌ای ساعدی‌نیا از متهمان کودتای آمریکایی صهیونیستی دی ۱۴۰۴ در دادگاه انقلاب قم با حضور رئیس و مستشاران دادگاه، نماینده دادستان، متهم صادق ساعدی‌نیا و وکلای متهم برگزار شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14311
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14311_1779009553.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نشان ویژه برای خدمه ناو هواپیمابر «جرالد آر. فورد» و ناو گروه آن پس از جنگ ایران
+
+💢سرپرست وزارت نیروی دریایی آمریکا اعلام کرد گروه ضربت ناو هواپیمابر «جرالد آر. فورد» و نیروهای گروه ضربت ناو هواپیمابر ۱۲ به‌دلیل عملکردشان در خاورمیانه طی جنگ اخیر ایران، نشان «واحد ریاست جمهوری» دریافت کرده‌اند.
+
+💢بر اساس این بیانیه:
+
+▪️ این گروه رزمی در عملیات‌های گسترده علیه اهداف ایرانی مشارکت داشته است
+▪️ ادعا شده ۱۲۵ شناور جنگی ایرانی هدف قرار گرفته‌اند
+▪️ همچنین ۲۰۷ موشک کروز «تاماهاوک» به اهدافی در ایران شلیک شده است
+
+🔻در ادامه آمده:
+
+💢 هواگردهای مستقر بر ناو «جرالد آر. فورد» بیش از ۱۷۰۰ سورتی پرواز رزمی از مدیترانه و دریای سرخ انجام داده‌اند
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14310
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14310_1779009554.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ سی‌ان‌ان: ایران به کابل‌های اینترنتی تنگه هرمز چشم دوخته است!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14309
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14309_1779009554.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢توییت اتاق جنگ اسرائیل
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14308
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14308_1779009555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❌️ این عکس را چندین بار در گوگل لنز جست‌وجو کردیم، اما هیچ منبع معتبر یا رسانه قابل‌اعتمادی برای آن پیدا نشد.
+
+به همین دلیل، به‌نظر می‌رسد این تصویر با هوش مصنوعی ساخته شده و واقعی نیست.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14307
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14307_1779009555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢محمدباقر قالیباف، نمایندۀ ویژۀ ایران در امور چین شد
+
+🔹پیش‌تر « علی لاریجانی» و «عبدالرضا رحمانی فضلی» چنین مسئولیتی را برعهده داشتند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14306
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14306_1779009555.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دیلی میل: نخست وزیر انگلیس استعفا می‌دهد
+
+💢دیلی میل گزارش داد استارمر نخست وزیر انگلیس در بحبوحه شورش فزاینده در حزبش، به نزدیکانش اطلاع داده است که قصد استعفا دارد.
+
+💢بیش از ۹۰ نماینده مجلس از حزب کارگر در روزهای اخیر خواستار استعفای او شده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 10:51
 ---
 
