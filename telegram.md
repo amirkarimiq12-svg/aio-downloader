@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 03:39
+---
+
+## ChizBergerz — post 46476
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46476_1778976587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه رسما دارن تو دیجیکالا دیلدو میفروشن!😐😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46475
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46475_1778976588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae26
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## rodast_omiddana — post 71443
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71443_1778976590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 واقعا برای یه بی معرفت فرصت طلب که میخواهد با کنسرت و فروش بلیط پا رو خون جاویدنامان بزاره به علی کریمی که زندگیشو برای مردم گذاشته توهین کردید؟
+فقط دعا کنید اینترنت وصل نشه، بیشرفها..
+</div>
+
+## rodast_omiddana — post 71442
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71442_1778976591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پست کاخ سفید:
+هیچ بازی ای در کار نیست ، اگر به آمریکایی ها آسیبی برسانید یا برنامه ای برای این کار داشته باشید ما شمارو پیدا میکنیم و میکشیم !
+</div>
+
+## IranIntlTV — post 337547
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران، فقط خیابان‌هایی نیست که در آن گلوله شلیک شد؛
+خانه‌هایی هم هست که هنوز صدای آخرین خداحافظی را فراموش نکرده‌اند. جوانانی که هرکدام شغلی، رویا، خانواده و آینده‌ای داشتند، در روزهایی کشته شدند که خواستن آزادی هزینه جان داشت.
+جاویدنامان انقلاب ملی ایرانیان:
+علیرضا باقری منجیلی، سمانه عبدی، سجاد صمدی نوقابی، فرهاد امانی، محمدرضا منصوری، علیرضا صحت‌بخش پیله‌رودی، محمدمعین چابک (خسروی) و صدرا سلطانی
+نام‌هایی که از حافظه این سرزمین پاک نمی‌شوند؛ چون پشت هر نام، زندگی ناتمامی مانده که می‌توانست ادامه پیدا کند.
+#جاویدنامان_انقلاب_ملی_ایرانیان
+</div>
+
+## IranIntlTV — post 337546
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337546_1778976591.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روز شنبه ۲۶ اردیبهشت، برخورد یک قطار باری با اتوبوسی در بانکوک به حادثه‌ای مرگبار انجامید.
+
+بر اساس گزارش‌های منتشرشده، در پی این برخورد و ایجاد شکاف در مخزن گاز طبیعی فشرده، انفجار و آتش‌سوزی بزرگی رخ داد. در این سانحه، دست‌کم هشت نفر کشته و بیش از ۲۵ نفر دیگر زخمی شدند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337545
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337545_1778976593.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلغارستان روز شنبه برای نخستین بار برنده مسابقه آواز یوروویژن شد. ترانه «بانگارنگا» با اجرای دارا، پس از شمارش امتیازهای رای مردمی و هیات‌های داوری ملی در رتبه اول قرار گرفت و اسرائیل نیز دوم شد.
+پنج کشور فینال یوروویژن را در اعتراض به جنگ غزه تحریم کرده بودند.
+
+https://iranintl.com/202605163001
+</div>
+
+## Persian_Trend_Official — post 14281
+
+
+
+
+---
 📅 بروزرسانی: 1405/02/27 02:45
 ---
 
