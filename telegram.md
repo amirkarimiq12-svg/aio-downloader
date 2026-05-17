@@ -7,6 +7,181 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 03:10
+---
+
+## rodast_omiddana — post 71491
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71491_1779061226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پست امشب ترامپ..
+هماهنگی ها با نخست وزیر نتانیاهو انجام شده، به امارات هم ندا داده شده، به امید خدا میرویم برای دستکم 20 روز جنگ و یک لایه برداری درست و حسابی از سران رژیم...
+</div>
+
+## rodast_omiddana — post 71490
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71490_1779061226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ روز سه شنبه جلسه مهمی با تیم ارشد امنیت ملی خودش برگزار میکند تا گزینه نهایی حمله نظامی را تایید کند..
+این تحلیل نیست بلکه دیتا هست..
+</div>
+
+## rodast_omiddana — post 71489
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71489_1779061226.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 علی قلهکی خبرنگار امنیتی رژیم:
+"وزیر کشور پاکستان در تهران گفت یا باید شروط ایالات متحده و شخص پرزیدنت ترامپ رو قبول کنید یا منتظر جنگ تمام عیار باشید"
+</div>
+
+## rodast_omiddana — post 71488
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71488_1779061227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آموزش استفاده از اسلحه تک‌تیرانداز در صداوسیما..
+رژیم اینبار بخوبی فهمیده جنگ زمینی در راه است و هم با ارتش آمریکا و هم با مردم ایران باید در خیابانها بجنگد..
+</div>
+
+## rodast_omiddana — post 71487
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71487_1779061227.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری:
+کشته شدن ۴۳ نیروی حوثی در حملات اسرائیل به جنوب لبنان.
+تروریستهای حوثی در کنار نیروهای حزب‌الله علیه ارتش اسرائیل در نبرد بودند که همه کتلت شدن..
+</div>
+
+## rodast_omiddana — post 71486
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71486" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_تلفن نتانیاهو و ترامپ قبل از جلسه امنیتی اسرائیل برای حمله به رژیم ایران_چند روز تا حمله مانده؟
+</div>
+
+## rodast_omiddana — post 71485
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71485" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 تلفن نتانیاهو و ترامپ قبل از جلسه امنیتی اسرائیل برای حمله به رژیم ایران_چند روز تا حمله مانده؟
+</div>
+
+## rodast_omiddana — post 71484
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_تلفن نتانیاهو و ترامپ قبل از جلسه امنیتی اسرائیل برای حمله به رژیم ایران_چند روز تا حمله مانده؟
+</div>
+
+## rodast_omiddana — post 71483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_تلفن نتانیاهو و ترامپ قبل از جلسه امنیتی اسرائیل برای حمله به رژیم ایران_چند روز تا حمله مانده؟
+</div>
+
+## KiriMohems — post 47678
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47678_1779061228.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A27🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## KiriMohems — post 47677
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#روایت_شب
+
+ما درس را به کیر و تخمانمان گرفتیم
+از فکر کون و کص نیز هر روز جان گرفتیم
+
+با کصشعر مداوم تعریف های دائم
+چوچول درّ و دافان را بر زبان گرفتیم
+
+هر روز کارمان بود کصچرخ با پلنگان
+صد نوع جنگ و دعوا با پاسبان گرفتیم
+
+دیدیم درّ و دافان کونی پسند گشتند
+خم گشته کون خود را سو آسمان گرفتیم
+
+حتی اگر زمانی بی کیر طبعشان بود
+میدیدی از پسش ما، کیر از مکان گرفتیم
+
+امّیدوار بودیم بی کار و بار بودیم
+دختر نبود اما آپارتمان گرفتیم
+
+هی وقت ها گذشت و هی درس شد تلنبار
+از کیر خویش هر روز ما امتحان گرفتیم
+
+یک ترم رفت و آخر کون گیرمان نیامد
+کیر هزار استاد را بر دهان گرفتیم
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل اول اینترمیامی توسط اسطوره مسی: WATCH
+</div>
+
+## SportBaadNews — post 251793
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251793_1779061229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸
+🎙 هانسی فلیک: جانشین لوا؟ خب پیدا کردن جانشین واسه بهترین مهاجم نوک جهان تو بیست سال اخیر خیلی کار سختیه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337702
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337702_1779061229.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های جمهوری اسلامی پیامی منتسب به اسماعیل قاآنی، فرمانده نیروی قدس سپاه، را درباره کشته شدن عزالدین الحداد، فرمانده شاخه نظامی حماس، منتشر کردند. در این پیام آمده است که کشته شدن چنین چهره‌هایی «الهام‌بخش مجاهدان جوان فلسطینی» برای «نابودی» اسرائیل خواهد بود.
+https://iranintl.com/202605176601
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 02:04
 ---
 
