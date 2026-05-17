@@ -7,6 +7,282 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 22:12
+---
+
+## ChizBergerz — post 46496
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46496" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیست آیپی تست شده شیر و خورشید
+
+همه رو یک‌جا کپی و در شیروخورشید پیست کنید.
+
+⚙️ More Options > CDN Fronting > CDN edge IPs
+
+@ChizBergerz
+</div>
+
+## KiriMohems — post 47655
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47655_1779043352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 فاکس نیوز : ارزیابی غالب داخل ایران اینه که ترامپ ممکنه دوباره کیر نظامی رو بلند کنه
+
+
+تهران اوج کیرزرنگ بازی رو درآورده و عمداً داره سیاست «فریب و وقت‌کشی» رو جلو میبره تا آمریکا رو با خریدن زمان برگشتن به جنگ به کصکشی بکشونه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47654
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 آکسیوس : ترامپ سیخ کرده که سه‌شنبه جلسه‌ای با تیم ارشد امنیت ملی خودش برگزار کنه تا گزینه‌های اقدام نظامی علیه کون جمهوری اسلامی رو بررسی کنه #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47653
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47653_1779043354.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 آکسیوس : ترامپ سیخ کرده که سه‌شنبه جلسه‌ای با تیم ارشد امنیت ملی خودش برگزار کنه تا گزینه‌های اقدام نظامی علیه کون جمهوری اسلامی رو بررسی کنه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251778
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251778_1779043355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آره آرسنالی خجالت نکش
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251777
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251777_1779043356.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیمار چقدر بد شانسه 😂😂😂😂😂
+
+ماجرا اینه که داور چهارم اشتباه می‌کنه و به‌جای بازیکن دیگه، نیمار رو تعویض می‌کنه.
+نیمار هم برگه تعویض رو بهش نشون می‌ده و می‌گه اشتباه کردی ببین خودت... در نهایت هم اجازه نمی‌دن دوباره برگرده داخل زمین 😂😂😂
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251776
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251776_1779043357.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ قابل توجه کاربران محترم وینکوبت، تمام قابلیت‌های سایت یکجا در ربات وینکوبت در دسترس کاربران قرار دارد.
+
+
+📌  کافیست با استارت کردن ربات و زدن دکمه‌ی وبسایت، وارد سایت بشید و به‌راحتی ثبت‌نام و پیش‌بینی مسابقات ورزشی رو انجام بدید: 
+👇
+
+🤖- @Wincobet_bot
+
+
+🎰    از پیش‌بینی مسابقات ورزشی تا کازینو آنلاین، بدون نیاز به خروج از تلگرام با مینی‌اپ هوشمند وینکوبت بازی کن!
+
+
+
+📌در وینکوبت ثبت‌نام کن و با شارژ از طریق کریپتو ۵٪ شارژ بیشتری رو دریافت کنید، همین حالا شروع کن: 
+👇
+
+
+🤖- @Wincobet_bot
+
+
+📌برای اطلاع از تحلیل بازی‌ها و ورود به کانال سایت جوین بدید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 251775
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251775_1779043358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سهامدار سویا هستند:
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337676
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337676_1779043358.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه عربستان سعودی حمله پهپادی به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد.
+
+همزمان وزارت خارجه بحرین اعلام کرد که این کشور حمله «تروریستی» به نیروگاه هسته‌ای براکه را به‌شدت محکوم می‌کند و بر همبستگی کشورش با امارات متحده عربی تاکید کرد.
+https://iranintl.com/202605174803
+</div>
+
+## IranIntlTV — post 337675
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337675" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: تماس نتانیاهو و ترامپ درباره ایران؛ تشدید تنش‌ها با حمله پهپادی به امارات
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337673
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337673_1779043359.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «در شرایط فعلی، کسی در تهران به‌دنبال صلح نیست و ظاهراً صلح و امتیاز دادن و گرفتن را نوعی ضعف و ضدارزش می‌دانند.»
+
+او افزود: «برنامه هسته‌ای که به‌خاطر آن دو بار کشور وارد جنگ شد، خسارت‌های سنگینی به ایران وارد کرده و بخش بزرگی از تاسیسات و توان مرتبط با آن نابود شده است. با این حال، دوباره بحث‌ها به همان نقطه اول برگشته؛ انگار دوباره به نقطه صفر و مرحله‌ای سخت بازگشته‌ایم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337672
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337672_1779043361.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله حاجی‌صادقی، نماینده مجتبی خامنه‌ای در سپاه پاسداران، گفت: مذاکرات ما تحت اشراف مسئولان و با تایید «رهبری» پیش می‌رود. او با تاکید بر اینکه «اتحاد مقدس از هر چیزی مهم‌تر است»، افزود نباید اجازه داد این اتحاد آسیب ببیند.
+
+حاجی‌صادقی همچنین گفت: «رهبری شجاع، بصیر، حکیم، مسلط و با قدرت فرماندهی داریم که مردم را به زیبایی رهبری می‌کند.»
+https://iranintl.com/202605173538
+</div>
+
+## IranIntlTV — post 337671
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337671" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | یکشنبه ۲۷ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337670
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337670_1779043362.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ۱۳ اسرائیل پس از تهدید دوباره جمهوری اسلامی گفت: «فکر می‌کنم مقام‌های تهران باید از من بترسند و مراقب باشند.»
+
+او همچنین در گفت‌وگو با کانال ۱۲ اسرائیل گفت همچنان معتقد است ایران خواهان دستیابی به توافق است و انتظار دارد تهران در روزهای آینده پیشنهاد تازه‌ای ارائه کند.
+ترامپ از تعیین ضرب‌الاجل برای مذاکرات خودداری کرد، اما هشدار داد در صورت برآورده نشدن خواسته‌های آمریکا درباره برنامه هسته‌ای ایران، اقدام نظامی شدیدتری در پیش خواهد بود.
+https://iranintl.com/202605174881
+</div>
+
+## IranIntlTV — post 337669
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337669_1779043362.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ۱۳ اسرائیل پس از تهدید دوباره جمهوری اسلامی گفت: «فکر می‌کنم مقام‌های تهران باید از من بترسند و مراقب باشند.»
+
+او همچنین در گفت‌وگو با کانال ۱۲ اسرائیل گفت همچنان معتقد است ایران خواهان دستیابی به توافق است و انتظار دارد تهران در روزهای آینده پیشنهاد تازه‌ای ارائه کند.
+ترامپ از تعیین ضرب‌الاجل برای مذاکرات خودداری کرد، اما هشدار داد در صورت برآورده نشدن خواسته‌های آمریکا درباره برنامه هسته‌ای ایران، اقدام نظامی شدیدتری در پیش خواهد بود.
+https://iranintl.com/202605174881
+</div>
+
+## IranIntlTV — post 337668
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337668_1779043363.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با شبکه ۱۳ اسرائیل پس از تهدید دوباره جمهوری اسلامی گفت: «فکر می‌کنم مقام‌های تهران باید از من بترسند و مراقب باشند.»
+
+او همچنین در گفت‌وگو با کانال ۱۲ اسرائیل گفت همچنان معتقد است ایران خواهان دستیابی به توافق است و انتظار دارد تهران در روزهای آینده پیشنهاد تازه‌ای ارائه کند.
+ترامپ از تعیین ضرب‌الاجل برای مذاکرات خودداری کرد، اما هشدار داد در صورت برآورده نشدن خواسته‌های آمریکا درباره برنامه هسته‌ای ایران، اقدام نظامی شدیدتری در پیش خواهد بود.
+https://iranintl.com/202605174881
+</div>
+
+## IranIntlTV — post 337667
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337667_1779043364.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی دریافتی نشان می‌دهد روز شنبه ۲۶ اردیبهشت، جمعی از ایرانیان ساکن شهر رجاینا در ساسکاچوانِ کانادا، همراه با اجرای پرفورمنسی علیه اعدام‌های جمهوری اسلامی و قطعی اینترنت در ایران، تجمع اعتراضی برگزار کردند.
+</div>
+
+## IranIntlTV — post 337666
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطعی اینترنت در ایران به روز هفتاد و نهم رسیده است و دشواری‌های فراوانی برای میلیون‌ها ایرانی ایجاد کرده. گزارش‌های مختلفی از این مشکلات برای گروه‌های مختلف، از جمله افراد معلول منتشر شده است.
+
+گفت‌وگو با رقیه رضایی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 337665
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337665_1779043365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۳ اسرائیل گزارش داد این کشور در آماده‌باش کامل قرار دارد. بنابر طرح‌های تدوین‌شده، اهداف حملات احتمالی شامل زیرساخت‌های حکومتی، تاسیسات انرژی، نیروگاه‌ها و همچنین تلاش برای هدف قرار دادن مقام‌های ارشد ایران خواهد بود.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2KsilHSCq4o?feature=share
+</div>
+
+## Persian_Trend_Official — post 14349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود ساعت 22 به وقت تهران عزیز لایو امشب رو آغاز میکنیم
+</div>
+
+## Persian_Trend_Official — post 14347
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ: زمان برای جمهوری اسلامی رو به پایان است.
+ 
+دونالد ترامپ، رئیس‌جمهور اِیالات متحده، شامگاه یکشنبه، ۲۷ اردیبهشت‌ماه با انتشار پیامی در شبکه‌ی اجتماعی خود از این خبر داد که ساعت برای جمهوری اسلامی در حال تیک‌تاک است. رئیس‌جمهور آمریکا به رژیم توصیه کرد بهتر است سریع‌تر حرکت کنند، در غیر این صورت چیزی برای آنها باقی نخواهد ماند.
+دونالد ترامپ این پیام را دقایقی پس از آن منتشر کرد که رسانه‌های اسرائیلی و آمریکایی از گفت‌وگوی او با بنیامین نتانیاهو، نخست‌وزیر اسرائیل خبر دادند.
+تایمز اسرائیل شامگاه یکشنبه گزارش داد بنیامین نتانیاهو، عصر روز یکشنبه و دقایقی پیش از برگزاری یک نشست محدود امنیتی در شامگاه یکشنبه، با دونالد ترامپ، درباره جنگ علیه جمهوری اسلامی گفتگو کرده است.
+ 
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 21:10
 ---
 
