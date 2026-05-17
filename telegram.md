@@ -7,6 +7,122 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/27 07:50
+---
+
+## rodast_omiddana — post 71445
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71445_1778991607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 احتمال حمله آمریکا برای چند ساعت آینده بالاست ولی اگر تا پایان یکشنبه حمله نشه، حملات میفته برای جمعه تا یکشنبه دیگه...
+حمله قطعی ست و خدا کنه لایه برداری تُپلی از مسئولین رده بالای رژیم داشته باشیم..
+</div>
+
+## rodast_omiddana — post 71444
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71444_1778991607.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری
+توییت جدید اتاق جنگ اسرائیل
+ساعت معروف شنی
+زمان رو به اتمام است...
+دفعه پیش وقتی ساعت شنی که داره تمام میشه را گذاشتند 48 ساعت بعد خامنه ای را هدف قرار دادند..
+</div>
+
+## KiriMohems — post 47605
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47605_1778991607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت جدید اتاق جنگ اسرائیل:
+
+⌛
+
++آخرین باری که جنگ شد شب قبلش این توییت رو زده بودن( البته چند وقت پیش هم باز زدن که بعدش چیزی نشد)
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47604
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47604_1778991608.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A26🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## IranIntlTV — post 337558
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337558_1778991610.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریک اسکات، سناتور جمهوری‌خواه آمریکایی، به فاکس‌نیوز گفت جمهوری اسلامی با وجود جنگ اخیر همچنان به دنبال کشتن آمریکایی‌ها، بازسازی تسلیحات خود و نابودی اسرائیل است.
+او همچنین گفت تهران همچنان از حماس، حزب‌الله و حوثی‌ها حمایت می‌کند و در عین حال از رویکرد ترامپ در قبال ایران در تنگه هرمز تمجید کرد.
+
+https://iranintl.com/202605178960
+</div>
+
+## IranIntlTV — post 337557
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337557_1778991611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بری روزن، گروگان پیشین سفارت آمریکا در ایران، در ایکس نوشت جمهوری‌اسلامی در جریان درگیری با ایالات‌متحده، برای سرکوب مخالفت‌ها بر شمار اعدام‌ها افزوده است و مقام‌های ایرانی از اعدام‌ها و احکام قضایی برای ارعاب معترضان احتمالی استفاده می‌کنند.
+https://iranintl.com/202605177046
+</div>
+
+## IranIntlTV — post 337556
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337556_1778991612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت بریتانیا از استقرار یک سلاح کم‌هزینه ضدپهپاد جدید در خاورمیانه خبر داد. سامانه ای‌پی‌کی‌دابلیو‌اس که روی جنگنده‌های تایفون نصب می‌شود، با استفاده از هدف‌گیری لیزری، موشک‌های غیرهدایتی را به سلاح‌های دقیق و کم‌هزینه تبدیل می‌کند که قادر به سرنگونی پهپادها و دیگر تهدیدها هستند.
+وزارت دفاع بریتانیا گفت این سامانه را در همکاری سریع با صنایع نظامی ظرف چند ماه از مرحله آزمایش به مرحله استقرار رسانده است و با این اقدام شهروندان بریتانیایی و شرکای منطقه‌ای از حفاظت بیشتری در برابر حملات پهپادی برخوردار خواهند شد.
+
+https://iranintl.com/202605175043
+</div>
+
+## Persian_Trend_Official — post 14282
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14282_1778991613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر ☕️🔥
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/27 03:39
 ---
 
