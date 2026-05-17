@@ -7,6 +7,329 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 01:06
+---
+
+## ChizBergerz — post 46502
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آی‌پی شیر و‌ خورشید تست شده ایرانسل ارسالی توسط ممبرای چنل:
+
+95.100.69.108
+104.83.5.203
+92.122.166.146
+104.66.70.133
+104.121.0.17
+104.83.5.65
+92.122.166.168
+104.83.5.82
+92.123.104.67
+104.110.191.57
+92.123.104.7
+104.109.250.232
+96.16.122.74
+23.40.63.69
+23.73.2.161
+138.201.54.122
+144.76.1.88
+94.130.33.41
+95.216.69.37
+185.137.25.214
+94.130.70.160
+94.130.50.12
+37.255.133.30
+104.81.104.13
+92.122.73.138
+96.16.122.55
+104.81.108.51
+23.72.248.214
+104.126.37.185
+104.83.5.201
+92.122.166.141
+104.83.5.216
+172.237.127.6
+104.81.108.10
+23.73.2.148
+81.91.145.2
+65.109.34.234
+81.12.72.218
+185.143.232.122
+96.16.122.66
+88.221.168.138
+92.122.166.175
+96.16.122.82
+96.17.207.149
+96.17.207.151
+23.220.113.51
+5.160.13.85
+142.54.178.211
+63.141.252.203
+96.17.207.135
+Tel: @ChizBergerz
+2.23.168.144
+2.23.168.254
+2.23.168.250
+2.23.168.96
+2.21.239.29
+184.86.103.210
+23.36.162.202
+95.101.29.30
+2.23.170.80
+185.200.232.16
+2.16.245.188
+95.101.23.82
+185.200.232.34
+184.28.230.87
+2.16.19.136
+2.23.168.174
+50.7.5.83
+2.23.168.47
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه لیست آیپیِ جدیدِ تست شده برایِ " شیرو خورشید" با سرعتِ بالا که با همراه اول زیر ۳۰ ثانیه وصل میشه:
+
+184.86.103.210
+96.16.248.183
+92.122.16.5
+96.16.249.60
+96.16.249.9
+23.12.156.115
+23.216.77.16
+23.62.61.53
+23.39.148.245
+23.210.73.133
+23.44.201.136
+23.205.46.167
+184.30.150.142
+Tel: @ChizBergerz
+23.220.161.217
+184.28.165.4
+23.46.230.133
+88.221.168.204
+104.96.158.174
+184.51.252.4
+172.234.199.15
+104.85.26.14
+172.237.145.27
+92.123.103.24
+172.234.159.58
+185.200.232.43  
+2.17.100.200
+2.19.205.42
+2.19.205.50
+2.19.252.134
+2.20.169.70
+2.20.170.91
+95.101.111.144
+2.16.245.188
+2.18.69.150
+2.16.106.4
+23.58.222.107
+184.25.28.31
+23.47.124.134
+23.50.131.147
+23.46.190.18
+23.58.222.147
+23.56.162.186
+23.44.203.68
+
++ تا زمانی که اتصال‌تون با سرعتِ خووب برقرار هست نیازی نیست که آیپی رو عوض کنید و آیپی هایِ جدید رو تست کنید.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46500
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46500_1779053761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاقبت مصرف شیشه:
+
+امشب تو صداوسیما نتانیاهو و ترامپ ترور شدن
+💩😂
+@ChizBergerz
+</div>
+
+## KiriMohems — post 47670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما در اقدامی که کون همگان تو شورت مچاله شد ، نتانیاهو و ترامپ رو تو شبکه کصشعر افق ترور کرد
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47669
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47669_1779053762.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴متلک شاهزاده رضا پهلوی به مجتبی
+
+شاهزاده خطاب به ترامپ گفت:
+حالا که یک حیوان زخمی دارید (منظورش مجتبی خامنه‌ایه) این فرصتی نیست که باید از دست بدهید.
+این فرصتی است برای تمام کردن کار.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47668
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47668_1779053764.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر تبلیغات VPN یا هر کسشر دیگه ای زیر پستا میبینید خارج از اختیار ما هست و تبلیغات تلگرامیه 100درصد هم کلاه برداریه ! اگر تبلیغاتی مورد اطمینان ما باشه به صورت پست میاد داخل چنل .
+</div>
+
+## KiriMohems — post 47667
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47667_1779053764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شاهزاده رضا پهلوی به دولت ترامپ:
+
+تمام هدف من امروز اینه که مطمئن بشم این دولت، هر کسی که ما رو میشنوه، درک کنه که نمیتونید هر دو رو داشته باشید.
+
+نمیتونید بگید: «مردم، ما شما را در حالت تعلیق نگه می‌داریم و وقتی آماده شدیم به شما اطلاع می‌دهیم. در این بین، ما در تلاشیم چیز دیگری را کشف کنیم.» این روش بسیار سختی است برای قانع کردن مردم که شما جدی هستید.
+
+مسیر را ادامه دهید. کار را انجام دهید.
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251788
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251788_1779053766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ پایان یک اسطوره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251787
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251787_1779053766.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 تعداد بیشترین برد در یک فصل لالیگا:
+
+⚽️ رئال مادرید 2011 - 32 برد
+
+⚽️ بارسلونا 2026 - 32 برد ( یک بازی کمتر )
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251786
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251786_1779053767.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رسمی: بارسلونای هانسی فلیک به اولین تیم تاریخ لالیگا تبدیل شد که تمام 19 بازی خونگیشو با برد پشت سر گذاشت
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251785
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251785_1779053768.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گریه های لواندوفسکی هنگام تعویض
+این آخرین بازی لوا در نیوکمپ بود...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251784
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانسلو یه سوپرگل زددد: WATCH
+</div>
+
+## SportBaadNews — post 251783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسکو یکی کرد تو بارسا
+</div>
+
+## SportBaadNews — post 251782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافینیا دبل کرد واسه بارسا: WATCH
+</div>
+
+## IranIntlTV — post 337691
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337691_1779053768.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «نیروگاه اتمی برکه امارات روز یکشنبه با سه پهپاد مورد حمله قرار گرفت. شامگاه یکشنبه هم وزارت دفاع عربستان اعلام کرد سه پهپاد شلیک‌شده از سمت عراق را سرنگون کرده است. دونالد ترامپ نیز روز یکشنبه ۳۰ دقیقه با بنیامین نتانیاهو درباره ایران گفت‌وگو کرد و قرار است سه‌شنبه نیز نشستی با دستیاران ارشدش درباره ایران برگزار کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337690
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337690_1779053769.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه سازندگی از گسترش فقر در میان زنان ایران گزارش داده و نوشته است زنان نخستین قربانیان شوک‌های اقتصادی پی‌درپی و تعدیل نیروها هستند.
+این روزنامه همچنین از محرومیت میلیون‌ها زن سرپرست خانواده از بیمه و حمایت پایدار خبر داده است.
+
+گفت‌وگو با پگاه بنی‌هاشمی، پژوهشگر حقوق
+@iranintltv
+</div>
+
+## IranIntlTV — post 337689
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337689_1779053771.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه کارزار حمایت ایرانیان خارج از کشور از انقلاب ملی، گروهی از ایرانیان لس‌آنجلس تجمعی اعتراضی برگزار کردند تا به قطعی اینترنت، افزایش اعدام‌ها و علیه سرکوب‌ها در ایران اعتراض کنند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال و گفت‌وگو با آرش رازی، عضو حزب مشروطه ایران
+@iranintltv
+</div>
+
+## IranIntlTV — post 337688
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337688_1779053772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما، پس از آموزش کلاشنیکف در شبکه‌های مختلف، این بار نحوه استفاده از تیربار پی‌کا را در تلویزیون آموزش داد.
+
+پیش‌تر، مجریان صداوسیمای جمهوری اسلامی در برنامه‌هایی با در دست داشتن تفنگ ظاهر شده و کار با سلاح‌های سبک را آموزش داده بودند.
+
+این برنامه‌ها، که دست‌کم در سه بخش پخش شد، در رسانه‌های داخلی بازنشر شد و در شبکه‌های اجتماعی واکنش‌هایی را برانگیخت. برخی کاربران این بخش‌ها را نشانه‌ای از بسیج حامیان حکومت در شرایط جنگی توصیف کردند.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14365
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtu.be/8YQ1YcLyw6E
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 00:09
 ---
 
