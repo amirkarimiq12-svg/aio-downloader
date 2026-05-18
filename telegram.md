@@ -7,6 +7,890 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 19:49
+---
+
+## ChizBergerz — post 46519
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه لیست آیپی جدید تست شده با همراه اول برای اپ شیر و خورشید
+👑: 104.109.250.240 92.122.17.124 96.16.122.153 151.101.64.223 151.101.0.223 185.200.232.43   2.17.100.200 2.19.205.42 2.19.205.50 2.19.252.134 2.20.169.70 2.20.170.91 95.101.111.144 2.16.245.188…
+</div>
+
+## ChizBergerz — post 46518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه لیست آیپی جدید تست شده با همراه اول برای اپ شیر و خورشید
+👑:
+
+104.109.250.240
+92.122.17.124
+96.16.122.153
+151.101.64.223
+151.101.0.223
+185.200.232.43  
+2.17.100.200
+2.19.205.42
+2.19.205.50
+2.19.252.134
+2.20.169.70
+2.20.170.91
+95.101.111.144
+2.16.245.188
+2.18.69.150
+2.16.106.4
+23.58.222.107
+184.25.28.31
+23.47.124.134
+23.50.131.147
+23.46.190.18
+23.58.222.147
+23.56.162.186
+23.44.203.68
+23.12.156.115
+23.216.77.16
+23.62.61.53
+23.39.148.245
+23.210.73.133
+23.44.201.136
+23.205.46.167
+184.30.150.142
+23.220.161.217
+184.28.165.4
+23.46.230.133
+88.221.168.204
+104.96.158.174
+184.51.252.4
+172.234.199.15
+104.85.26.14
+172.237.145.27
+92.123.103.24
+172.234.159.58
+184.86.103.210
+96.16.248.183
+92.122.16.5
+96.16.249.60
+96.16.249.9
+184.26.57.149
+2.17.211.216
+2.19.205.66
+2.20.135.163
+2.21.176.57
+2.21.239.16
+2.21.240.15
+2.23.169.12
+2.23.97.122
+23.12.147.134
+23.193.117.5
+23.196.14.11
+23.196.3.200
+23.2.13.154
+23.2.13.226
+23.200.79.136
+23.200.87.22
+23.202.230.211
+Tel: @ChizBergerz
+23.204.136.169
+23.204.9.130
+23.205.106.74
+23.205.165.21
+23.212.110.33
+23.212.250.11
+23.212.250.25
+23.213.158.26
+23.214.139.250
+23.215.0.40
+23.216.77.154
+23.216.77.162
+23.216.77.50
+23.216.77.70
+23.217.124.170
+23.37.198.164
+23.44.201.234
+23.44.203.86
+23.44.215.152
+23.52.182.11
+23.54.127.42
+23.55.110.208
+23.55.161.161
+23.61.250.82
+23.9.187.41
+23.217.47.193
+23.40.179.202
+184.27.225.90
+23.53.13.19
+95.101.50.88
+23.204.115.108
+2.21.240.147
+184.24.232.70
+2.22.255.47
+23.49.248.8
+23.213.158.12
+23.210.216.145
+23.33.90.150
+23.44.201.134
+23.208.64.159
+23.216.77.140
+2.22.255.17
+23.209.72.174
+2.19.204.225
+23.44.201.152
+23.55.176.84
+2.19.204.211
+23.219.36.106
+23.215.0.134
+2.21.2.97
+23.61.202.70
+23.44.201.206
+23.218.239.132
+23.212.253.232
+
++ تا زمانی که اتصال‌تون با سرعتِ خوب برقرار هست نیازی نیست که آیپی رو عوض کنید و آیپی هایِ جدید رو تست کنید.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46517
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46517_1779121149.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری‌اسهالی مثل سگ از حمله زمینی ارتش آمریکا ترسیده و داره تو مساجد به حکومتی‌ها آموزش کار با اسلحه رو آموزش میده!
+
++ اینا اولین سرباز آمریکایی رو ببینن میرینن به خودشون و فرار میکنن😂😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46516
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46516_1779121151.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردم تو غزه یه موش رو دار زدن و دارن موش‌علی خامنه‌ای که تو یخچاله رو مسخره میکنن: 
+😂
+😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46515
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46515_1779121154.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مادرجنده‌های تروریست!
+
+خرزشیه تو صداوسیما میگه مهریه زن جنده‌ش یه پهپاد شاهد برای شلیک به طرف قلب تل‌‌آویوه!
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71518
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 افشاگری آخوند رفیعی از نزدیکان خامنه ای:
+به رهبر اطمینان داده بودن اتفاقی براش نمی افته
+لینک یوتیوب:
+https://www.youtube.com/watch?v=m6ZejUIERrc
+</div>
+
+## rodast_omiddana — post 71517
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71517_1779121157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فوری_آکسیوس:
+آمریکا پیشنهاد بروز شده جمهوری اسلامی را رد کرد
+آمریکا مجبور خواهد بود مذاکرات را «از طریق بمب‌ها» ادامه دهد
+</div>
+
+## rodast_omiddana — post 71516
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71516_1779121157.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+«اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش از بین رفته و در ته دریا است، و نیروی هوایی‌اش دیگر با ما نیست، و اگر کل ارتش‌شان از تهران خارج شود، سلاح‌ها را رها کرده و دست‌ها را بالا ببرند، هر کدام فریاد بزنند «من تسلیم می‌شوم، من تسلیم می‌شوم» در حالی که پرچم سفید نماینده را به شدت تکان می‌دهند، و اگر تمام رهبران باقی‌مانده‌شان همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت و نیروی بزرگ و باشکوه ایالات متحده آمریکا بپذیرند، روزنامه‌های در حال سقوط نیویورک تایمز، وال استریت ژورنال چین (WSJ!)، سی‌ان‌ان فاسد و اکنون بی‌اهمیت، و همه اعضای دیگر رسانه‌های خبری جعلی، تیتر خواهند زد که ایران پیروزی استادانه و درخشانی بر ایالات متحده آمریکا داشته است، حتی نزدیک هم نبود. دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آنها کاملاً دیوانه شده‌اند!!!» رئیس‌جمهور دی‌جی‌تی
+</div>
+
+## rodast_omiddana — post 71515
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71515_1779121157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 رژیم حسابی از حمله زمینی آمریکا ترسیده...
+</div>
+
+## rodast_omiddana — post 71514
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71514_1779121159.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نیویورک تایمز:
+ایالات متحده و اسرائیل در حال انجام شدیدترین آمادگی‌های خود از زمان اجرای آتش‌بس هستند، در حالی که احتمال حملات مجدد به ایران حتی از همین هفته وجود دارد.
+پنتاگون نیز برای احتمال از سرگیری عملیات جدید آماده می‌شود.
+</div>
+
+## rodast_omiddana — post 71513
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71513_1779121160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨الجزیره:
+ایالات متحده ممکن است جنگ خود با جمهوری اسلامی را «در ۲۴ تا ۴۸ ساعت آینده» از سر بگیرد.
+</div>
+
+## rodast_omiddana — post 71512
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71512_1779121160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مهریه خانمش یک پهباد شاهد است برای شلیک به قلب تل آویو!
+رسما کشور دست تروریست جماعته..
+</div>
+
+## rodast_omiddana — post 71511
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71511_1779121163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 توییت یکسال پیشم.
+اساسا کنسرت گذاشتن در شرایط انقلابی پروژه جمهوری اسلامیه، خودتان را به تجاهل نزنید
+</div>
+
+## rodast_omiddana — post 71510
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71510_1779121163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود بر حمید فرخ نژاد و آقای شاهین نجفی بابت اینکه گفتید باید اتحاد داشته باشیم..
+بنابراین در راستای اتحاد همه زیر پرچم شاهزاده رضا پهلوی تنها امید ملت ایران، کنسرتهایی که با قیمت بلیطهای آنچنانی میخواهید برگزار کنید را لغو کنید و نشان دهید دنبال کاسبی از خون مردم نیستید و اجازه دهید اتحاد همه ما پابرجا باشد..
+سپاس از توجه شما..
+</div>
+
+## rodast_omiddana — post 71509
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71509_1779121163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پیام مخاطب درود.
+امروز میگن جو تهران امنیتیه سمت بلوار کشاورز نیرو فرستادن و گویا تجمعاتی بوده.
+</div>
+
+## rodast_omiddana — post 71508
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71508_1779121164.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آقای ترامپ صدها جوان از ایران به من پیام دادن که برای حمله زمینی ارتش آمریکا به جمهوری اسلامی حاضرن در کنار شما باشن، کافیست فضایی ایجاد کنید تا جوانان ایران آموزش ببینند تا در میدان نبرد یاور ارتش آمریکا باشند..
+جوانان ایران انگیزه اشان از سربازان شما بیشتره بنابراین روی مردم ایران حساب کنید..
+</div>
+
+## rodast_omiddana — post 71507
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 آخرین تحرکات آمریکا برای حمله به جمهوری اسلامی تا دوشنبه 28 اردیبهشت
+تلفن ترامپ و نتانیاهو
+لینک یوتیوب:
+https://www.youtube.com/watch?v=o4N-lWiHY6A
+</div>
+
+## rodast_omiddana — post 71506
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71506_1779121164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 اسرائیل جان توجه کن..
+این گزارش صداوسیما هست که در حال آموزش فعالیت تروریستی به بدنه اجتماعی مذهبی هست و خودشان میگویند مساجد را برای اقدامات نظامی علیه مردم ایران و مردم اسرائیل بکار گرفتند..
+در جنگ پیش رو این امکان در حقیقت موقعیت نظامی محسوب میشوند بنابراین خواهشا ادای تنگها را در نیاورید و بگید نمیزنیم..
+</div>
+
+## rodast_omiddana — post 71505
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71505_1779121167.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 رویترز:
+پاکستان در جریان جنگ ایران، تحت یک پیمان دفاعی مشترک، ۸۰۰۰ سرباز، جنگنده، پهپاد و سامانه‌های دفاع هوایی به عربستان سعودی اعزام کرده است.این نیرو شامل جنگنده‌های JF-17، سامانه‌های پدافندی چینی HQ-9 و تجهیزات تحت عملیات پاکستانی است که توسط ریاض تأمین مالی شده‌اند.این استقرار آماده رزم است و در صورت نیاز می‌تواند به ۸۰٬۰۰۰ سرباز افزایش یابد.
+</div>
+
+## rodast_omiddana — post 71504
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71504_1779121167.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نیویورک تایمز : آمریکا و اسرائیل در حال آماده‌سازی گسترده برای ازسرگیری جنگ با ایران در همین هفته هستند.
+</div>
+
+## KiriMohems — post 47715
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47715_1779121168.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : اگه جمهوری اسلامی تسلیم بشه، اعتراف کنه نیروی دریاییش ته دریاست و نیروی هواییش دیگه وجود نداره
+
+و کل ارتش از تهران بیرون بزنه، سلاح‌هاشون رو بندازن زمین، دستاشون رو ببرن بالا و داد بزنن “من تسلیم میشم”
+در حالی که پرچم سفید تکون میدن، و همه رهبرهای کصشعر باقی‌مونده هم برگه‌های تسلیم رو امضا کنن و شکستشون جلوی قدرت عظیم آمریکا رو قبول کنن
+اون وقت نیویورک تایمز کیری مقام ، وال‌استریت ژورنال کصکش، سی‌ان‌ان جاکش و بقیه رسانه‌های فیک تیتر میزنن که ایران یه پیروزی تاریخی و درخشان مقابل آمریکا به دست آورده! حتی نزدیکشم نیست.
+-دموکرات‌ها و رسانه‌ها کامل راهشونو گم کردن. رسماً کصخل تشریف دارن!!!
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مدیرعامل آبفای تهران: تابستون امسال جیره‌بندی ، قطعی آب و از این کصشعرا نداریم
+
+کیر تو قبر آدم دروغگو
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47713
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47713_1779121168.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهریه خانومیش یک پهپاد کیری شاهده که باید صاف تو کون تل آویو شلیک بشه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47712
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47712_1779121171.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گوشه‌ای از ادبیات چپولی بهزاد فراهانی
+
+ما تخمشو داشتیم ، اونو(منظورش شاه) آوردیم پایین ، شما هم دارید یالا ما هم کنارتونیم
+
+#Helsinki
+@MohemMovie
+</div>
+
+## KiriMohems — post 47711
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47711_1779121172.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ساعت و تاریخ های لواط کاری تیم ملی با حریفانش تو جام بمالی 2026
+
+
+🇮🇷 ایران VS نیوزلند
+🇳🇿
+۲۶ خرداد
+ساعت ۴:۳۰ صبح به وقت تهران
+
+
+🇮🇷ایران VS بلژیک
+🇧🇪
+۳۱ خرداد
+ساعت ۲۲:۳۰ به وقت تهران
+
+
+🇮🇷ایران VS مصر
+🇪🇬
+۶ تیر
+ساعت ۶:۳۰ صبح به وقت تهران
+
+
+#Helsinki
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47710
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47710_1779121173.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 نیویورک تایمز:
+آمریک و اسرائیل دارن گرمیجات رو بالا میزنن و از نظر نظامی آماده میشن، در حالی که احتمال تریسام مجدد به جمهوری اسلامی حتی از همین هفته وجود داره.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47709
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47709_1779121174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#خایه_کنید
+
+🔴ترافیک پشم ریزون سولاخ هرمز از داخل یک هواپیمای مسافربری و کشتی هایی که خاموش کردن و دست به خایه نشستن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251827
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251827_1779121176.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چی بود دیگه 
+💀
+💀
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⏺ فقط و فقط با دعوت ۲ نفر کانفیگ رایگان دریافت کنید ، اختصاصی 
+👇
+
+
+🤖 @Confingfreeirbot
+</div>
+
+## SportBaadNews — post 251825
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251825_1779121178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷
+⚽️| قیمت بلیط بازی های تیم جمهوری اسلامی تو جام جهانی؛ فک کن حداقل 11 میلیون و حداکثر 90 میلیون تومان پول رایج مملکت رو بری بدی که بازی شاگردان نیوکاسل رو ببینی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251824
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251824_1779121179.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسمی: کارواخال از رئال مادرید خداحافظی کرد. @SportBaadNews
+</div>
+
+## IranIntlTV — post 337808
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337808_1779121180.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبح دوشنبه مسعود پزشکیان گفت در پی محاصره دریایی از سوی آمریکا، صادرات نفت ایران متوقف شده است. ساعتی پس از انتشار این اظهارات، رسانه‌های دولتی از جمله ایرنا اقدام به حذف صحبت‌های پزشکیان از خروجی خود کردند.
+
+گفت‌وگو با جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337807
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337807_1779121182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی در حاشیه جشنواره فیلم کن، جایزه ویژه هیئت داوران رویداد مستند «گلدن گلوبز» با همکاری بنیاد «آرتمیس رایزینگ» را دریافت کرد؛ رویدادی که با همکاری بخش «کن داکس»، مجله ورایتی و بازار فیلم کن برگزار می‌شود.
+
+این برنامه به مستندهای اجتماعی و سیاسی اختصاص دارد و برگزارکنندگان آن می‌گویند هدفش حمایت از فیلمسازی مستند به‌عنوان ابزاری برای شکل دادن به روایت‌ها و گفت‌وگوهای جهانی است.
+https://iranintl.com/202605180953
+</div>
+
+## IranIntlTV — post 337806
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337806_1779121183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با ارسال تازه‌ترین پیشنهاد تهران، یک مقام ارشد جمهوری اسلامی به رویترز گفت آمریکا درباره فعالیت‌های هسته‌ای محدود تهران انعطاف نشان داده. اما سی‌ان‌ان خبر داد پنتاگون گزینه‌های نظامی مختلف علیه ایران را روی میز گذاشته و ترامپ سه‌شنبه تصمیم می‌گیرد.
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 337805
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337805_1779121186.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید به دلیل قطعی اینترنت، حدود سه ماه است که بیکار شده است.
+</div>
+
+## IranIntlTV — post 337804
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337804_1779121189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک مقام ارشد آمریکایی و یک منبع مطلع گزارش داد تهران پیشنهاد تازه‌ای برای توافق به‌منظور پایان جنگ ارائه کرده، اما کاخ سفید این پیشنهاد را پیشرفت معناداری نمی‌داند و آن را برای دستیابی به توافق کافی ارزیابی نکرده است.
+
+به گفته مقام‌های آمریکایی، دونالد ترامپ همچنان خواهان توافق برای پایان جنگ است، اما به‌دلیل رد بسیاری از خواسته‌های واشینگتن از سوی تهران و خودداری جمهوری اسلامی از ارائه امتیازهای قابل‌توجه در برنامه هسته‌ای، گزینه ازسرگیری حملات نظامی را نیز بررسی می‌کند.
+https://iranintl.com/202605182409
+</div>
+
+## IranIntlTV — post 337803
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337803_1779121189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر مرکز روابط عمومی و اطلاع‌رسانی وزارت بهداشت درباره وضعیت مجتبی خامنه‌ای گفت: «اتفاق خاصی برای او رخ نداده بود و صرفا چند زخم برداشته بودند.»
+این مقام وزارت بهداشت تاکید کرد: «زخم‌ها از نوعی نبودند که چهره ایشان را مخدوش کنند» و اضافه کرد مجتبی خامنه‌ای جانباز نشده و قطع عضو نداشته و تنها در محل جراحت روی پای او چند بخیه زده شده است.
+https://iranintl.com/202605189680
+</div>
+
+## IranIntlTV — post 337802
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337802_1779121190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا در پستی در شبکه اجتماعی تروث سوشال از برخی رسانه‌ها و دموکرات‌ها در زمینه جنگ علیه جمهوری اسلامی انتقاد کرد.
+
+او نوشت: «اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش نابود شده و در کف دریا آرام گرفته است، و نیروی هوایی‌اش دیگر در میان ما نیست، و اگر کل ارتش آن‌ها در حالی که سلاح‌ها را زمین گذاشته و دست‌ها را بالا برده‌اند از تهران خارج شوند و هر کدام با فریاد "من تسلیم می‌شوم، من تسلیم می‌شوم" پرچم سفید تسلیم را به شدت تکان دهند، و اگر تمام رهبری باقی‌مانده آن‌ها همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت و نیروی عظیم ایالات متحده باشکوه بپذیرند، آن‌وقت روزنامه شکست‌خورده نیویورک تایمز، چاینا استریت ژورنال (همان وال‌استریت ژورنال!)، سی‌ان‌انِ فاسد و اکنون بی‌اهمیت، و همه اعضای دیگر رسانه‌های اخبار جعلی (فیک نیوز)، تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا داشته و اصلاً حتی نزدیک هم نبوده است.»
+
+ترامپ افزود: «دموکرات‌های احمق و رسانه‌ها کاملا راه خود را گم کرده‌اند. آن‌ها کاملا دیوانه شده‌اند!!!»
+https://iranintl.com/20
+</div>
+
+## IranIntlTV — post 337801
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337801_1779121191.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجله آتلانتیک در مقاله‌ای تحلیلی، نحوه حکمرانی جمهوری اسلامی و امارات را با یکدیگر مقایسه کرده است. این مقایسه فقط به سیاست محدود نمی‌شود و در آن اقتصاد، کیفیت زندگی و آینده مردم نیز بررسی شده است.
+
+مهدی بیگی، عضو تحریریه ایران‌اینترنشنال، در «پیوست» امروز نگاهی دارد به آنچه آتلانتیک آن را «نبرد شاهین و لاشخور» نامیده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337800
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337800_1779121194.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دانش‌آموز با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «نمی‌دانم باید امتحانات رو چکار کنم. یک اینترنت داخلی داریم که آن هم کار نمی‌کند تا بتوانیم درس بخوانیم.»
+</div>
+
+## IranIntlTV — post 337799
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337799_1779121196.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میانه تلاش‌های میانجی‌گرانه پاکستان برای انتقال پیام‌ها میان جمهوری اسلامی و آمریکا، دونالد ترامپ به مجله فورچون گفت مقام‌های جمهوری اسلامی برای امضای توافق «بی‌تاب» هستند.
+
+گفت‌وگو با سمیرا قرایی و بابک اسحاقی، خبرنگاران ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337798
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337798_1779121199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس رسمی همکاری پلیس در اتحادیه اروپا اعلام کرد در یک عملیات هماهنگ، شبکه تبلیغاتی آنلاین مرتبط با سپاه پاسداران را هدف قرار داده است. یوروپل گزارش داد در جریان تحقیقات درباره این شبکه، محتوایی شامل ویدیوهای تولیدشده با هوش مصنوعی، پیام‌های تبلیغاتی و فراخوان‌هایی برای انتقام‌گیری از کشته شدن علی خامنه‌ای شناسایی شده است.
+
+علی حسن‌پور، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337797
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337797_1779121202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس رسمی همکاری پلیس در اتحادیه اروپا اعلام کرد در یک عملیات هماهنگ، شبکه تبلیغاتی آنلاین مرتبط با سپاه پاسداران را هدف قرار داده است. یوروپل گزارش داد در جریان تحقیقات درباره این شبکه، محتوایی شامل ویدیوهای تولیدشده با هوش مصنوعی، پیام‌های تبلیغاتی و فراخوان‌هایی برای انتقام‌گیری از کشته شدن علی خامنه‌ای شناسایی شده است.
+
+علی حسن‌پور، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337796
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337796_1779121204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه عمان حمله پهپادی یک‌شنبه به عربستان سعودی را محکوم کرد.
+عمان در بیانیه‌ای اعلام کرد هرگونه اقدام خصمانه را مردود می‌داند و از عربستان سعودی برای حفظ امنیت و ثبات خود حمایت می‌کند.
+مسقط همچنین بر خویشتنداری و حل مسائل منطقه‌ای از مسیرهای دیپلماتیک تاکید کرد.
+https://iranintl.com/202605188454
+</div>
+
+## IranIntlTV — post 337795
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337795_1779121205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۸ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337794
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337794_1779121207.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻باشگاه استقلال در حالی مدت‌هاست مدیرعامل ندارد که علی تاجرنیا همه‌کاره این باشگاه است و انتشار سندهای مالی این باشگاه نشان می‌دهد که استقلال با بحران مالی شدید مواجه است و خطر توقیف اموال این باشگاه را تهدید می‌کند.
+
+🔹توضیحات مزدک میرزایی، ایران‌اینترنشنال در برنامه هت‌تریک
+
+🔹تماشای نسخه کامل هت‌تریک؛👇
+https://youtu.be/gw3eJ0R9R5Y
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337793
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337793_1779121209.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد از زمان آغاز محاصره دریایی بنادر و سواحل جنوبی ایران، ۸۴ کشتی تجاری مجبور به تغییر مسیر شده‌اند و چهار شناور دیگر نیز پس از هدف قرار گرفتن، از کار افتاده‌اند تا اجرای این محاصره تضمین شود.
+https://iranintl.com/202605181759
+</div>
+
+## IranIntlTV — post 337792
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337792_1779121210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم ملی فوتبال برای برپایی آخرین اردوی آماده‌سازی پیش از حضور در جام جهانی ۲۰۲۶ وارد ترکیه شد. مهدی محمدنبی درباره وضعیت صدور ویزای اعضای تیم برای سفر به‌ آمریکا گفت در صورت صادر نشدن ویزای برخی بازیکنان، فدراسیون برنامه‌های مختلفی در نظر دارد.
+
+گفت‌وگو با محمد تقوی، ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337791
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337791_1779121213.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدجعفر قائم‌پناه، معاون اجرایی پزشکیان، گفت: «بر اساس نظرسنجی مرکز ریاست‌جمهوری، ۷۰ درصد مردم مخالف محدودیت اینترنت هستند.»
+
+او افزود: «محدودیت‌ها در دی‌ماه و در زمان جنگ، با منطق مدیریت بحران، صیانت از امنیت ملی، جان و آرامش عمومی صورت گرفت.»
+
+قائم‌پناه اضافه کرد: «جامعه‌ای که صادقانه با آن سخن گفته شود، تاب‌آورتر و همراه‌تر خواهد بود.»
+https://iranintl.com/202605183897
+</div>
+
+## IranIntlTV — post 337790
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337790_1779121213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیران اقتصاد گروه هفت، دوشنبه ۲۸ اردیبهشت در پاریس گردهم آمدند تا برای مقابله با تنش‌های اقتصاد جهانی گفت‌وگو کنند. وزیر خزانه‌داری آمریکا در حاشیه روز اول نشست، خواستار از کار انداختن ماشین جنگی جمهوری اسلامی شد.
+
+گفت‌وگو با ساجده شریفی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 337789
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337789_1779121216.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دادگستری ایالات متحده اعلام کرد محمدباقر الساعدی، عضو ارشد کتائب حزب‌الله عراق، با ۶ اتهام تروریستی در نیویورک محاکمه می‌شود. حمله به کنسولگری آمریکا در تورنتو و دو حمله در کانادا، بخشی از اتهامات اوست.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14422
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14422_1779121218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌توی این روزا که بازار فروش vpn داغه
+یه تیم که پشتیبانی خوبی داشته باشه و خدماتش گارانتی داشته باشه کم پیدا میشه
+
+تراست vpn همه اینارو داره و من با خیال راحت معرفیش می‌کنم
+
+همین الان برای خرید بهشون پیام بدین
+
+@trusstvpnn_admin
+@trusstvpnn_admin
+@trusstvpnn_admin
+</div>
+
+## Persian_Trend_Official — post 14421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+*هنوز جنگ تموم نشده
+</div>
+
+## Persian_Trend_Official — post 14420
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14420_1779121219.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچوقت قبل از تموم شدن ماجرا خوشحالی نکنید ! 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14419
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14419_1779121219.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هیچوقت قبل از تموم شدن ماجرا خوشحالی نکنید !
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14418
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست کنایه آمیز پرزیدنت ترامپ : اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش نابود شده و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر وجود ندارد، و اگر تمام ارتش آن با انداختن سلاح‌ها و بالا بردن دست‌ها از تهران خارج شود و هر کدام فریاد بزنند «من تسلیم…
+</div>
+
+## Persian_Trend_Official — post 14417
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14417_1779121222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست کنایه آمیز پرزیدنت ترامپ :
+اگر ایران تسلیم شود، اعتراف کند که نیروی دریایی‌اش نابود شده و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر وجود ندارد، و اگر تمام ارتش آن با انداختن سلاح‌ها و بالا بردن دست‌ها از تهران خارج شود و هر کدام فریاد بزنند «من تسلیم می‌شوم، من تسلیم می‌شوم» در حالی که دیوانه‌وار پرچم سفید را تکان می‌دهند، و اگر تمام رهبران باقی‌مانده‌شان همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت و نیروی عظیم و باشکوه ایالات متحده آمریکا بپذیرند، نیویورک تایمزِ شکست‌خورده، وال‌استریت ژورنالِ چینی (WSJ!)، سی‌ان‌انِ فاسد و حالا بی‌ربط، و تمام دیگر اعضای رسانه‌های اخبار جعلی تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان بر ایالات متحده آمریکا به دست آورده است؛ حتی نزدیک هم نبود. دموکرات‌ها و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها کاملاً دیوانه شده‌اند!!!!
+
+رئیس‌جمهور Donald John Trump
+</div>
+
+## Persian_Trend_Official — post 14416
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14416_1779121223.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💥
+💥
+💥
+
+📰:کاخ سفید پیشنهاد تجدیدنظر شده ایران برای پایان دادن به درگیری جاری را رد کرده و آن را ناکافی دانسته است.
+
+
+🇮🇷
+🇺🇸مقامات آمریکایی هشدار داده‌اند که اگر تهران در برنامه هسته‌ای خود امتیازات عمده‌ای ندهد، ممکن است اقدامات نظامی از سر گرفته شود. (منبع Axios)
+
+
+🦁Phantom
+🦁
+
+
+✉️@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14415
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14415_1779121224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ هشدار مهم!
+
+یه تکنیک جدید هکرها پیدا شده که دارن از کپچا استفاده می‌کنن برای نفوذ به گوشی و کامپیوترت!
+
+🔴 چطور کار می‌کنه؟
+
+وقتی می‌خوای وارد یه سایت بشی، یه صفحه شبیه کپچای معمولی (با لوگوی Cloudflare) باز می‌شه. بعد ازت می‌خواد:
+• کلیدهای Win + R رو فشار بدی
+• یه دستور آماده رو پیست کنی
+• اینتر بزنی
+
+نتیجه؟ 🔥
+بدون اینکه بفهمی، تروجان و جاسوس‌افزار روی سیستمت نصب می‌شه و اطلاعاتت به سرقت می‌ره!
+
+📈 آمار ترسناک:
+موارد این نوع حمله امسال ۵۶۳ درصد افزایش یافته!
+
+✅ چطور تشخیص بدی؟
+کپچای واقعی هیچ‌وقت ازت نمی‌خواد وارد Run ویندوز بشی یا دستوری اجرا کنی. هرچیزی غیر از انتخاب تصویر = تقلبی!
+
+👆 مراقب باشید، به دوستاتون هم بگید!
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14414
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14414_1779121224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️بازسازی زیرساخت‌های آسیب‌دیده پارس جنوبی در ۲ سال
+
+سخنگوی کمیسیون انرژی مجلس:
+💢برای بازسازی و نوسازی زیرساخت‌های پالایشگاهی و پتروشیمی منطقه پارس جنوبی با تکیه بر دانش بومی برنامه‌ریزی شده است.
+
+💢این مراکز با طراحی و فناوری‌های جدید و با ظرفیتی بیش از قبل، به مدار تولید بازخواهند گشت.
+
+💢پیش‌بینی می‌شود حدود ۵۰ درصد از بازسازی‌ها تا پیش از آغاز فصل سرد سال به سرانجام برسد.
+
+💢کل فرآیند آواربرداری، بازسازی و نوسازی زیرساخت‌ها در مدت حداکثر ۲ سال تکمیل شود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14413
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14413_1779121225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وضعیت کم سابقه‌ی آسمان منطقه، از نظر خلوت بودن. (در عکس اول فقط پرواز های نظامی آمریکا و در عکس دوم تمام پرواز های نظامی) 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 16:26
 ---
 
