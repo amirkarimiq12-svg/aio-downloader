@@ -7,6 +7,864 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:40
+---
+
+## ChizBergerz — post 46528
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46528_1779135044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما این وسط همچنان داره با Ai عکس فیک از سفر ترامپ به چین می‌سازه، همون عکس رو تحلیل می‌کنه و از همون عکسا نتیجه می‌گیره که آمریکا در مقابل چین تحقیر شده و شکست خورده
+💩
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46527
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46527_1779135046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریدمممم😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آی‌پی‌های جدید شیر و خورشید برای تمام اپراتورها
+👑
+
+172.234.159.58
+184.86.103.210
+96.16.248.183
+92.122.16.5
+96.16.249.60
+96.16.249.9
+142.54.178.211
+185.137.25.214
+81.12.72.218
+5.160.13.85
+37.255.133.30
+81.91.145.2
+2.23.170.80
+2.23.168.254
+2.19.205.88
+92.123.8.91
+2.19.204.186
+2.22.250.149
+23.58.193.140
+23.48.23.151
+2.19.126.81
+23.202.138.125
+23.43.237.239
+104.112.146.82
+23.2.13.136
+72.246.28.37
+2.18.63.49
+2.16.53.11
+2.16.53.50
+2.16.19.136
+185.200.232.8
+185.143.232.122
+185.200.232.9
+185.200.232.11
+185.200.232.16
+185.200.232.17
+185.200.232.19
+185.200.232.24
+185.200.232.25
+185.200.232.26
+185.200.232.34
+2.16.27.71
+2.16.244.11
+2.17.147.89
+2.18.190.26
+2.18.190.27
+2.19.10.30
+2.19.196.105
+2.21.89.66
+2.21.239.10
+2.21.239.23
+2.21.239.29
+2.22.21.152
+2.23.176.166
+23.2.13.138
+23.2.13.144
+23.2.13.153
+23.2.13.201
+23.33.126.163
+23.36.162.196
+23.36.162.198
+23.36.162.202
+23.36.162.208
+23.36.162.209
+23.36.162.215
+23.37.197.128
+23.37.206.186
+23.38.49.97
+23.39.249.249
+23.44.10.10
+23.73.207.11
+23.73.207.16
+23.192.46.51
+23.192.237.208
+23.192.237.209
+23.192.237.222
+23.197.161.35
+23.200.143.71
+80.67.82.179
+88.221.92.177
+88.221.213.81
+92.122.166.182
+92.122.166.197
+92.123.102.104
+92.123.112.7
+92.123.189.82
+T.me/ChizBergerz
+95.100.156.147
+95.101.23.25
+95.101.23.82
+95.101.23.168
+95.101.23.170
+95.101.29.12
+95.101.29.30
+95.101.29.54
+95.101.35.73
+95.101.35.83
+95.101.181.125
+95.101.200.63
+96.16.122.48
+96.16.122.59
+104.83.5.208
+104.83.15.66
+104.94.100.73
+104.96.143.134
+104.103.64.7
+104.109.128.153
+104.111.202.158
+104.117.76.26
+104.117.76.40
+184.25.52.200
+184.28.230.87
+184.51.252.36
+184.51.252.38
+184.86.251.27
+23.215.0.164
+23.220.128.221
+96.17.207.142
+23.50.131.18
+23.219.3.212
+23.223.245.150
+96.17.207.135
+23.220.113.51
+96.17.72.41
+23.203.185.105
+2.23.168.213
+2.23.168.174
+96.17.207.137
+96.16.122.75
+173.222.200.5
+96.16.122.146
+96.17.206.214
+172.239.57.117
+96.17.207.30
+96.16.122.83
+96.16.122.150
+96.16.122.77
+96.17.207.155
+2.23.168.47
+2.23.168.144
+184.24.77.7
+184.24.77.16
+184.24.77.36
+184.24.77.21
+184.24.77.11
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+23.48.23.186
+23.48.23.133
+23.48.23.195
+23.48.23.178
+184.24.77.29
+2.22.250.149
+23.58.193.140
+23.48.23.151
+2.19.126.81
+23.202.138.125
+23.43.237.239
+104.112.146.82
+23.2.13.136
+72.246.28.37
+2.18.63.49
+2.16.53.11
+2.16.53.50
+2.16.19.136
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71529
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71529_1779135047.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ دروغ میگوید که میخواسته فردا شب حمله کند ولی بخاطر رهبر قطر منصرف شده..
+حمله برای آخر هفته برنامه ریزی شده و ترامپ داره روغن ریخته شده را نذر امامزاده میکنه..
+99درصد او تا قبل از دوشنبه حمله خواهد کرد..
+تمام
+</div>
+
+## rodast_omiddana — post 71528
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71528_1779135047.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 ترامپ:
+من توسط امیر قطر تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی محمد بن سلمان آل سعود و رئیس امارات متحده عربی محمد بن زاید آل نهیان درخواست شدم که حمله نظامی برنامه‌ریزی‌شده‌مان به جمهوری اسلامی ایران که برای فردا تعیین شده بود را به تعویق بیندازم، زیرا مذاکرات جدی در جریان است و به نظر آن‌ها به عنوان رهبران بزرگ و متحدان، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا و همچنین تمام کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق شامل این نکته مهم خواهد بود که هیچ سلاح هسته‌ای برای ایران وجود نخواهد داشت!
+🔹بر اساس احترامی که برای رهبران مذکور قائلم، به وزیر دفاع، پیت هگزت، رئیس کمیته مشترک رؤسای ستاد، ژنرال دنیل کین و نیروهای مسلح ایالات متحده دستور دادم که ما فردا حمله برنامه‌ریزی‌شده به ایران را انجام ندهیم، اما همچنین به آن‌ها دستور دادم که آماده یک حمله تمام‌عیار و گسترده به ایران در هر زمانی باشند اگر توافق قابل قبولی حاصل نشود. از توجه شما به این موضوع سپاسگزارم!
+</div>
+
+## rodast_omiddana — post 71527
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71527_1779135048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گزارش از فعالیت پدافند هوایی در قشم
+</div>
+
+## rodast_omiddana — post 71526
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71526_1779135048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یادتونه گفته بودم هر چقدر جمعیت مراسم محرم کم میشود بلندگوهای رژیم بزرگتر و پر سر و صداتر میشود، حالا هر چقدر رژیم به سقوط نزدیک میشود اسلحه های آموزشیش در صداوسیما نیز بزرگتر میشود...
+</div>
+
+## rodast_omiddana — post 71525
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71525_1779135048.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨حمله پیش رو که تا قبل از دوشنبه چهارم خرداد آغاز میشود، حمله بزرگی است ولی فکر نکنم حمله اصلی برای ورود زمینی باشد..
+ولی اگر بخشی از حمله اصلی باشد تمام چیزهایی که در جنگ 39 روزه دیده اید را فراموش کنید زیرا اون صرفا در برابر چیزهایی که خواهید دید شوخی بیش نبوده..
+تیک تاک..
+</div>
+
+## rodast_omiddana — post 71524
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 پاسخ به محمد رهبر مجری سابق ایران اینترنشنال
+لینک یوتیوب:
+https://www.youtube.com/watch?v=LhPfMIVhR_s
+</div>
+
+## KiriMohems — post 47727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حمله نظامی به ایران که برای فردا برنامه‌ریزی شده بود رو با خایمالی ولی‌عهد عربستان سولاخی، رئیس امارات و امیر قطر متوقف کردم ، کصکشا ما رو زخم کردن اینقدر مالیدن #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47726
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47726_1779135048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: حمله نظامی به ایران که برای فردا برنامه‌ریزی شده بود رو با خایمالی ولی‌عهد عربستان سولاخی، رئیس امارات و امیر قطر متوقف کردم ، کصکشا ما رو زخم کردن اینقدر مالیدن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47725
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47725_1779135049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 ایران عزیز ما در گذشته
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47724
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47724_1779135053.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r28🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## KiriMohems — post 47723
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 کصشعر غلیظ از فارس: قلب اینترنت جهان در دست ایران است
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251841
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251841_1779135054.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+⚽️ فووووری از بی‌بی‌سی: پپ گواردیولا آخر فصل و بعد بازی با استون ویلا از منچسترسیتی جدا میشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251839
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251839_1779135054.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی دوست پسرت هم فوت فتیشه هم فوتبالی :
+
+
+⚽️ @Shortasport
+</div>
+
+## SportBaadNews — post 251838
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251838_1779135056.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارلو آنچلوتی این وسط فرصت رو غنیمت شمرد و یه لب از همسر گرفت
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا لحظاتی دیگه فهرست تیم ملی برزیل میاد بیرون و همه منتظر نیمارن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251836
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251836_1779135057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 ترامپ: من از طرف امیر قطر، ولیعهد عربستان و رئیس امارات خواسته شدم که حمله‌ای که برای فردا علیه ایران برنامه‌ریزی شده بود رو فعلاً متوقف کنم، چون مذاکرات جدی در جریانه و احتمال یه توافق وجود داره. این توافق به نظرشون می‌تونه شامل این باشه که ایران به سلاح…
+</div>
+
+## SportBaadNews — post 251835
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251835_1779135057.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 ترامپ: من از طرف امیر قطر، ولیعهد عربستان و رئیس امارات خواسته شدم که حمله‌ای که برای فردا علیه ایران برنامه‌ریزی شده بود رو فعلاً متوقف کنم، چون مذاکرات جدی در جریانه و احتمال یه توافق وجود داره. این توافق به نظرشون می‌تونه شامل این باشه که ایران به سلاح هسته‌ای دست پیدا نکنه.
+
+با توجه به احترامم به این رهبران، به ارتش آمریکا دستور دادم فعلاً حمله انجام نشه، اما همزمان آماده‌باش کامل هستیم که اگه توافقی به نتیجه نرسه، در هر لحظه یه حمله گسترده رو شروع کنیم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251834
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251834_1779135058.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣 خبرگزاری مهر: پدافند قشم فعال شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251833
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251833_1779135058.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ایران با پهباد به نیروگاه هسته‌ای براکه تو امارات حمله کرده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قلعه نویی قبل از سفر به آمریکا به زیارت مسجد جمکران رفت تا برای قهرمانی ایران دعا کند @SportBaadNews
+</div>
+
+## SportBaadNews — post 251831
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251831_1779135059.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازیکنی از دیار هندوستان 🇮🇳 در رئال مادرید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251830
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251830_1779135060.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وینیسیوس در اینستاگرام درباره دوست دختر سابقش ویرجینیا: از همه چیز ممنونم! هر لحظه و درسی که در کنارت گذراندم، خاطره‌انگیز بود! بهترین‌ها و موفقیت‌ها را در زندگی‌ات آرزو می‌کنم! برایت آرزوی خوشبختی دارم. همیشه از تو به خاطر اینکه بخشی از زندگی‌ات را به من اختصاص دادی، سپاسگزارم. مراقب خودت باش!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251829
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251829_1779135061.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع به سایت وینکوبت
+
+
+✅ کاربران عزیز، برای ورود آسان و بدون دردسر به سایت وینکوبت، می‌توانید از ربات رسمی استفاده کنید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+🔹 ورود سریع و مستقیم به سایت
+🔹 بدون نیاز به جستجوی لینک‌های مختلف
+🔹 دسترسی راحت از داخل تلگرام
+
+
+📌  همه چیز به ساده‌ترین شکل ممکن داخل ربات برای شما کاربران محترم فراهم شده.
+
+
+🔗 اگر دنبال یه راه مطمئن و سریع برای ورود هستید، ربات وینکوبت بهترین انتخاب شماست:
+
+
+🤖 @Wincobet_bot
+
+
+🔗 برای دریافت تحلیل بازی‌ها و اطلاع از آخرین بروزرسانی‌ها، به کانال رسمی وینکوبت بپیوندید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 337832
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337832" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: احتمال از سرگیری جنگ؛ ترامپ: تهران می‌داند چه اتفاقی می‌افتد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337831
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337831" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: اتحاد ارتش‌های مجهز در برابر اقتصادی ورشکسته
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337830
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337830_1779135063.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وای‌نت گزارش داد بنیامین نتانیاهو پس از پاسخ جمهوری اسلامی به پیشنهاد آمریکا، نشست امنیتی با حضور وزیران و مشاوران ارشد برگزار می‌کند.
+
+دونالد ترامپ نیز در تماس با نتانیاهو گفته زمان برای جمهوری اسلامی رو به پایان است.
+
+گفت‌وگو با گابریل گرویسمن، استراتژیست حزب جمهوری‌خواه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337829
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337829_1779135065.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصطفی دانشگر، تحلیل‌گر سیاسی، گفت طرح مطلوب آمریکا برای جمهوری اسلامی، مدل ونزوئلا است. او افزود تصور دونالد ترامپ و ایالات متحده این است که پس از حذف و کنار زدن برخی مقام‌های جمهوری اسلامی در جریان جنگ اخیر، اکنون می‌توانند فردی را در درون ساختار حکومت پیدا کنند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337828
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337828_1779135068.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از فعال شدن پدافند هوایی در جزیره قشم خبر دادند.
+
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، نوشت: «پس از مشاهده ریزپرنده‌ها در آسمان جزیره قشم، پدافند برای نابودی اهداف متخاصم فعال شد.»
+https://iranintl.com/202605184408
+</div>
+
+## IranIntlTV — post 337827
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337827_1779135069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد به درخواست رهبران قطر، عربستان سعودی و امارات متحده عربی، حمله نظامی برنامه‌ریزی‌شده آمریکا به جمهوری اسلامی را که قرار بود روز سه‌شنبه انجام شود، متوقف کرده است.
+او گفت در صورت عدم دستیابی به توافقی قابل قبول، آمریکا آماده اجرای حمله گسترده خواهد بود.
+
+ترامپ گفت مذاکرات جدی در حال انجام است و رهبران این کشورها، به‌عنوان متحدان، معتقدند توافقی حاصل خواهد شد که برای آمریکا و همچنین همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق، به‌طور مهم، شامل «نبود سلاح هسته‌ای برای ایران» خواهد بود.
+
+رییس‌جمهور آمریکا اضافه کرد: به وزیر جنگ، رییس ستاد مشترک ارتش و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده فردا به ایران انجام نخواهد شد، اما همچنین به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، برای اجرای یک حمله گسترده و تمام‌عیار علیه ایران در کوتاه‌ترین زمان ممکن آماده باشند.
+https://iranintl.com/202605181556
+</div>
+
+## IranIntlTV — post 337826
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337826_1779135069.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در شبکه ایکس نوشت: «گفت‌وگو به معنای تسلیم نیست. جمهوری اسلامی با عزت، اقتدار و حفظ حقوق ملت وارد گفت‌وگو می‌شود و به هیچ عنوان از حقوق قانونی مردم و کشور عقب‌نشینی نمی‌کند.»
+او افزود: «ما با منطق و با تمام توان، تا پای جان، در خدمت مردم و حافظ منافع و عزت ایران خواهیم بود.»
+https://iranintl.com/202605181966
+</div>
+
+## IranIntlTV — post 337825
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337825_1779135070.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337824
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337824_1779135072.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام، سناتور جمهوری‌خواه، در شبکه ایکس نوشت: «اطمینان کامل دارم که ترامپ به‌خوبی وضعیت ایران را درک می‌کند و در برابر ادامه خودداری جمهوری اسلامی از مذاکره صادقانه، همراه با اقدامات تهاجمی این کشور در تنگه هرمز و سراسر منطقه، مماشات نخواهد کرد.»
+
+او افزود: «یک پاسخ کوتاه اما قاطع می‌تواند مسیر درگیری را به‌درستی تغییر دهد. در مواجهه با جمهوری اسلامی، ضروری است که از موضع قدرت و برتری وارد مذاکره شویم.»
+https://iranintl.com/202605181005
+</div>
+
+## IranIntlTV — post 337823
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337823" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: احتمال آغاز جنگ در همین هفته با فرمان ترامپ پس از رد آخرین پیشنهاد تهران
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 14455
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14455_1779135073.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران سامانه «هرمز سیف» را برای ثبت‌نام کشتی‌های عبوری از تنگه هرمز راه‌اندازی کرد جمهوری اسلامی ایران سامانه‌ای تحت عنوان «هرمز سیف» را با هدف ارائه خدمات به کشتی‌های عبوری از تنگه هرمز راه‌اندازی کرده است. بر اساس این طرح، ناخدایان و شرکت‌های کشتیرانی می‌توانند…
+</div>
+
+## Persian_Trend_Official — post 14454
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای انفجار در سلیمانیه عراق گویا سپاه دوباره به مقر پژاک حمله کرده
+</div>
+
+## Persian_Trend_Official — post 14453
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14453_1779135074.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اینم نتیجه رفتار و عملکرد دونالد ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14452
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب :
+
+
+https://castbox.fm/vd/946653632
+</div>
+
+## Persian_Trend_Official — post 14451
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14451_1779135074.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 صدای انفجار در سلیمانیه عراق
+گویا سپاه دوباره به مقر پژاک حمله کرده
+</div>
+
+## Persian_Trend_Official — post 14450
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14450_1779135075.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇦🇫 حداقل دو نفر کشته شده‌اند و چندین نفر دیگر در یک وضعیت تیراندازی فعال در مرکز اسلامی سن دیگو، کالیفرنیا زخمی شده‌اند. ویدیوی بالا شخصی را در یک استخر خون پس از ظاهراً تیر خوردن نشان می‌دهد.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14449
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14449_1779135076.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیراندازی در یک مرکز اسلامی در آمریکا
+
+🔸رسانه‌ها روز دوشنبه از حضور یک فرد مسلح و تیراندازی در مرکز اسلامی سن دیگو خبر می‌دهند.
+
+🔹پلیس سن دیگو از مردم خواست که از حضور در این منطقه خودداری کنند.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14448
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14448_1779135077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## Persian_Trend_Official — post 14446
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند قشم علیه ریزپرنده‌ها 💢 در پی فعالیت پدافند در جزیره قشم، خبرنگار تسنیم از منابع مطلع کسب اطلاع کرد که پس از مشاهده ریز پرنده‌ها در آسمان جزیره، پدافند در جهت نابودی اهداف متخاصم فعال شد. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین…
+</div>
+
+## Persian_Trend_Official — post 14445
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14445_1779135077.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند قشم علیه ریزپرنده‌ها
+
+💢 در پی فعالیت پدافند در جزیره قشم، خبرنگار تسنیم از منابع مطلع کسب اطلاع کرد که پس از مشاهده ریز پرنده‌ها در آسمان جزیره، پدافند در جهت نابودی اهداف متخاصم فعال شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وضعیت کم سابقه‌ی آسمان منطقه، از نظر خلوت بودن. (در عکس اول فقط پرواز های نظامی آمریکا و در عکس دوم تمام پرواز های نظامی) 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14442
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14442_1779135078.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## Persian_Trend_Official — post 14441
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14441_1779135078.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات…
+</div>
+
+## Persian_Trend_Official — post 14440
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14440_1779135079.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢از سوی امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته شد حمله نظامی برنامه‌ریزی‌شده ما علیه جمهوری اسلامی ایران که قرار بود فردا انجام شود را متوقف کنم، زیرا مذاکرات جدی اکنون در حال انجام است و آن‌ها معتقدند به‌عنوان رهبران و متحدان بزرگ، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود. این توافق، مهم‌تر از همه، شامل «عدم دستیابی ایران به سلاح هسته‌ای» خواهد بود.
+
+💢بر اساس احترامی که برای رهبران یادشده قائلم، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک ارتش، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده علیه ایران را فردا انجام ندهند، اما در عین حال به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، آماده اجرای یک حمله کامل و گسترده علیه ایران در کوتاه‌ترین زمان ممکن باشند.
+
+▪️از توجه شما به این موضوع سپاسگزارم!
+
+رئیس‌جمهور دونالد جی. ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14439
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال اعلام کرد که حمله برنامه‌ریزی‌شده به ایران که برای فردا در نظر گرفته شده بود را لغو کرده زیرا «مذاکرات جدی» در حال انجام است. 📝 Nick 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14438
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در تروث سوشال اعلام کرد که حمله برنامه‌ریزی‌شده به ایران که برای فردا در نظر گرفته شده بود را لغو کرده زیرا «مذاکرات جدی» در حال انجام است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14437
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14437_1779135080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢پیت هگست وزیر جنگ آمریکا در حال تقلید مدل صحبت و صدای ترامپ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14436
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14436_1779135082.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جمهوری اسلامی سفر بدون ویزا برای لبنانی‌ها را اعلام کرد.
+
+سفارت جمهوری اسلامی در لبنان اعلام کرد شهروندان لبنانی دارنده گذرنامه عادی می‌توانند برای سفرهای گردشگری یا زیارتی بدون نیاز به ویزا وارد ایران شوند.
+
+لبنانی‌ها می‌توانند هر شش ماه یک‌بار بدون ویزا به ایران سفر کنند.
+
+مدت اقامت در این سفرها حداکثر ۱۵ روز تعیین شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14435
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14435_1779135083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علی‌حسین قاضی‌زاده:
+
+از قشنگی‌های شبکه ایکس اینه که مدیر حکومتی که از بندبندانگشتان مدیرانش خون می‌چکه بیاد اینجا از برخورد خشن، تمامیت‌خواهی، فحاشی و استبداد گله کنه.
+اون هم در شرایطی که اینترنت رو بر روی ۹۰ میلیون ایرانی بستند‌ و سر تیربار رو سمت مردم گرفتند.
+اینها وقیح نیستند. لغت تازه‌ای باید در زبان فارسی برای این جماعت ساخته بشه.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14434
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14434_1779135083.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️نمایش و استفاده دوباره از اسلحه در برنامه زنده صداوسیما
+
+💢اینبار هدف گیری و شلیک به سمت تصویر دونالد ترامپ به یاد بچه های مظلوم جزیره اپستین ‼️
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 21:48
 ---
 
