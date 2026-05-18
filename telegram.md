@@ -7,6 +7,328 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 03:13
+---
+
+## ChizBergerz — post 46535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑آی‌پی‌های جدید تست شده اپ شیر و خورشید برای همراه اول، یدونه کلیک کنید همش کپی میشه
+😐
+
+185.200.232.43  
+2.17.100.200
+2.19.205.42
+2.19.205.50
+2.19.252.134
+104.109.250.240
+92.122.17.124
+96.16.122.153
+151.101.64.223
+151.101.0.223
+2.20.169.70
+2.20.170.91
+95.101.111.144
+2.16.245.188
+2.18.69.150
+2.16.106.4
+23.58.222.107
+184.25.28.31
+23.47.124.134
+23.50.131.147
+23.46.190.18
+Tel: @ChizBergerz
+23.44.201.149
+23.212.253.227
+23.44.201.185
+23.44.201.17
+23.62.54.24
+23.58.95.144
+104.83.198.44
+92.123.102.153
+184.51.252.134
+23.53.40.147
+184.51.252.176
+2.18.64.212
+172.104.251.198
+2.18.79.101
+23.216.77.181
+92.123.102.89
+23.216.77.80
+96.16.53.132
+23.53.40.139
+23.48.165.70
+2.21.20.143
+23.43.85.155
+23.48.23.184
+23.207.210.83
+23.209.125.169
+23.48.23.172
+2.21.240.22
+23.55.110.82
+23.216.77.35
+23.58.95.138
+23.33.40.149
+23.48.23.146
+23.209.125.145
+92.123.102.130
+23.53.40.121
+23.48.23.11
+23.201.248.171
+23.209.125.27
+23.48.23.176
+23.207.210.86
+23.55.161.151
+92.123.103.89
+2.23.7.34
+23.207.210.80
+23.48.23.165
+23.48.23.173
+23.48.23.156
+23.55.110.74
+173.222.107.202
+23.213.161.140
+23.48.23.134
+23.204.152.160
+2.23.97.120
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+
++ اگه وصل نشد چندبار روی حالت هواپیما بزارید و بردارید و تست کنید یاهم چند دقیقه بعد امتحان کنید✅
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71536
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71536_1779147837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شهباز شریف:
+"من نسبت به مذاکرات آمریکا و ایران خوشبین هستم"
+
+تو گوه میخوری...
+</div>
+
+## rodast_omiddana — post 71535
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71535_1779147837.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+"ما حمله‌مان به ایران را به مدت ۲ تا ۳ روز به تعویق انداختیم چون عربستان سعودی، قطر و امارات فکر می‌کنند که خیلی به رسیدن به یک توافق نزدیک شده‌اند."
+
+همان تاریخی که از هفته پیش مشخص کردم یعنی قبل از دوشنبه چهارم خرداد حمله آغاز میشود..
+</div>
+
+## rodast_omiddana — post 71534
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71534_1779147838.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 
+😓
+😎 امشب این دیوانه ها شعار مرگ بر امارات سر دادن...
+</div>
+
+## rodast_omiddana — post 71533
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71533_1779147838.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خروجی برنامه امشب هنوز نیامده نگران نباشید ویس و فایلها را میزارم
+</div>
+
+## rodast_omiddana — post 71532
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71532_1779147839.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانال ۱۲ اسرائیل:
+"ترامپ به اسرائیل اطلاع داد که تاخیر در حمله به ایران تنها دو تا سه روز است."
+</div>
+
+## rodast_omiddana — post 71531
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71531_1779147839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 هفت ساعت قبل از حمله به بیت خامنه ای ترامپ گفت:
+"آنها می‌خواهند معامله‌ای انجام دهند، اما باید معامله‌ای انجام دهید که معنی‌دار باشد."
+گرفتی چی شد یا بیشتر توضیح بدم؟
+</div>
+
+## KiriMohems — post 47738
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47738_1779147839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشنگتن پست: ارزیابی کلی این کیری بازی ها این است که هیچ یک از گزینه‌های نظامی موجود چه حمله گسترده، چه هدف‌گیری رهبران و چه عملیات زمینی یا دریایی، راه‌حل قابل‌ اعتماد و کم‌ هزینه‌ای ارائه نمی‌دهد و مسیر منطقی‌تر، حرکت به سمت توافق و داداچی شدن و کاهش تنش است
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47737
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47737_1779147840.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A28🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## SportBaadNews — post 251882
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251882_1779147841.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨با اعلام راک استار بازی جی تی ای 6 امسال، 28 آبان منتشر میشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251880
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251880_1779147842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 دسترسی سریع و مستقیم به وینکوبت
+
+
+📌دیگه لازم نیست بین لینک‌های مختلف بگردی یا وقتت تلف بشه.
+
+
+📌فقط با یک ورود ساده به ربات رسمی، مستقیم وارد سایت شوید: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+⚡️    ورود سریع و بدون معطلی
+
+⚡️   بدون لینک‌های اضافی و گیج‌کننده
+
+⚡️   دسترسی مستقیم از داخل تلگرام
+
+
+😀 همه چیز برای راحتی کاربران داخل ربات فراهم و قرار داده شده.
+
+🔵 برای تحلیل‌ها و اخبار سایت وارد کانال سایت شوید: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## IranIntlTV — post 337853
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337853" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: طرح مجلس برای جایزه و پاداش به قاتل ترامپ!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337852
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337852_1779147843.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ با اشاره به توقف کوتاه‌مدت حمله برنامه‌ریزی‌شده به جمهوری اسلامی درپی تقاضای عربستان‌ سعودی، امارات متحده عربی و قطر از او با هدف رسیدن به توافق، گفت این موضوع را به اسرائیل و دیگر کشورهای منطقه نیز اطلاع داده است.
+او در واشینگتن‌دی‌سی به خبرنگاران گفت: «عربستان سعودی، قطر، امارات متحده عربی و چند کشور دیگر از من خواستند که آن را برای دو یا سه روز، یک بازه کوتاه، به تعویق بیندازیم، زیرا فکر می‌کنند بسیار به دستیابی به یک توافق نزدیک شده‌اند و اگر بتوانیم به گونه‌ای عمل کنیم که هیچ سلاح هسته‌ای به دست ایران نرسد، فکر می‌کنم اگر آنها راضی باشند، ما نیز احتمالا راضی خواهیم بود.»
+ترامپ گفت: «ما قرار بود فردا یک حمله بسیار بزرگ انجام دهیم. من آن را برای مدتی کوتاه به تعویق انداختم، امیدوارم شاید برای همیشه، اما احتمالا برای مدت کوتاهی، زیرا گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و خواهیم دید این گفت‌وگوها به کجا می‌انجامد.»
+او افزود: «ما اسرائیل را در جریان گذاشته‌ایم، دیگر افرادی را در خاورمیانه که با ما درگیر بوده‌اند مطلع کرده‌ایم و این یک تحول بسیار مثبت است.»
+https://iranintl.com/202605187593
+</div>
+
+## IranIntlTV — post 337851
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337851_1779147843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد به درخواست رهبران منطقه برنامه حمله به جمهوری اسلامی را متوقف کرده است.
+
+او همزمان به نیویورک‌پست گفت پس از دریافت پاسخ اخیر جمهوری اسلامی درباره مذاکرات، دیگر تمایلی به دادن هیچ امتیازی به تهران ندارد.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337850
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337850" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: لغو حمله در آخرین لحظه
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337849
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337849_1779147845.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، در ایکس نوشت: «همان‌طور که پیش‌تر گفته‌ام، هر توافقی که میان آمریکا و جمهوری اسلامی حاصل شود باید برای تایید به کنگره ارائه شود؛ همان‌طور که در مورد برجام نیز چنین شد.»
+سناتور گراهام گفت: «اگر بتوانیم از طریق ابزارهای دیپلماتیک به درگیری پایان دهیم و به اهداف امنیت ملی خود دست یابیم، این یک دستاورد بزرگ خواهد بود.»
+
+https://iranintl.com/202605183437
+</div>
+
+## Persian_Trend_Official — post 14462
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14462_1779147845.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️ شبتون بخیر 🫶
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 02:02
 ---
 
