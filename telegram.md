@@ -7,6 +7,1027 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 16:26
+---
+
+## ChizBergerz — post 46514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه لیست آیپیِ جدیدِ تست شده برایِ "شیرو خورشید" تست شده با همراه اول:
+
+185.208.174.167
+31.214.169.244
+185.109.61.27
+185.137.25.214
+5.144.129.174
+138.201.54.122
+109.72.197.1
+65.109.34.234
+37.255.133.30
+81.91.145.2
+185.53.142.174
+5.160.128.142
+5.160.13.85
+2.23.168.250
+185.142.158.162
+80.191.243.226
+2.23.168.144
+50.7.5.83
+185.88.178.196
+2.23.168.254
+Tel: @ChizBergerz
+94.130.33.41
+2.23.168.47
+2.23.170.80
+63.141.252.203
+142.54.178.211
+2.23.168.96
+95.216.69.37
+2.23.168.213
+2.23.168.174
+81.12.72.218
+144.76.1.88
+94.130.50.12
+94.130.13.19
+37.191.76.110
+185.143.232.122
+85.133.167.108
+94.130.70.160
+
++ تا زمانی که اتصال‌تون با سرعتِ خوب برقرار هست نیازی نیست که آیپی رو عوض کنید و آیپی هایِ جدید رو تست کنید.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑ای پی های جدید اسکن شده برای شیر و خورشید تست شده روی ایرانسل؛
+
+23.44.201.149
+23.212.253.227
+23.44.201.185
+23.44.201.17
+23.62.54.24
+23.58.95.144
+104.83.198.44
+92.123.102.153
+184.51.252.134
+23.53.40.147
+184.51.252.176
+2.18.64.212
+172.104.251.198
+2.18.79.101
+23.216.77.181
+92.123.102.89
+23.216.77.80
+96.16.53.132
+23.53.40.139
+23.48.165.70
+2.21.20.143
+23.43.85.155
+23.48.23.184
+23.207.210.83
+23.209.125.169
+23.48.23.172
+2.21.240.22
+23.55.110.82
+23.216.77.35
+23.58.95.138
+23.33.40.149
+23.48.23.146
+23.209.125.145
+92.123.102.130
+23.53.40.121
+23.48.23.11
+23.201.248.171
+23.209.125.27
+23.48.23.176
+@Tel: @ChizBergerz
+23.207.210.86
+23.55.161.151
+92.123.103.89
+2.23.7.34
+23.207.210.80
+23.48.23.165
+23.48.23.173
+23.48.23.156
+23.55.110.74
+173.222.107.202
+23.213.161.140
+23.48.23.134
+23.204.152.160
+2.23.97.120
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46512
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46512_1779108996.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قاضی‌زاده‌هم عالی گرفت رو بهزاد فراهانی خارکصده👌🔥
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46511
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46511_1779108997.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی آیسان رو تهدید به توقیف اموالش تو ایران کرده، آیسان هم با این استوری جوابشونو داده: 🤣🤣
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46510
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46510_1779108998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آقای فراهانی مادرقحبه توجه کن؛ ‌‌‏همین پسربچه اندازه کل خاندانت خایه داره!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46509
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46509" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46508
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46508_1779108998.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+re28
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46507
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46507_1779108999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افشاگری عظیمی، دبیر کل جبهه عنقلاب: «مسیح علینژاد» و «گلشیفته فراهانی» عاملین دستگاه های امنیتی ج.ا (پرستوهای نظام) هستن!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46506
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46506_1779109001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید باورتون نشه ولی این کلیپ مربوط به تهرانه و برای دیروزه!
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71503
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71503_1779109002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 چند تا خانم بی‌حجاب توی استان اصفهان رفته بودند تو تجمعات شبانه طرفداران حکومت شرکت کردند، روز بعد دادگاه استان به خاطر بی حجابی براشون ابلاغیه فرستاده و جریمه‌شون کرده...
+حماقت برخیها تَه ندارد..
+</div>
+
+## rodast_omiddana — post 71502
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71502_1779109002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨رویترز:
+پاکستان، ۸ هزار نیروی نظامی به همراه یک اسکادران جنگنده و سامانه پدافند هوایی به عربستان سعودی اعزام کرد.
+</div>
+
+## rodast_omiddana — post 71501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 خانعلی زاده روی عکس جعلی ترامپ تحلیل رفت
+پسر بچه ای که میگه بزور آوردنش تجمعات شبانه
+لینک یوتیوب:
+https://www.youtube.com/watch?v=uWRuhrU4raY
+</div>
+
+## rodast_omiddana — post 71500
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71500_1779109004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨تسنیم به نقل از منبعی نزدیک به تیم مذاکره‌کننده:
+تهران از طریق میانجی پاکستانی، متن جدیدی شامل ۱۴ بند را تحویل داده است
+</div>
+
+## rodast_omiddana — post 71499
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 پسر عبدالرحیم موسوی میگه 30 روز دنبال جنازه پدرم بودیم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=Qi5tnvBKqeE
+</div>
+
+## KiriMohems — post 47708
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47708_1779109004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 سرعت بالا + کیفیت واقعی + قیمت منصفانه با گرند‌ ‌وی‌پی‌ان بدون قطعی و دردسر وصل شو 
+🚀 
+😀 پینگ عالی 
+😀 مناسب گیم، یوتیوب و استفاده روزانه 
+😀 سرورهای پرسرعت و پایدار 
+😀 تحویل آنی و پشتیبانی سریع 
+😀 قیمت اقتصادی با کیفیتی که تفاوتشو حس می‌کنی 
+😀 وقتی کیفیت مهمه، انتخابت…
+</div>
+
+## KiriMohems — post 47707
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47707_1779109005.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 سرعت بالا + کیفیت واقعی + قیمت منصفانه
+با گرند‌ ‌وی‌پی‌ان بدون قطعی و دردسر وصل شو 
+🚀
+
+😀 پینگ عالی
+
+😀 مناسب گیم، یوتیوب و استفاده روزانه
+
+😀 سرورهای پرسرعت و پایدار
+
+😀 تحویل آنی و پشتیبانی سریع
+
+😀 قیمت اقتصادی با کیفیتی که تفاوتشو حس می‌کنی
+
+😀 وقتی کیفیت مهمه، انتخابت معلومه!
+
+
+
+قیمت‌ها:
+1Gb: 290/000
+3GB:790/000
+5GB:1/190/000
+10GB:1/890/000
+⭐️ 20GB:3/590/000
+
+
+🕔از جشنواره تخفیف جا نمونی...!
+
+
+🤖 Robot 
+👇
+👇
+👇
+
+👤 Admin 
+👇
+👇
+👇
+</div>
+
+## KiriMohems — post 47705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قیمت چندتا ماشین تخمی داخلی و خارجی ، ۲۸ اردیبهشت‌ماه ۱۴۰۵
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47704
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47704_1779109005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جمهوری اسلامی ، صفحه تخمی- توییتری برای مدیریت ترافیک دریایی در تنگه هرمز راه انداخته
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47703
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47703_1779109006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴افشاگری محمدحسین عظیمی دبیر کل جبهه انقلاب اسلامی در مورد گلشیفته فراهانی و مسیح علی‌نژاد ؛
+اینا عامل دستگاه امنیتی تو ایران بودند
+#Helsinki
+@MohemMovie
+</div>
+
+## KiriMohems — post 47702
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47702_1779109007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#فوری_تخمی
+🔴گفتگوی تلفنی بین نتانیاهو و ترامپ درباره جمهوری اسلامی لو رفت
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وزیر کشور پاکستان تو تهران شیر خورده و کیر انداخته
+
+خبرنگار الجزیره به نقل از منبعی در وزارت کشور پاکستان: وزیر کشور بهش خوش گذشته و سفر خودش رو به تهران برای روز سوم تمدید کرد.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47700
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47700_1779109008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صدراعظم آلمان،حمله به نیروگاه هسته‌ای امارات رو به کون جمهوری اسلامی آویزون کرد
+
+فریدریش مرتس، توئیت زده که حمله به نیروگاه هسته‌ای باراکا در امارات کار جمهوری اسلامی بوده و باید کون رو زمین بزاره و با آمریکا وارد مذاکرات بشه، چوب تو کون همسایگانش فرو نکنه و تنگه هرمز رو بدون محدودیت باز کنه.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰رویترز : پاکستان زیرش سوراخ شده و پیشنهاد به‌روزشده ایران رو به آمریکا منتقل کرده یک منبع کلفت پاکستانی به رویترز گفته: کصکشا ، ما زمان زیادی برای پر کردن جنده بازی بین واشنگتن و تهران نداریم یه گوهی بخورید دیگه #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰رویترز : پاکستان زیرش سوراخ شده و پیشنهاد به‌روزشده ایران رو به آمریکا منتقل کرده
+
+یک منبع کلفت پاکستانی به رویترز گفته:
+کصکشا ، ما زمان زیادی برای پر کردن جنده بازی بین واشنگتن و تهران نداریم یه گوهی بخورید دیگه
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47696
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47696_1779109009.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 در پی گزارشات نیویورک تایمز درباره پایگاه‌های نظامی که اسرائیل خیلی سوسکی تو خاک عراق راه انداخته، یک چوپان سوری که تو منطقه‌ای بین مرز عراق و سوریه کون گوسفنداش میزاشته فیلمی گرفته که هواپیماهای ترابری نوع C-130 تو ارتفاع بسیار پایین دیده میشن.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47695
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47695_1779109011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r28🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## SportBaadNews — post 251823
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251823_1779109011.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🚨فوری و رسمی: هانسی فلیک تا 2028 با بارسلونا تمدید کرد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251822
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251822_1779109011.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فوری از فرناندو پولو: فرمین لوپز باید تحت عمل جراحی قرار بگیره @SportBaadNews
+</div>
+
+## SportBaadNews — post 251821
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251821_1779109012.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فوری از فرناندو پولو: فرمین لوپز باید تحت عمل جراحی قرار بگیره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251820
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251820_1779109012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسی نموند دیگه @SportBaadNews
+</div>
+
+## SportBaadNews — post 251819
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251819_1779109012.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی کارواخال با رئال مادرید:
+
+• 6 قهرمانی در لیگ قهرمانان اروپا
+• 4 قهرمانی در لالیگا
+• 2 قهرمانی در کوپا دل ری
+• 5 قهرمانی در سوپرجام اروپا
+• 4 قهرمانی در سوپرجام اسپانیا
+• 5 قهرمانی در جام باشگاه های جهان
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251818
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251818_1779109013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسمی: کارواخال از رئال مادرید خداحافظی کرد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسمی: کارواخال از رئال مادرید خداحافظی کرد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251816
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251816_1779109013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسمی: کارواخال از رئال مادرید خداحافظی کرد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بانو جورجینا هم بلوند کرده موهاشو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251811
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251811_1779109013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حس میکنم اصن به کیرتون هم نیست که اینترنت سه ماهه قطعه، دلار 180 تومنه، اینترنت طبقاتی اومده، دارید گیگی کم کم 200-300 تومن پول کانفیگ میدید، گوشت و مرغ کیلویی خدا تومن شده، تخم مرغ شونه ای 500 تومن، قیمت گوشی ها 5 برابر شده، تورم کمر داره میشکنه، کار کاسبی های آنلاین خوابیده و...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251810
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251810_1779109014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ رسسسسسسمی؛ ژابی سرمربی چلسی شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251809
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251809_1779109014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣
+⚽️ فوووووری فابریزیو رومانو: ژوزه مورینیو به رئال مادرید... Here We Goooooooooooo! @SportBaadNews
+</div>
+
+## SportBaadNews — post 251808
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251808_1779109014.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣
+⚽️ فوووووری فابریزیو رومانو: ژوزه مورینیو به رئال مادرید... Here We Goooooooooooo! @SportBaadNews
+</div>
+
+## SportBaadNews — post 251807
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251807_1779109015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷
+⚽️| سردار آزمون بعد خط خوردنش از لیست تیم ملی برای جام جهانی یه عکس با لباس شباب الاهلی رو پروفایل پیجش گذاشت و پیج تیم ملی رو هم آنفالو کرد
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337775
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337775_1779109015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت آلکاتل اعلام کرد، تعمیر کابل‌های زیردریایی در خلیج فارس را به دلیل ناامنی و تهدیدهای سپاه پاسداران متوقف کرده است.
+
+احمد صمدی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337774
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337774_1779109016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک تایمز به نقل از دو مقام خاورمیانه‌ای گزارش داد که ایالات متحده و اسرائیل در حال انجام آماده‌سازی‌های «گسترده» برای احتمال ازسرگیری حملات علیه جمهوری اسلامی هستند.
+
+این مقام‌ها احتمال دادند که حملات ممکن است در هفته جاری آغاز شود.
+
+به نوشته این روزنامه، این سطح از آمادگی نظامی از زمان اجرای آتش‌بس بی‌سابقه بوده است.
+https://iranintl.com/202605180651
+</div>
+
+## IranIntlTV — post 337773
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337773" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | دوشنبه ۲۸ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337772
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337772_1779109017.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند کوتاه «هنر مقاومت» به تهیه‌کنندگی ایران‌اینترنشنال و کارگردانی مهران عباسیان، خبرنگار این شبکه، برنده جایزه بهترین مستند کوتاه و بهترین کارگردانی فستیوال فیلم خانه سینمای سوئد شد.
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337771
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337771_1779109018.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید: «برنج آنقدر گران شده که توان خریدش را نداریم. قیمت برنج از دو میلیون تومان شروع می‌شود.»
+</div>
+
+## IranIntlTV — post 337770
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337770_1779109020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات رسیده به ایران‌اینترنشنال، جزییات تازه‌ای از چگونگی کشته شدن جاویدنام امیرپارسا اشکبوس، دانشجوی ترم آخر رشته میکروبیولوژی، در جریان انقلاب ملی ایرانیان روایت می‌کند.
+
+گفت‌وگو با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337769
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337769_1779109021.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از منابع آگاه گزارش داد پاکستان در چارچوب پیمان دفاعی خود با عربستان سعودی، ۸ هزار نیروی نظامی به همراه یک اسکادران جنگنده و سامانه پدافند هوایی به این کشور اعزام کرده است.
+
+به گزارش رویترز، این نیروها از توان عملیاتی برخوردارند و با هدف حمایت از عربستان سعودی در صورت ازسرگیری حملات علیه این کشور مستقر شده‌اند.
+
+این تحرک نظامی در حالی صورت می‌گیرد که پاکستان نقش اصلی میانجی‌گری میان تهران و واشینگتن را بر عهده دارد.
+https://iranintl.com/202605187837
+</div>
+
+## IranIntlTV — post 337768
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337768_1779109022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان با اشاره به وضعیت وخیم اقتصادی در پی محاصره دریایی بندرهای ایران، از کاهش درآمدهای کشور خبر داد و گفت: «دولت به‌دلیل مشکلات تجارت و بازار، امکان اخذ مالیات را ندارد.»
+
+گفت‌وگو با آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337767
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337767_1779109023.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روزنامه سان گزارش داد که بازیکنان تیم ملی فوتبال انگلستان در جریان جام جهانی ۲۰۲۶ در آمریکا، رختخواب‌های شخصی خود را همراه خواهند داشت تا کیفیت خواب و روند ریکاوری آن‌ها حفظ شود.
+
+🔹این تصمیم پس از شکایت‌های متعدد درباره تخت‌های خشک و سفت هتل محل اقامت آن‌ها گرفته شده است. اتحادیه فوتبال انگلیس (FA) برای تضمین خواب راحت و باکیفیت بازیکنان، تشک‌های اسفنجی سبک و بالش‌های ویژه‌ای تهیه کرده است. از بازیکنان خواسته شده پتوهای شخصی خود را هم بیاورند تا اتاق هتل حس خانه را داشته باشند.
+
+🔹بر اساس این گزارش، کادر فنی تیم ملی انگلستان به رهبری توماس توخل قصد دارد برای جلوگیری از خستگی و مشکلات ناشی از سفرهای طولانی در آمریکا، شرایط اقامت بازیکنان را تا حد ممکن مشابه خانه فراهم کند.
+
+🔹این تصمیم در حالی گرفته شده که فاصله زیاد شهرهای میزبان جام جهانی ۲۰۲۶، یکی از نگرانی‌های اصلی تیم‌های حاضر در این رقابت‌ها عنوان شده است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337766
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337766_1779109024.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه رسیدگی‌ به پرونده متهمان حمله با چاقو به پوریا زراعتی، مجری تلویزیون ایران‌اینترنشنال، در لندن آغاز می‌شود.
+
+رضا محدث، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337765
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337765_1779109025.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مروری بر روزنامه‌های ایران، دوشنبه ۲۸ اردیبهشت، با مجتبی هاشمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 337764
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337764_1779109026.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان به عوارض اقتصادی محاصره دریایی آمریکا اذعان کرد و گفت: «کشور امکان صادرات نفت و تامین دلار برای واردات بنزین را ندارد.»
+
+گفت‌وگو با مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337763
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337763_1779109028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال، نصب بنرهای اعتراضی را در مناطق مختلف کرج نشان می‌دهد که روی آنها نوشته شده: «ما چیزی برای خوردن نداریم. بچه‌هایمان گرسنه هستن. همه‌چیز به ما بستگی دارد.»
+</div>
+
+## IranIntlTV — post 337762
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337762_1779109029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد ابوالغیط، دبیرکل اتحادیه عرب، حمله به عربستان سعودی با سه پهپاد را به‌شدت محکوم کرد و آن را نقضی آشکار حاکمیت و تمامیت ارضی این کشور دانست.
+
+احمد ابوالغیط گفت: «این حمله بزدلانه به هیچ‌وجه قابل قبول یا توجیه نیست.»
+
+او با اشاره به نقض حریم هوایی عربستان سعودی تاکید کرد این اقدام تجاوزی آشکار به حاکمیت این کشور بوده است.
+
+جمال رشدی، سخنگوی دبیرکل اتحادیه عرب، نیز اعلام کرد دبیرکل همبستگی کامل خود را با پادشاهی عربستان سعودی در اقداماتی که برای حفاظت از اراضی و شهروندان خود مطابق با احکام حقوق بین‌الملل اتخاذ می‌کند، ابراز کرده است.
+https://iranintl.com/202605184256
+</div>
+
+## IranIntlTV — post 337761
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337761_1779109030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عفو بین‌الملل گزارش داد شمار اعدام‌ها در جهان در سال گذشته میلادی به بالاترین سطح در ۴۴ سال گذشته رسیده است؛ افزایشی که جمهوری اسلامی، نقش اول را در آن دارد.
+
+گفت‌وگو با احمد صمدی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337760
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337760_1779109031.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۲۸ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337759
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337759_1779109032.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فریدریش مرتس، صدراعظم آلمان، روز دوشنبه اعلام کرد برلین حملات جمهوری اسلامی به امارات متحده عربی و سایر کشورها را محکوم می‌کند و افزود تهران باید تهدید همسایگان خود را متوقف کرده و تنگه هرمز را بدون محدودیت باز نگه دارد.
+
+فریدریش مرتس در پیامی در شبکه ایکس نوشت: «حملات به تاسیسات هسته‌ای تهدیدی برای امنیت مردم در سراسر منطقه است. نباید هیچ‌گونه تشدید بیشتر خشونت رخ دهد.»
+
+او همچنین تاکید کرد حکومت ایران باید وارد مذاکرات جدی با آمریکا شود.
+https://iranintl.com/202605188672
+</div>
+
+## IranIntlTV — post 337758
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337758_1779109033.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهور آمریکا، گفت: «مقام‌های جمهوری اسلامی برای امضای توافق بی‌تاب هستند، اما پس از رسیدن به توافق، متنی ارسال می‌کنند که هیچ ربطی به توافق انجام‌شده ندارد.»
+
+گفت‌وگو با علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337757
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337757_1779109035.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور دیپلماتیک رییس امارات متحده عربی، نیروهای نیابتی مورد حمایت جمهوری اسلامی را مسئول حملات پهپادی یک‌شنبه به خاک این کشور دانست و آن را «اقدامی تروریستی» خواند.
+
+گفت‌وگو با تروسکه صادقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337756
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337756_1779109036.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم اعزامی فوتبال ایران برای برگزاری اردوی آماده‌سازی پیش از جام جهانی و همچنین گرفتن ویزای آمریکا راهی ترکیه شد. این در حالی است که هنوز مشخص نیست کدام بازیکنان بتوانند ویزای آمریکا را دریافت کنند.
+گفت‌وگو با مهدی رستم‌پور، خبرنگار ورزشی
+
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از نظر خلوتی منظورم بود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14410
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ وضعیت کم سابقه‌ی آسمان منطقه، از نظر خلوت بودن.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14409
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14409_1779109037.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰
+🇸🇦
+🇵🇰طبق گزارش رویترز، پاکستان در چارچوب «توافق دفاع مشترک» با عربستان:
+
+
+🔢حدود ۸ هزار نیروی نظامی،
+
+
+🔢یک اسکادران جنگنده عمدتاً از نوع JF-17،
+
+
+🔢دو اسکادران پهپادی
+
+
+🔢 سامانه پدافند هوایی HQ-9 ساخت چین
+را در خاک عربستان مستقر کرده است.
+
+
+❎بر اساس این گزارش، این اقدام با هدف تقویت همکاری‌های دفاعی و امنیتی میان اسلام‌آباد و ریاض انجام شده است.
+❎
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14408
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14408_1779109038.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران سامانه «هرمز سیف» را برای ثبت‌نام کشتی‌های عبوری از تنگه هرمز راه‌اندازی کرد
+
+جمهوری اسلامی ایران سامانه‌ای تحت عنوان «هرمز سیف» را با هدف ارائه خدمات به کشتی‌های عبوری از تنگه هرمز راه‌اندازی کرده است. بر اساس این طرح، ناخدایان و شرکت‌های کشتیرانی می‌توانند از طریق این سامانه درخواست خدمات مختلف از جمله بیمه، کترینگ، خدمات اضطراری و همراهی اسکورت نظامی را ثبت کنند.جالبه که اسکورت نظامی رو هم جزو «خدمات» گذاشتن، کنارِ کترینگ! 😂
+
+
+
+با این حال، این سامانه با یک چالش فنی قابل توجه مواجه است؛ وب‌سایت مذکور از خارج از ایران قابل دسترسی نیست و کاربران خارجی برای ثبت‌نام ملزم به استفاده از اینترنت ایرانی هستند.
+
+آدرس سامانه: hormuzsafe.ir
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14407
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14407_1779109038.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تسنیم: ایران متن جدید ۱۴ بندی به آمریکا ارائه کرد
+
+💢خبرگزاری تسنیم به نقل از یک منبع نزدیک به تیم مذاکره‌کننده گزارش داد تهران از طریق میانجی پاکستانی، متن جدیدی شامل ۱۴ بند به طرف آمریکایی تحویل داده است.
+
+▪️پیش تر اخباری از منابع پاکستانی نسبت به ارسال پیشنهاد جدید جمهوری اسلامی به آمریکا توسط این کشور منتشر شده بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14406
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14406_1779109039.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕊
+👨‍🦲 سفر پوتین به چین تنها ۴ روز پس از حضور ترامپ
+
+🔹رئیس‌جمهور چین کمتر از یک هفته پس از سفر رئیس‌جمهور آمریکا به پکن، اکنون برای میزبانی همتای روس خود آماده می‌شود.
+
+🔹دیدارهای روسای جمهور آمریکا و روسیه نشان می‌دهد که پکن «به سرعت در حال ظهور به عنوان نقطه کانونی دیپلماسی جهانی» است.
+
+🔹تجارت دوجانبه چین و روسیه از سال ۲۰۲۲ بعد از جنگ اوکراین به بالاترین سطح خود رسیده است، به طوری که چین بیش از یک‌چهارم صادرات روسیه را خریداری می‌کند.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14405
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14405_1779109039.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#طنز
+
+جدیدا سرورهای سوپر اپلیکیشن بله وقت ناهار و نماز همراه کارمندان شرکت استراحت می‌کنند. 😌
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14404
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14404_1779109039.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇵🇰انفجار مرگبار در وزیرستان پاکستان و ترور یکی از بزرگان قبایل
+
+🔹در پی انفجار بمب در بازار «رستم» شهر وانا، ۳ نفر کشته و ۴ نفر زخمی شدند.
+🔹منابع محلی اعلام کردند در میان کشته‌شدگان، «ملک طارق وزیر» از بزرگان بانفوذ قبایل منطقه نیز حضور دارد که در حل اختلافات قومی نقش مهمی داشت.
+
+PHANTOM
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 13:06
 ---
 
