@@ -7,6 +7,555 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 00:55
+---
+
+## ChizBergerz — post 46529
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46529_1779139556.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شعار "مرگ بر امارات" ضجه زنی‌های حکومت اضافه شد
+💩😂
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71530
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده_فوری
+ترامپ حمله فردا شب را لغو کرد؟
+آمریکا پیشنهاد امروز رژیم را رد کرد!
+جلسه امنیتی فردا ترامپ برای حمله در آخر هفته؟
+پاکستان نیز با رژیم میجنگد!
+لینک یوتیوب:
+https://www.youtube.com/watch?v=yWAdEryZ56A
+</div>
+
+## KiriMohems — post 47732
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47732_1779139557.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#برینید
+
+🔴 صدا و سیما امشب برامون تو پخش زنده ، کون لخت پخش کرده و خیلیا واشر سر خایه سوزوندن
+
+#Helsinki
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47731
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما: ترامپ برای پنجمین بار از جنگ مقابل ایران فرار کرد.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47730
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47730_1779139558.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تیراندازی تو مرکز اسلامی سن‌دیگوی آمریکا باعث کشته و زخمی شدن چندتا مسلمون شده.
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47729
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47729_1779139561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 سرعت بالا + کیفیت واقعی + قیمت منصفانه با گرند‌ ‌وی‌پی‌ان بدون قطعی و دردسر وصل شو 
+🚀 
+😀 پینگ عالی 
+😀 مناسب گیم، یوتیوب و استفاده روزانه 
+😀 سرورهای پرسرعت و پایدار 
+😀 تحویل آنی و پشتیبانی سریع 
+😀 قیمت اقتصادی با کیفیتی که تفاوتشو حس می‌کنی 
+😀 وقتی کیفیت مهمه، انتخابت…
+</div>
+
+## KiriMohems — post 47728
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47728_1779139561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 سرعت بالا + کیفیت واقعی + قیمت منصفانه
+با گرند‌ ‌وی‌پی‌ان بدون قطعی و دردسر وصل شو 
+🚀
+
+😀 پینگ عالی
+
+😀 مناسب گیم، یوتیوب و استفاده روزانه
+
+😀 سرورهای پرسرعت و پایدار
+
+😀 تحویل آنی و پشتیبانی سریع
+
+😀 قیمت اقتصادی با کیفیتی که تفاوتشو حس می‌کنی
+
+😀 وقتی کیفیت مهمه، انتخابت معلومه!
+
+
+
+قیمت‌ها:
+1Gb: 290/000
+3GB:790/000
+5GB:1/190/000
+10GB:1/890/000
+⭐️ 20GB:3/590/000
+
+
+🕔از جشنواره تخفیف جا نمونی...!
+
+
+🤖 Robot 
+👇
+👇
+👇
+
+👤 Admin 
+👇
+👇
+👇
+</div>
+
+## SportBaadNews — post 251875
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251875_1779139562.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨
+🇧🇷 فووووری و رسمیییییی: نیمار به اسکواد برزیل دعوت شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251874
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251874_1779139563.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لئو پریرا
+</div>
+
+## SportBaadNews — post 251873
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251873_1779139564.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇧🇷 رسسسسسسسسمی، لیست تیم ملی برزیل برای جام جهانی 2026 آمریکا 
+◀️ دروازه‌بان‌ها: آلیسون، ادرسون، وِوِرتون 
+◀️ مدافعان: الکس ساندرو، برِمر، ایبانه‌ز، داگلاس سانتوس، گابریل، دانيلو، مارکینیوس، لئو پریرا، وِسلی 
+◀️هافبک ها: فابینیو، لوکاس پاکتا، برونو گیمارش،…
+</div>
+
+## SportBaadNews — post 251871
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251871_1779139565.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇧🇷 رسسسسسسسسمی، لیست تیم ملی برزیل برای جام جهانی 2026 آمریکا 
+◀️ دروازه‌بان‌ها: آلیسون، ادرسون، وِوِرتون 
+◀️ مدافعان: الکس ساندرو، برِمر، ایبانه‌ز، داگلاس سانتوس، گابریل، دانيلو، مارکینیوس، لئو پریرا، وِسلی 
+◀️هافبک ها: فابینیو، لوکاس پاکتا، برونو گیمارش،…
+</div>
+
+## SportBaadNews — post 251867
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251867_1779139565.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇧🇷 رسسسسسسسسمی، لیست تیم ملی برزیل برای جام جهانی 2026 آمریکا
+
+
+◀️ دروازه‌بان‌ها: آلیسون، ادرسون، وِوِرتون
+
+
+◀️ مدافعان: الکس ساندرو، برِمر، ایبانه‌ز، داگلاس سانتوس، گابریل، دانيلو، مارکینیوس، لئو پریرا، وِسلی
+
+
+◀️هافبک ها: فابینیو، لوکاس پاکتا، برونو گیمارش، کاسمیرو، دانيلو سانتوس
+
+
+◀️مهاجمین: اندریک، رافینیا، مارتینلی، متئوس کونیا، وینیسیوس جونیور، نیمار جونیور، لوئیس هنریکه، ایگور تیاگو، رایان
+
+🟢
+⚽️
+🏆‌ ‌ ‌ نیمار رسما و شرعا برای آخرین جام جهانی کریر خودش دعوت شدددد!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251859
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251859_1779139566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨
+🇧🇷 فووووری و رسمیییییی: نیمار به اسکواد برزیل دعوت شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251858
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷آنچلوتی: بعضی از کسایی که تو لیستای قبلی حضور داشتن قراره ناراحت بشن و من از همشون معذرت میخوام @SportBaadNews
+</div>
+
+## SportBaadNews — post 251857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اندریک دعوت شد
+</div>
+
+## SportBaadNews — post 251856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷آنچلوتی: بعضی از کسایی که تو لیستای قبلی حضور داشتن قراره ناراحت بشن و من از همشون معذرت میخوام
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251855
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب آنچلوتی پا شد بره لیست رو بخونه
+</div>
+
+## SportBaadNews — post 251854
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251854_1779139566.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+د بیا بخون اون لیست لعنتی رو خسته شدیم
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251853
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251853_1779139567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فابریزیو رومانو: خرید باستونی توسط بارسلونا فعلا سرش گرده @SportBaadNews
+</div>
+
+## SportBaadNews — post 251852
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلوبو برزیل: نیمار به جام جهانی دعوت شده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251851
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251851_1779139567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+🇧🇷| نیمار بیو پیج اینستاگرام خودش رو آپدیت کرد و نوشت «سانتوس و برزیل 🇧🇷»
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251850
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251850_1779139568.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیرو هینکاپیه شرفش رفت @SportBaadNews
+</div>
+
+## SportBaadNews — post 251849
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251849_1779139569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیرو هینکاپیه شرفش رفت
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251848
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251848_1779139570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمک مربی برنلی گرت بیل نیست؟
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251847
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251847_1779139570.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هاورتز تو این صحنه اخراج نشد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251846
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251846_1779139571.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔵 پپ گواردیولا تو ژانویه: فصل بعدم مربی سیتی هستم؟ اوه خدای من. من قرارداد دارم، هزار بار هم گفتم. میدونم ازم خسته شدین، 10 ساله اینجام، مطمئنم دیگه حوصله‌ تون سر رفته. یه روزی میرم، قول میدم. ولی قرارداد دارم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251845
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251845_1779139572.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+⚽️ فوووووری از اورنشتاین: گواردیولا از سیتی جدا میشه @SportBaadNews
+</div>
+
+## IranIntlTV — post 337843
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337843_1779139573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از سه مقام امنیتی و دو منبع دولتی از گسترش همکاری‌های پاکستان و عربستان سعودی در چارچوب یک پیمان دفاعی متقابل خبر داد. این پیمان، اعزام ۸ هزار نیروی نظامی، حدود ۱۶ فروند جنگنده جی‌اف-۱۷، دو اسکادران پهپادی و یک سامانه پدافند هوایی را شامل می‌شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337842
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337842_1779139576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ می‌گوید حمله برنامه‌ریزی شده روز سه‌شنبه به جمهوری اسلامی را به درخواست رهبران امارات، عربستان و قطر به تعویق انداخته تا یک شانس دیگر به توافق داده شود. ترامپ گفته ارتش آمریکا آماده است در صورت عدم توافق حمله را بی‌درنگ شروع کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337841
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337841_1779139578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس پلیس سن‌دیگو اعلام کرد درپی تیراندازی در مرکز اسلامی سن‌دیگو سه مرد بزرگسال کشته شدند و مهاجمان مظنون نیز جان باخته‌اند. پلیس گفت این حمله به عنوان یک جرم ناشی از نفرت در نظر گرفته شده است.
+https://iranintl.com/202605188629
+</div>
+
+## IranIntlTV — post 337840
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337840_1779139579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ اعلام کرد به درخواست رهبران منطقه، برنامه حمله به مواضع جمهوری اسلامی را که برای سه‌شنبه طراحی شده بود، متوقف کرده است.
+او گفت رهبران منطقه معتقدند امکان دستیابی به توافق در آینده نزدیک وجود دارد.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337839
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337839_1779139582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال تلگرامی دانشجویان متحد اعلام کرد که امیرحسین شیخ محمدی، دانشجوی دامپزشکی دانشگاه آزاد واحد کرج، صبح دوشنبه ۲۸ اردیبهشت بازداشت شده است.
+
+هیچ اطلاعاتی درباره اتهام‌های احتمالی مطرح شده علیه این دانشجو و محل نگهداری او منتشر نشده است.
+https://iranintl.com/202605189606
+</div>
+
+## IranIntlTV — post 337838
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337838_1779139582.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالقهار بلخی، سخنگوی وزارت خارجه طالبان، حملات پهپادی اخیر به «تاسیسات غیرنظامی» در امارات متحده عربی، به ویژه به نیروگاه هسته‌ای براکه را محکوم کرد.
+
+او در شبکه اجتماعی ایکس نوشت که طالبان «نگرانی عمیق خود را از تشدید خشونت در منطقه ابراز می‌کند.»
+https://iranintl.com/202605183828
+</div>
+
+## IranIntlTV — post 337837
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337837_1779139583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از فعال شدن پدافند هوایی در اصفهان خبر دادند.
+
+تا زمان انتشار این خبر توضیحی درباره علت فعال شدن پدافند ارائه نشده است.
+پیش‌تر خبرگزاری تسنیم نوشت: «پس از مشاهده ریزپرنده‌ها در آسمان جزیره قشم، پدافند برای نابودی اهداف متخاصم فعال شد.»
+https://iranintl.com/202605188482
+</div>
+
+## IranIntlTV — post 337836
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337836_1779139584.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی در حاشیه جشنواره فیلم کن، جایزه ویژه هیات داوران رویداد مستند گلدن گلوبز را دریافت کرد.
+
+این رویداد با همکاری بخش کن داکس، مجله ورایتی و بازار فیلم کن برگزار می‌شود.
+
+گفت‌وگو با محمد عبدی، نویسنده و منتقد فیلم
+@iranintltv
+</div>
+
+## IranIntlTV — post 337835
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337835_1779139587.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنا کلی، معاون سخنگوی کاخ سفید، در گفت‌وگو با فاکس نیوز اعلام کرد که جمهوری اسلامی اجازه نخواهد داشت اورانیوم غنی‌شده در اختیار داشته باشد و این موضوع خط قرمز دونالد ترامپ در مذاکرات است.
+
+او گفت: «تهران نه‌تنها نباید به سلاح هسته‌ای دست پیدا کند، بلکه باید مواد غنی‌شده را نیز تحویل دهد.»
+
+کلی افزود که ترامپ معتقد است جمهوری اسلامی به‌خوبی می‌داند که او در تهدیدهایش بلوف نمی‌زند و عملیات‌های اخیر نشان داده واشینگتن در اجرای تهدیدات خود جدی است.
+https://iranintl.com/202605188107
+</div>
+
+## IranIntlTV — post 337834
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337834_1779139588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروث سوشال نوشت حمله علیه جمهوری اسلامی که برای سه‌شنبه (۲۹ اردیبهشت) برنامه‌ریزی شده بود، فعلا انجام نخواهد شد.
+او همچنین نوشت که رهبران قطر، عربستان سعودی و امارات از آمریکا خواسته‌اند فعلا از اجرای عملیات نظامی علیه جمهوری اسلامی خودداری کند.
+
+گفت‌وگو با شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل و روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337833
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337833_1779139591.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در تروث سوشال نوشت حمله علیه جمهوری اسلامی که برای سه‌شنبه (۲۹ اردیبهشت) برنامه‌ریزی شده بود، فعلا انجام نخواهد شد.
+او همچنین نوشت که رهبران قطر، عربستان سعودی و امارات از آمریکا خواسته‌اند فعلا از اجرای عملیات نظامی علیه جمهوری اسلامی خودداری کند.
+
+گفت‌وگو با شهرام خلدی، پژوهشگر تاریخ خاورمیانه و روابط بین‌الملل و روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14460
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14460_1779139594.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺فرمانده قرارگاه مرکزی خاتم‌الانبیا: به آمریکا و همپیمانان آن اعلام می‌داريم، دوباره مرتکب اشتباه راهبردی و خطای محاسباتی نشوند.
+
+🔹سرلشکر پاسدار خلبان علی عبدالهی: آنها باید بدانند ایران اسلامی و نیروهای مسلح آن نسبت به گذشته آماده تر و قوی تر، دست بر ماشه هستند و هرگونه تعرض و تجاوز مجددی از سوی دشمنان سرزمین و ملت سربلند را سریع، قاطع، پرقدرت و گسترده پاسخ خواهند داد.
+
+🔹دشمنان آمریکایی اسرائیلی بارها ملت شجاع ایران و نیروهای مسلح مقتدر آن را آزموده اند.
+
+🔹ما با عظم و اراده الهی ثابت کرده ایم که اقتدار و توانایی خود را در میدان عمل به دشمنان نشان می دهیم و چنانچه خطای دیگری از سوی دشمنانمان سربزند با قدرت و توانایی به مراتب بالاتر از جنگ تحمیلی رمضان با آن برخورد خواهیم نمود و با تمام توان از حقوق ملت ایران دفاع می کنیم و دست هر متجاوزی را قطع می نمائیم.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14459
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14459_1779139595.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰
+📰 تو صداوسیما تانک آوردن!!!
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14458
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14458_1779139596.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعال شدن پدافند هوایی اصفهان/مهر نیوز
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14457
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14457_1779139597.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حزب‌الله : ما یک هواپیمای جنگی اسرائیلی را با یک موشک زمین به هوا در حریم هوایی بخش غربی جنوب لبنان رهگیری کردیم.
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14456
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/7aZKWyXxQog?feature=share
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 23:40
 ---
 
