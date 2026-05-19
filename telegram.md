@@ -7,6 +7,350 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 01:39
+---
+
+## KiriMohems — post 47792
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47792_1779228565.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️و تماممممم، آرسنال بعد از 3 سال نایب قهرمانی و 22 سال گاییده شدن کص و کون بلاخره قهرمان پریمیرلیگ شد! #Denver @KiriMohemSport
+</div>
+
+## KiriMohems — post 47791
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47791_1779228566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️و تماممممم، آرسنال بعد از 3 سال نایب قهرمانی و 22 سال گاییده شدن کص و کون بلاخره قهرمان پریمیرلیگ شد!
+
+#Denver
+@KiriMohemSport
+</div>
+
+## SportBaadNews — post 251978
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251978_1779228566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ رسسسسسسسسسسسسسمی، دنیا به پایان رسید، آرسنال پس از 3 سال نایب قهرمانی پشت سر هم و پس از 22 سال قهرمان پریمیرلیگ شدددددد! @SportBaadNews
+</div>
+
+## SportBaadNews — post 251977
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251977_1779228566.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣
+⚽️
+⚽️ فووووری از مارکا: رودری خیلی داره برای پیوستن به رئال مادرید له‌له میزنه. باشگاه هم الان فکر میکنه این انتقال ممکنه، مخصوصاً بعد از رفتن پپ گواردیولا از منچسترسیتی. @SportBaadNews
+</div>
+
+## SportBaadNews — post 251976
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251976_1779228567.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣
+⚽️
+⚽️ فووووری از مارکا: رودری خیلی داره برای پیوستن به رئال مادرید له‌له میزنه. باشگاه هم الان فکر میکنه این انتقال ممکنه، مخصوصاً بعد از رفتن پپ گواردیولا از منچسترسیتی.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251975
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251975_1779228567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیو پیج آرسنال: اکانت رسمی قهرمانِ پریمیرلیگِ 2025/26
+
+یه نیم ساعت صبر می‌کردید دیگه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251974
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251974_1779228567.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| 31 سال پیش تو چنین روزی میلان با برد 4×0 مقابل بارسلونا برای پنجمین بار قهرمان چمپیونزلیگ شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251972
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251972_1779228568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️| عکس دسته جمعی بازیکنای آرسنال با جام مقوایی 😂😂
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251971
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251971_1779228568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| 31 سال پیش تو چنین روزی میلان با برد 4×0 مقابل بارسلونا برای پنجمین بار قهرمان چمپیونزلیگ شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251970
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه قهرمانی آرسنال در کمپ تمرینی این تیم و شادی بسیار بازیکنان
+
+ارزش دانلود برای آرسنالیا: 10 از 10
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251969
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251969_1779228569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت کوچه پس کوچه ها و خیابونای لندن پس از قهرمانی آرسنال بعد 22 سال
+@SportBaadNews‌‌
+</div>
+
+## SportBaadNews — post 251967
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251967_1779228571.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ میگل سرانو: ژوزه مورینیو می‌خواد آلساندرو باستونی رو به عنوان مدافع وسط برای رئال مادرید تو این تابستون جذب کنه، اون گزینه محبوب مورینیو برای پست دفاع وسطه. @SportBaadNews
+</div>
+
+## IranIntlTV — post 338014
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338014_1779228571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد فرماندهی مرکزی آمریکا، سنتکام، با انتشار ویدیویی در ایکس اعلام کرد تاکنون ۸۹ کشتی تجاری برای تضمین اجرای محاصره دریایی جمهوری اسلامی تغییر مسیر داده‌اند.
+
+در این اطلاعیه آمده است نیروهای این فرماندهی همچنان به‌طور کامل محاصره دریایی را اجرا می‌کنند و مانع جریان تجارت به بنادر ایران و از آن‌ها می‌شوند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338013
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338013_1779228572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، سخنان فرمانده نیروهای مرکزی ایالات متحده، سنتکام، در مورد مدرسه ابتدایی شجره طیبه در میناب در جنوب ایران را «بی‌اساس و دروغی تکان‌دهنده» نامید.
+
+برد کوپر، فرمانده سنتکام، سه‌شنبه در کنگره آمریکا گفت که تحقیقات نظامی ایالات متحده درباره انفجار در این مدرسه «پیچیده است، زیرا این مدرسه در یک سایت فعال موشک‌های کروز ایران قرار داشت.»
+
+بقایی در ایکس نوشت: «این تحریف بی‌شرمانه، تلاشی آشکار برای پنهان کردن واقعیت تلخ حملات موشکی نهم اسفند است؛ حملاتی که به کشته شدن تراژیک بیش از ۱۷۰ دانش‌آموز و معلمان‌شان انجامید.»
+
+او «هدف قرار دادن» این مرکز آموزشی را «نقض جدی حقوق بشردوستانه بین‌المللی و جنایت جنگی آشکار»‌ نامید است، و نوشت: «ماهیت غیرنظامی این محل را نمی‌توان با تحریف‌های فنی پنهان کرد. فرماندهان نظامی و مقام‌های آمریکایی مسئول صدور و اجرای این حمله فاجعه‌بار باید طبق حقوق بین‌الملل به‌طور کامل پاسخگو باشند.»
+https://iranintl.com/202605196354
+</div>
+
+## IranIntlTV — post 338012
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338012_1779228572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دریا صفایی، نماینده پارلمان بلژیک در یک پست اینستاگرامی در واکنش به احتمال ممنوع شدن ورود پرچم شیر و خورشید به استادیوم‌های جام جهانی نوشت: «پرچم واقعی و ملی ایران پرچم شیر‌و‌خورشید است که هزاران سال قدمت دارد نه پرچم ایدئولوژیک جمهوری اسلامی با کلمه الله در وسط پرچم.»
+
+🔹او با اشاره به تلاش‌هایش در سال‌های گذشته برای ورود آزادانه زنان به استادیوم‌ها در داخل ایران در صفحه اینستاگرام خود نوشت: «از سال ۲۰۱۴ که برای کمپین آزادی ورود زنان به ورزشگاه‌های ایران دور جهان میرفتم، همه جا پرچم واقعی ایران را همراه می‌بردم.»
+
+🔹نماینده ایرانی‌تبار پارلمان بلژیک که این پست را به دو زبان فارسی و انگلیسی و خطاب به «جهانیان» نوشته، اضافه کرده است: «برای اینکه بفهمید پرچم کنونی جمهوری اسلامی چیست میتوانید آن را با پرچم کمونیستی داس و چکش و دیگر نمادهای ایدئولوژیک مقایسه کنید که هر کشوری را اشغال میکرد و پرچم ایدئولوژیکش را جایگزین پرچم تاریخی آن کشور می‌کرد.»
+
+🔹صفایی همچنین خطاب به فدراسیون جهانی فوتبال نوشت: «فیفا حق ندارد پرچم واقعی یک کشور را از مسابقات حذف کند.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338011
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338011_1779228573.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری ایالات متحده سه‌شنبه ۲۹ اردیبهشت در بیانیه‌ای از اعمال تحریم‌های جدید علیه «صرافی امین» مستقر در ایران با نام دیگر «ابراهیمی و شرکا» و شبکه‌ای از شرکت‌های پوششی در چند کشور خبر داد.
+
+اردوان روزبه، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338010
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338010_1779228574.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهان ارشد نظامی کشورهای عضو ناتو، در بروکسل درباره افزایش آمادگی دفاعی، ادامه حمایت نظامی از اوکراین و نگرانی‌های امنیتی اروپا گفت‌وگو کردند.
+
+گزارش لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338009
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338009_1779228575.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «همزمانی بحران‌هایی مانند بنزین، برق، گرانی، بیکاری، قطع اینترنت، کمبود آب، گاز و پیامدهای جنگ، جمهوری اسلامی را با مجموعه‌ای از فشارهای همزمان روبه‌رو کرده است. مهم‌ترین بحران برای حکومت خطر از سرگیری قیام مردم است که مجموع این مشکلات را به ابربحران بقا برای حکومت تبدیل کرده و تاب‌آوری آن را زیر سوال برده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338008
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338008_1779228576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «اگر جنگ از سر گرفته شود و آمریکا و اسرائیل به تلافی حملات جمهوری اسلامی به پالایشگاه‌ها حمله کنند بحران کمبود بنزین به ابربحران بنزین و فروپاشی شبکه تولید و تامین بنزین منجر ‌می‌شود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338007
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338007_1779228577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «دولت همه واقعیت موجود درباره احتمال وقوع ابربحران‌های بنزین و برق را به مردم نمی‌گوید. مسئله فقط کمبود بنزین و برق نیست مسئله احتمال فروپاشی شبکه تامین بنزین و برق در جریان جنگ است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338006
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338006_1779228578.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، با ابراز امیدواری مبنی بر اینکه دولت ترامپ پس از ماه‌ها مذاکره با تهران، هرگونه تلاش جمهوری اسلامی برای بار دیگر به تاخیر انداختن مذاکرات را رد کند، گفت حکومت ایران در حال وقت‌کشی و بازی کردن است.
+گراهام گفت: «حکومت ایران ماه‌ها فرصت داشته است تا به توافق برسد، اما به نظر من روشن است که آنها در حال بازی کردن هستند. ترجیح من یک راه‌حل دیپلماتیک است، اما قدیمی‌ترین ترفند تهران در این زمینه تاخیر، تاخیر، تاخیر است. در مورد هر توافق احتمالی، مشتاقم آن را در سنا بررسی کنم.»
+
+https://iranintl.com/202605190605
+</div>
+
+## IranIntlTV — post 338005
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338005_1779228579.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدمهدی جارچی، جوان ۳۸ ساله و متاهل، در فردیس استان البرز، عاشق ایران و شیفته موسیقی بود.
+
+صبح ۱۹ دی، او با دیدن پیکر چند جان‌باخته انقلاب ملی در نزدیکی خانه‌اش عمیقاً تحت تأثیر قرار گرفت. همان شب در فردیس البرز به معترضان پیوست و با شلیک گلوله نیروهای حکومتی کشته شد.
+
+او رویای آزادی ایران را در سر داشت؛ نامش حالا در میان جاویدنامان انقلاب ملی ماندگار شده است.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 338003
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338003_1779228580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال منچسترسیتی در هفته سی‌وهفتم لیگ برتر انگلستان با نتیجه یک بر یک برابر بورنموث متوقف شد. تیم پپ گواردیولا با این تساوی از رقابت برای قهرمانی جا ماند و آرسنال پس از ۲۲ سال قهرمان لیگ برتر شد. توپچی‌ها آخرین قهرمانی خود در لیگ برتر را در سال ۲۰۰۴ کسب کرده بودند.
+
+🔹منچسترسیتی و آرسنال در هفته‌های گذشته رقابت نزدیکی برای صدرنشینی و قهرمانی داشتند، هرچند آرسنال در این رقابت دست بالاتر را داشت.
+
+🔹با توجه به پیروزی شب گذشته آرسنال برابر برنلی، منچسترسیتی باید بازی امشب خود را با پیروزی پشت سر می‌گذاشت تا کورس قهرمانی به هفته پایانی کشیده شود، اما ناکامی سیتی برابر بورنموث به قهرمانی آرسنال و آرتتا، یک هفته پیش از پایان لیگ برتر، منجر شد.
+
+@iranintltvsport
+</div>
+
+## Persian_Trend_Official — post 14500
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنای آمریکا طرح محدودسازی اختیارات جنگی ترامپ علیه ایران را تصویب کرد
+
+💢سنای آمریکا پس از ۷ تلاش ناموفق، طرحی را تصویب کرد که بر اساس آن ادامه هرگونه اقدام نظامی علیه ایران نیازمند مجوز کنگره خواهد بود.
+
+▪️ این طرح با رأی ۵۰ موافق در برابر ۴۷ مخالف تصویب شد
+
+▪️ «قطعنامه اختیارات جنگ در ایران» توسط سناتور دموکرات «تیم کین» ارائه شده است
+
+بر اساس متن طرح:
+
+▪️ ترامپ موظف خواهد شد نیروهای مسلح آمریکا را از هرگونه درگیری در داخل یا علیه ایران خارج کند
+
+▪️ مگر آنکه کنگره رسماً اعلان جنگ کند یا مجوز مشخص استفاده از نیروی نظامی صادر شود
+
+با این حال:
+
+▪️ این رأی تنها یک مرحله اولیه در سنا محسوب می‌شود
+
+▪️ حتی در صورت تصویب نهایی در کنگره، احتمال وتوی آن توسط ترامپ بسیار بالاست
+
+▪️دموکرات‌ها می‌گویند این اقدام می‌تواند بر تصمیمات کاخ سفید درباره جنگ با ایران تأثیر بگذارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14499
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14499_1779228580.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🔥❤️
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14498
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون طوفان در تهران.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14497
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/iLtj3w_ZmNU?feature=share
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 00:28
 ---
 
