@@ -7,6 +7,517 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 12:26
+---
+
+## rodast_omiddana — post 71558
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71558_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود امید جان شیراز فعالیت پدافند سمت فرودگاه همین الان
+</div>
+
+## rodast_omiddana — post 71557
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71557_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود
+یزد، فعالیت پدافند تقریبا نیم ساعته
+</div>
+
+## rodast_omiddana — post 71556
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71556_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دزفول پدافند صداش میاد
+</div>
+
+## rodast_omiddana — post 71555
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71555_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سلام عمو امید بوشهر پدافند فعاله
+</div>
+
+## rodast_omiddana — post 71554
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71554_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود
+فعالیت پدافند، اندیمشک دقایقی پیش
+</div>
+
+## rodast_omiddana — post 71553
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71553_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود امید جان اهواز صدا پدافند
+</div>
+
+## rodast_omiddana — post 71552
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71552_1779180970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود امید جان
+چند روزی هست اطراف سایت موشکی یزد انفجار کوچک رخ میده، فکر کنم کانال سایت موشکی رو باز میکنند
+</div>
+
+## rodast_omiddana — post 71551
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71551_1779180971.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کمی پیش صدای انفجار و ستون دود در پادگان موشکی ۱۵ خرداد اصفهان
+</div>
+
+## rodast_omiddana — post 71550
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71550_1779180971.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ حمله فردا شب را لغو کرد؟
+آمریکا پیشنهاد امروز رژیم را رد کرد
+جلسه امنیتی فردا ترامپ برای حمله در آخر هفته
+پاکستان نیز با رژیم میجنگد!
+</div>
+
+## rodast_omiddana — post 71549
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71549_1779180972.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود امید عزیز
+چند دقیقه پیش از صدای انفجار کل بهارستان(اصفهان) لرزید.
+بنظر از سمت 15 خرداد بود.
+</div>
+
+## rodast_omiddana — post 71548
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 ولی الله بیاتی نماینده مجلس امارات را تهدید به اشغال کرد
+لینک یوتیوب:
+https://www.youtube.com/watch?v=9-1PokfT9F8
+</div>
+
+## rodast_omiddana — post 71547
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71547" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_فوری_ترامپ حمله فردا شب را لغو کرد؟_آمریکا پیشنهاد امروز رژیم را رد کرد__پاکستان نیز با رژیم میجنگد!
+</div>
+
+## rodast_omiddana — post 71546
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71546" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 فوری_ترامپ حمله فردا شب را لغو کرد؟_آمریکا پیشنهاد امروز رژیم را رد کرد__پاکستان نیز با رژیم میجنگد!
+</div>
+
+## rodast_omiddana — post 71545
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 کیفیت 360_فوری_ترامپ حمله فردا شب را لغو کرد؟_آمریکا پیشنهاد امروز رژیم را رد کرد__پاکستان نیز با رژیم میجنگد!
+</div>
+
+## rodast_omiddana — post 71544
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_فوری_ترامپ حمله فردا شب را لغو کرد؟_آمریکا پیشنهاد امروز رژیم را رد کرد__پاکستان نیز با رژیم میجنگد!
+</div>
+
+## KiriMohems — post 47744
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47744_1779180973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آتش‌سوزی‌های کیرخری در جنوب کالیفرنیا
+
+آتش با باد شدید پخش شده و ریده تو زندگی خیلیا و باعث تخلیه بیشتر از ۲۳ هزار نفر شده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47743
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47743_1779180975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هگست ، وزیر جنگ آمریکا کصنمک بازیش گل کرد و ادای ترامپ رو درآورد
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 کصشعرای ترامپ درباره ایران:
+
+خب، کشورهای دیگه‌ای خایمالی من رو کردن و ما آماده بودیم یک حمله بسیار حشرناک انجام بدیم. من اون رو برای مدتی چصکی به تعویق انداختم؛ امیدوارم شاید برای همیشه، اما شاید هم فقط برای مدت کوتاهی؛ چون گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و خواهیم دید که این گفت‌وگوها به کجا می‌رسد.
+
+عربستان سولاخی، قطر، امارات متحده عربی و چند کشور دیگه از من خواستن که این اقدام رو برای دو یا سه روز به کیرمون بگیریم.
+
+این یک تحول بسیار لاتی است، اما خواهیم دید که آیا واقعاً به نتیجه‌ای می‌رسد یا نه.
+
+دوره‌هایی را داشته‌ایم که فکر می‌کردیم تقریباً به توافق نزدیک شده‌ایم، اما در نهایت کیر شدیم؛ با این حال، این بار شرایط کمی متفاوت است.»
+
+«به نظر می‌رسد شانس بسیار خوبی برای رسیدن به توافق وجود دارد. اگر بتوانیم بدون بمباران این کار را انجام دهیم، خوشحال خواهم شد.»
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47740
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47740_1779180976.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ با کیر سیخ شده‌اش به زن‌های داخل جمعیت :
+شما خیلی خوشگل و خوب به نظر میاید کثافتا ،جوون شما دوتا، بیاید اینجا
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251891
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251891_1779180977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوشحالی اندریک و زنش بعد از دعوت به تیم ملی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251890
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251890_1779180978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟢 مسیر ورود مستقیم به وینکوبت
+
+
+🔗 در حال حاضر برای ورود به سایت، یک مسیر رسمی و ساده در نظر گرفته شده تا دسترسی کاربران بدون پیچیدگی انجام شود.
+
+
+📌به جای جستجو در لینک‌های مختلف یا استفاده از آدرس‌های پراکنده، می‌توانید از ربات رسمی سایت وینکوبت استفاده کنید:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌ساختار این روش برای کاربران به‌گونه‌ای طراحی شده که:
+👇
+
+— زمان ورود کاهش پیدا کند.
+— خطا در آدرس‌ها حذف شود.
+— دسترسی همیشه در دسترس باشد.
+
+
+📌برای ورود به کانال سایت و باخبرشدن از اطلاعات و تحلیل مسابقات جوین بدید:
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 251889
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251889_1779180978.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ کیت لیورپول برای فصل آینده رونمایی شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251888
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251888_1779180979.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+⚽️ فوووووری از رومانووووو:
+مارسکا به سیتی هیروی‌گووو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251887
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251887_1779180979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣ژائو پدرو، در مصاحبه با کانال TNT Sports ده روز پیش: نیمار همون نیماره همونطور که مسی بازیکن آرژانتینه، نیمار بازیکن برزیله! نیمار الگوی منه و تقریباً همه بازیکنان تیم ملی همین حس رو بهش دارن امیدوارم اون در جام جهانی حضور داشته باشه.
+ژائو پدرو با اینکه خودش به جام جهانی دعوت نشد ولی میتونه بازی الگوش رو در جام جهانی ببینه!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251886
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251886_1779180979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+0
+Arsenal
+2
+3
+4
+5
+6
+7
+8
+9
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337892
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337892_1779180980.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، با اشاره به توقف کوتاه‌مدت حمله برنامه‌ریزی‌شده به جمهوری اسلامی در پی تقاضای عربستان‌ سعودی، امارات متحده عربی و قطر، گفت این موضوع را به اسرائیل و دیگر کشورهای منطقه نیز اطلاع داده است.
+
+گفت‌وگو با محمد جواد اکبرین، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337891
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337891_1779180981.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سردار آزمون، مهاجم ایرانی شباب الاهلی امارات پس از موضع‌گیری‌هایی در مخالفت با جمهوری اسلامی، از فهرست تیم ملی برای جام جهانی کنار گذاشته شد. هم‌زمان، رسانه‌های حکومتی از جمله روزنامه‌های فرهیختگان و خراسان به او حمله کردند و از «رفوزه شدن» سردار در آزمونی بزرگ نوشتند.
+
+🔹سردار آزمون پس از قرار نگرفتن در فهرست تیم ملی، عکس پروفایل اینستاگرام خود با لباس تیم ملی را تغییر داد و همچنین صفحه تیم ملی در اینستاگرام را آنفالو کرد.
+
+🔹روزنامه خراسان در واکنش به تغییر عکس سردار آزمون نوشت: «حذف یک عکس چیزی از ارزش پیراهن ملی کم نمی‌کند، اما یک چیز را پررنگ می‌کند: سردار دوباره ذهنیت خام و واکنشی خود را به نمایش گذاشت. چه خوب اگر یک‌بار برای همیشه روشن کند کدام برایش مهم‌تر بود؛ ایرانی بودن یا بازی در جام جهانی؟»
+
+🔹روزنامه فرهیختگان نیز در یادداشتی علیه سردار آزمون نوشت: «چطور ممکن است وسط جنگ، به جای ایستادن کنار کشورت، در آغوش دشمن بروی و مستقیما علیه منافع ملی فعالیت کنی؟ چطور ممکن است حتی یک عذرخواهی ساده برای بازگشت به تیم ملی انجام ندهی؟»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337890
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337890_1779180982.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻​امیرمهدی علوی، سخنگوی فدراسیون فوتبال در یک گفت‌و‌گوی تلویزیونی مدعی شد که «تیم ملی در آمریکا تنها نیست. تا کنون ایرانی‌های زیادی از داخل کشور بلیت بازی‌های تیم ملی در جام جهانی را خریداری کرده‌اند و این امکان در ۴۸ ساعت آینده برای ایرانی‌های خارج کشور هم فراهم می‌شود.»
+
+🔹​این اظهارات در حالی مطرح می‌شود که یکی از دغدغه‌های اصلی مقامات جمهوری اسلامی، احتمال شکل‌گیری فضا و سر دادن شعارهای اعتراضی و ضدحکومتی در جریان این مسابقات است. بر اساس برنامه بازی‌ها، تیم ملی ایران قرار است در شهرهای لس‌آنجلس و سیاتل به میدان برود؛ شهرهایی که از کانون‌های اصلی و مهم ایرانیان خارج از کشور و مخالفان جمهوری اسلامی به شمار می‌روند. پیش‌بینی کارشناسان و ناظران حاکی از آن است که هم‌زمان با برگزاری این مسابقات، تجمعات و تظاهرات گسترده‌ای علیه حکومت ایران در اطراف و درون ورزشگاه‌ها شکل خواهد گرفت.
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337889
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337889_1779180982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عفو بین‌الملل اعلام کرد شمار اعدام‌ها در جهان در سال ۲۰۲۵ به بالاترین سطح ثبت‌شده در ۴۴ سال گذشته رسیده و اعدام‌های انجام شده به‌دست جمهوری اسلامی، اصلی‌ترین عامل این افزایش بوده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337888
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337888_1779180983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولادیمیر پوتین، رییس‌جمهوری روسیه، سه‌شنبه به چین سفر می‌کند. به‌گفته کاخ کرملین، پوتین و شی جین‌پینگ درباره مسائل دوجانبه، راه‌های تقویت پیمان راهبردی و موضوعات کلیدی بین‌المللی و منطقه‌ای، از جمله ایران، گفت‌وگو خواهند کرد.
+
+گفت‌وگو با توماج طاهباز، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337887
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337887_1779180985.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه گاردین در گزارشی با طرح این پرسش که آیا جمهوری اسلامی می‌تواند برای کابل‌های زیردریایی در تنگه هرمز هزینه دریافت کند، نوشت تحقق این موضوع بسیار بعید است.
+
+گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337886
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337886_1779180986.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فدراسیون فوتبال ایران از آغاز فروش بلیت مسابقات تیم ایران در جام جهانی ۲۰۲۶ آمریکا خبر داد. این در حالی‌ست که پیش‌تر کاخ سفید اعلام کرده بود بازیکنان تیم اعزامی ایران اجازه ورود به آمریکا را خواهند داشت، اما ورود هواداران ایرانی به دلیل محدودیت‌های سفر ممنوع است.
+گفت‌وگو با مهدی رستم‌پور، خبرنگار ورزشی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337885
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337885_1779180988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس، نهاد مستقل پایش وضعیت اینترنت در جهان، سه‌شنبه ۲۹ اردیبهشت اعلام کرد قطع اینترنت در ایران اکنون به هشتاد و یکمین روز رسیده است.
+
+نت‌بلاکس افزود: «هم‌زمان، حکومت در تلاش است کنترل دیجیتال خود را به سطح بین‌المللی گسترش دهد؛ از جمله با مطالبه کنترل کابل‌های سایر کشورها در تنگه هرمز و وادار کردن شرکت‌های بزرگ فناوری به تبعیت از قوانین جمهوری اسلامی.»
+https://iranintl.com/202605199233
+</div>
+
+## IranIntlTV — post 337884
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337884_1779180988.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، در نشست با مدیران وزارت کار گفت: «برای غلبه بر آثار و پیامدهای ناشی از جنگ باید با تدبیر، برنامه‌ریزی و نگاه بلندمدت عمل کرد.»
+
+او افزود: «برخی اقدامات فعلی اگرچه برای کنترل شرایط ضروری است، اما در عمل به‌مثابه مُسَکِن و درمان موقت محسوب می‌شود و لازم است برای حل ریشه‌ای مشکلات اقتصادی و اجتماعی، برنامه‌ریزی ساختاری و پایدار صورت گیرد.»
+
+پزشکیان ادامه داد: «باید به‌گونه‌ای برنامه‌ریزی شود که به‌جای اتکای صرف به پرداخت بیمه بیکاری، زمینه ایجاد فرصت‌های شغلی پایدار برای افرادی که در جریان جنگ شغل خود را از دست داده‌اند، فراهم شود.»
+
+رییس دولت جمهوری اسلامی «مدیریت مصرف و پرهیز از اسراف» را یک «ضرورت ملی» دانست و تاکید کرد: «همه دستگاه‌ها باید در این زمینه پیشگام باشند.»
+https://iranintl.com/202605193691
+</div>
+
+## IranIntlTV — post 337883
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337883_1779180989.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی، در دیدار با نمایندگان مجلس اعلام کرد مجموعه‌ای از مطالبات جمهوری اسلامی در پیشنهاد اخیر تهران به آمریکا درج شده است.
+
+او گفت تاکید بر حق غنی‌سازی، خاتمه جنگ در همه جبهه‌ها از جمله لبنان، رفع محاصره دریایی آمریکا، آزادسازی اموال بلوکه‌شده، تامین خسارت‌های واردشده در جنگ، پایان همه تحریم‌ها و خروج نیروهای آمریکایی از محیط پیرامونی جمهوری اسلامی در این پیشنهاد گنجانده شده است.
+
+غریب‌آبادی جزئیات بیشتری درباره روند بررسی این پیشنهاد یا واکنش طرف آمریکایی ارائه نکرد.
+https://iranintl.com/202605196235
+</div>
+
+## IranIntlTV — post 337882
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337882_1779180989.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی کارزار ایران‌اینترنشنال برای یافتن هویت پیکر جاویدنامان در بیمارستان الغدیر تهران، ویدیویی از لحظه قتل جاویدنام آیدا عقیلی به دست ما رسیده است.
+آیدا عقیلی، ۳۴ ساله، شامگاه ۱۸ دی ۱۴۰۴ در شرق تهران با شلیک دو گلوله ماموران به سرش کشته شد که پیکر او را پیچیده در پتویی چهارخانه در حیاط پشتی بیمارستان الغدیر یافتند.
+</div>
+
+## IranIntlTV — post 337881
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337881_1779180991.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه مهاجرانی، سخنگوی دولت جمهوری اسلامی، گفت: «دولت طرفدار محدودیت در دسترسی به اینترنت نیست. نگاه دولت نگاه عادلانه است، فلذا از هرگونه تبعیضی در دسترسی به هر منبعی از جمله اینترنت دفاع نمی‌کند.»
+
+او اضافه کرد: «به دنبال این هستیم که با حفظ همه موضوعاتی که وجود دارد، منویات مقام معظم رهبری و ملاحظاتی که وجود دارد، بتوانیم از موضوع اینترنت گره‌گشایی‌هایی کنیم تا شاهد وضعیت عادلانه‌ای باشیم.»
+
+مهاجرانی ادامه داد: «البته این نکته را هم باید بگوییم که در شرایط جنگی قرار داریم و بدیهی است که برخی از تصمیمات ناشی از تبعات شرایط جنگی است.»
+https://iranintl.com/202605195275
+</div>
+
+## IranIntlTV — post 337880
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337880_1779180991.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تام کاتن، سناتور جمهوری‌خواه آمریکا، گفت: «جمهوری اسلامی هیچ‌گاه در مذاکرات هسته‌ای جدی نبوده و از گفت‌وگوها به عنوان ابزاری برای وقت‌کشی استفاده کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 337879
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337879_1779180992.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از منابع آگاه گزارش داد پاکستان در چارچوب پیمان دفاعی خود با عربستان سعودی، ۸ هزار نیروی نظامی به این کشور اعزام کرده است.
+
+گزارش جواد همدانی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14467
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14467_1779180993.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✍یک فروند هواپیمای اختصاصی اسرائیلی از تل‌آویو به مقصد ابوظبی در حال پرواز است.
+
+
+.
+🇮🇱
+🇰🇼
+
+
+
+👑Phantom
+👑
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14466
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لینک اسپاتیفای لایو دیشب :
+
+https://open.spotify.com/episode/6bpS3p3rcr8qKiJrfEaSaM?si=JvUGVU-RQ7WWFDKd7fnxMA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 09:21
 ---
 
