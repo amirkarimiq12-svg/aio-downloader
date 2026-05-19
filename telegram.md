@@ -7,6 +7,156 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 02:52
+---
+
+## rodast_omiddana — post 71614
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71614_1779232939.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نگران رای کنگره نباشید تا بخواد اجرایی و تصویب کامل بشه راه داره، امشب چند نماینده جمهوری خواه حضور نداشتن برای همین محدودیت جنگی ترامپ رای آورد ولی برای تصویب باید بره سنا و اونجا رای نمیاره..
+بعدشم ترامپ جمعه شب یا شنبه صبح حمله میکنه..
+تیک تاک
+</div>
+
+## rodast_omiddana — post 71613
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71613_1779232940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فَکت
+همه با هم متحد بودن تا اینکه مرتضی نجفی با سواستفاده از خون جاویدنامان اعلام کنسرت کرد و این آغاز تفرقه و دعوا شد..
+پس از آن مانند بچه عرزشیا به همه معترضان گفت عامل رژیم و باعث شد دعوا بالا بگیرد..
+</div>
+
+## rodast_omiddana — post 71612
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71612_1779232940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨مرتضی نجفی یک کلیپ داده و میگه من مشورت کردم پولی که از کنسرت در میارم را میدم برای انقلاب شیرخورشید ولی نوازنده ها باید پولشونو بگیرن و با چندتا جاوید شاه، گفت خدا بده برکَت..
+در حقیقت او فراتر از کاسبی از خون جاویدنامان، مردم ایران را هم خَر فرض کرد..
+شرم آوره..
+</div>
+
+## rodast_omiddana — post 71611
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71611" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_ترامپ: تا روز جمعه به رژیم وقت دادیم بعدش مجبوریم حمله کنیم_6 شب تا حمله بزرگ آمریکا به رژیم؟
+</div>
+
+## rodast_omiddana — post 71610
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71610" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 ترامپ: تا روز جمعه به رژیم وقت دادیم بعدش مجبوریم حمله کنیم_6 شب تا حمله بزرگ آمریکا به رژیم؟
+</div>
+
+## rodast_omiddana — post 71609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_ترامپ: تا روز جمعه به رژیم وقت دادیم بعدش مجبوریم حمله کنیم_6 شب تا حمله بزرگ آمریکا به رژیم؟
+</div>
+
+## rodast_omiddana — post 71608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_ترامپ: تا روز جمعه به رژیم وقت دادیم بعدش مجبوریم حمله کنیم_6 شب تا حمله بزرگ آمریکا به رژیم؟
+</div>
+
+## rodast_omiddana — post 71607
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71607_1779232941.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دوستان عزیز برای پخش در ماهواره یک مشکل فنی داریم، درصدد هستیم بر طرف بشه و سپس برنامه در کانال ملی تی وی پخش میشه
+</div>
+
+## SportBaadNews — post 251983
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داخل توییتر پر شده ایشون دوست دختر جدید لامین یامال هستن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+● بدترین حس وقتیه که میخوای سریع وارد سایت شی، بازی شروع شده، ولی VPN وصل نمیشه یا سایت نصفه لود میشه. 
+😑
+
+● برای همین ربات تلگرام وینکوبت این روزا خیلی کاربردیه چون کل فضای سایتو داخل خود تلگرام میاره و عملاً بدون دردسر میتونی مستقیم وارد بازی‌ها و کازینو شی:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+</div>
+
+## SportBaadNews — post 251980
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251980_1779232941.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مجلس سنای آمریکا طرح مخالفت جنگ با ایران رو تصویب کرد! از این به بعد ترامپ برای شروع جنگ نیاز به اجازه کنگره آمریکا داره @SportBaadNews
+</div>
+
+## SportBaadNews — post 251979
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251979_1779232942.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مجلس سنای آمریکا طرح مخالفت جنگ با ایران رو تصویب کرد! از این به بعد ترامپ برای شروع جنگ نیاز به اجازه کنگره آمریکا داره
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338016
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338016_1779232942.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای امنیت سازمان ملل به درخواست بحرین نشست اضطراری برگزار کرد تا حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی را بررسی کند.
+
+مریم رحمتی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338015
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338015" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: احتمال ابربحران بنزین و برق
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 14501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سنای آمریکا طرح محدودسازی اختیارات جنگی ترامپ علیه ایران را تصویب کرد 💢سنای آمریکا پس از ۷ تلاش ناموفق، طرحی را تصویب کرد که بر اساس آن ادامه هرگونه اقدام نظامی علیه ایران نیازمند مجوز کنگره خواهد بود. ▪️ این طرح با رأی ۵۰ موافق در برابر ۴۷ مخالف تصویب…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 01:39
 ---
 
