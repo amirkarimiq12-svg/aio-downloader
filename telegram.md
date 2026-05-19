@@ -7,6 +7,872 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 20:56
+---
+
+## ChizBergerz — post 46558
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46558_1779211608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲ سال پیش در چنین روزی ابرام رئیسی رو خرس خورد ولی خبرگزاری فارس میگفت نه زنده‌س :))) @ChizBergerz
+</div>
+
+## ChizBergerz — post 46557
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46557_1779211609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این وضعیتی که من میبینم بعید نیست خود خرزشیا موقع دفن موش‌علی روی جنازه‌ش نرقصن، مثل اینکه زیادی از مرگ موش‌علی خوشحالن
+💩😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46556
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑آی‌پی‌های جدید تست شده اپ شیر و خورشید برای همراه اول، یدونه کلیک کنید همش کپی میشه
+😐
+
+185.137.25.214
+94.130.70.160
+94.130.50.12
+104.81.104.13
+92.122.73.138
+104.81.108.51
+23.72.248.214
+104.126.37.185
+104.83.5.201
+92.122.166.141
+104.83.5.216
+104.81.108.10
+23.73.2.148
+185.143.232.122
+88.221.168.138
+92.122.166.175
+2.23.168.254
+2.23.168.250
+2.23.168.96
+2.21.239.29
+184.86.103.210
+23.36.162.202
+95.101.29.30
+2.23.170.80
+185.200.232.16
+2.16.245.188
+95.101.23.82
+185.200.232.34
+184.28.230.87
+2.16.19.136
+2.23.168.174
+50.7.5.83
+2.23.168.47
+
++ اگه وصل نشد چندبار روی حالت هواپیما بزارید و بردارید و تست کنید یاهم چند دقیقه بعد امتحان کنید✅
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46555
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46555_1779211611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلااااام درماندهههه
+جنازه‌ نجست توی یخچال جا ماندهههه
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46554
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46554_1779211611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شات وایرال شده از آموزش کار با اسلحه تو مساجد توسط فاطی کماندو‌ها:
+
++ با اینا میخواید با ارتش زمینی آمریکا بجنگید؟ سربازای آمریکایی همون لوله کلاش رو میکنن تو کص این فاطی کماندوها😂😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46553
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46553" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46552
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46552_1779211612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+ge29
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46550
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا این بی پدرومادرا هیچ‌کدوم شبیه آدم نیستن؟
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46549
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46549_1779211613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید مادرت یه جنده معمولیه که الان شده جنده پرو🙄
+‌‎
+کص ننت آقای حسام‌الدین آشنا
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46548
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46548_1779211613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر چی میکشیم از آه این میمونس که احمدی نژاد فرستاد فضا:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46547
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46547_1779211613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیرم تو این زندگی، من رفتم خودکشی کنم... ://///
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46546
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46546_1779211614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲ سال پیش در چنین روزی ابرام رئیسی رو خرس خورد ولی خبرگزاری فارس میگفت نه زنده‌س :)))
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71600
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71600_1779211615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕊️
+🚨https://x.com/omiddana19/status/2056784692498579890
+</div>
+
+## rodast_omiddana — post 71599
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71599_1779211615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 היום נפל חייל של צה״ל בדרום לבנון..בשם רוב העם האיראני, אני שולח תנחומים למשפחתו ולעם ישראל היקר.
+امروز یک سرباز ارتش اسرائیل در جنوب لبنان جان باخت..
+به نمایندگی از اکثریت مردم ایران به خانواده ایشان و مردم عزیز اسرائیل تسلیت میگم 
+🖤
+</div>
+
+## rodast_omiddana — post 71598
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71598_1779211615.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانال 12:
+در حال حاضر اقداماتی برای اطمینان از اجرای حمله‌ای بسیار گسترده به ایران در حال انجام است.
+</div>
+
+## rodast_omiddana — post 71597
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71597_1779211616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امید اهواز هی صدا انفجار میاد
+</div>
+
+## rodast_omiddana — post 71596
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71596_1779211616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ درباره جنگ با جمهوری اسلامی:
+"همه به من می‌گویند این موضوع محبوب نیست، اما من فکر می‌کنم بسیار محبوب است.
+زمان کافی برای توضیح جنگ به مردم ندارم. خیلی مشغول انجام آن هستم."
+</div>
+
+## rodast_omiddana — post 71595
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71595_1779211616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 بخشی از به اصطلاح هنرمندان پشت مرتضا نجفی را گرفتن نه بخاطر شخصیت نازل وی بلکه خودشونم کنسرت و نمایش قرار است داشته باشند و در حال بلیط فروشین..
+کلا در حال عادی سازین..
+</div>
+
+## rodast_omiddana — post 71594
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71594_1779211616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مریم عبدالهی، همسر رشید مظاهری:
+شوهرم در شرایطی سخت در سلول انفرادی زندان ارومیه نگهداری میشه
+</div>
+
+## rodast_omiddana — post 71593
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71593_1779211616.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 درود امید جون
+قزوین از دیروز پر شده از نیروی های امنیتی و یگان های ویژه نمیدونم چه خبره
+</div>
+
+## rodast_omiddana — post 71592
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71592_1779211616.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خبرنگار: ایران چند روز فرصت دارد که پای میز مذاکره بیاید؟
+ترامپ: دو یا سه روز. شاید جمعه، شنبه، یکشنبه. شاید اوایل هفته آینده. یک بازه زمانی محدود.
+</div>
+
+## rodast_omiddana — post 71590
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 خوش چشم:
+تا آخر هفته ترامپ بهمون حمله میکنه
+لینک یوتیوب:
+https://www.youtube.com/watch?v=tGCy-mXgznM
+</div>
+
+## KiriMohems — post 47778
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 ترامپ گامبو درباره ایران:
+تنگه هرمز متعلق به ایران نیست. این آب‌های بین‌المللی است
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸 عمو ترلامپ :
+
+دارم به ایران یه بازه زمانی چصکی میدم برای توافق، چون نمیتونیم بذاریم سلاح هسته‌ای داشته باشن
+شکی تو ذهنم نیست که اینا یه گوهی میخورن و ازش استفاده می‌کنن، هیچ شکی نیست،من با این دیوثا کار کردم. خیلی رادیکال و افراطی و کصکش تشریف دارن
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47776
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47776_1779211618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : ایران چه محبوب باشه چه نباشه، کرمم گرفته و باید انجامش بدم، چون نمیذارم دنیا زیر دست من منفجر بشه این اتفاق قرار نیست بیوفته ، بیلاخ داداش
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47775
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47775_1779211620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار : ایران چند روز فرصت داره که بیاد پای مذاکره؟
+
+ترامپ :
+دو سه روز، شاید تا جمعه، شنبه یا یکشنبه. وقت زیادی ندارن، چون نمی‌تونیم بذاریم سلاح هسته‌ای داشته باشن بیان بجاش کیرمون رو بگیرن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47774
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47774_1779211621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرنگار : چقدر به حمله به ایران نزدیک شده بودین؟
+
+ترامپ : کیر مون بیخ کونشون بود و فقط یه ساعت مونده بود، همه‌چی آماده بود... الان تقه زنی ما داشت انجام می‌شد.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : دارن خایمالی می‌کنن که توافق بشه
+
+امیدوارم کار به جنگ نکشه، ولی شاید مجبور بشیم یه ضربه سنگین و کیری دیگه هم بزنیم، خیلی زود می‌فهمید چی میشه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴راک‌استار باز هم عرِ گوزی کرده که جی‌تی‌ای ۶، ۲۸ آبان امسال منتشر میشه.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251913
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251913_1779211622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یامال با زید جدیدش دیده شده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251912
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251912_1779211623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادی کنیم از بازی رفت رئال و سیتی تو برنابئو فصل 2022/23 که قبل بازی پپ تو رختکن داشت سر بازیکنا داد میکشید و نکته های فنی رو بهشون میگفت ولی دیبروینه هدفون گذاشته بود، آهنگ گوش میداد و بازی میکرد و در نهایت هم تو پایان بازی بهترین بازیکن زمین شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251911
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251911_1779211623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم های ملی با بیشترین تعداد حضور در جام جهانی ها
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251910
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎با این وضعیت اینترنت، ربات تلگرام وینکوبت خیلی کاربردیه چون براحتی وارد سایت میشی.
+
+▪︎هم ثبت‌نامش سریع انجام میشه، هم کازینو رو داخل خود تلگرام میتونی بازی کنی و عملاً کل سایتو داخل ربات داری.
+▪︎پیش‌بینی، بازی، واریز، برداشت و همه‌چی همونجا انجام میشه و خیلی روون‌تره: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+</div>
+
+## SportBaadNews — post 251908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی کرج یه عروسی به طرز عجیبی بهم خورد! حالا داستان چی بوده؟ یه پسر شب عروسیش می بینه ۱۱ تا پسر جوون اومدن مراسمش و هیچکدوم رو نمی‌شناسه، هی از این و اون سوال می‌کنه می بینه کسی نمیشناستشون. خلاصه میره به دختره میگه تو اینارو می‌شناسی؟ میگه آره دوستای معمولی…
+</div>
+
+## SportBaadNews — post 251906
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری اتلتیک:
+فیفا ورود پرچم شیر و خورشید و هر پرچم غیر رسمی رو به استادیوم برای بازی های جام جهانی ممنوع کرد، فقط ورود با پرچم رسمی ممکنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش سردار آزمون به خط خوردن از لیست تیم ملی: موفق باشید! @Football3060
+</div>
+
+## SportBaadNews — post 251904
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251904_1779211624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⬆️
+🇪🇺| بیشترین پاس گل تو تاریخ لیگ قهرمانان اروپا:
+
+🇵🇹 کریستیانو رونالدو - 42 پاس گل
+🇦🇷 آنخل دی‌ماریا - 41 پاس گل
+🇦🇷 لیونل مسی - 40 پاس گل
+🇧🇷 نیمار جونیور - 33 پاس گل
+🇧🇷 وینیسیوس جونیور - 32 پاس گل
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251903
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251903_1779211625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گریه های نیمار بعد دعوت شدنش به تیم ملی برزیل در جام جهانی @SportBaadNews
+</div>
+
+## SportBaadNews — post 251902
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251902_1779211625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙
+⚽️ریاض محرز خطاب به ریو فردیناند:
+
+
+🔻مسی نصف هم‌تیمی هاشو برد اینتر میامی که یه چیزی ببره، ولی رونالدو نیازی به این کارا نداره. خودش داره با النصر قهرمان لیگ میشه، اونم بدون هیچ‌کدوم از بازیکنای سابق رئال مادرید. واسه همینم به‌نظرم GOAT واقعی رونالدوعه.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337968
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337968_1779211626.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی محمدنبی، سرپرست تیم ملی فوتبال در حاشیه تمرین تیم در آنتالیا درباره ویزای آمریکا گفت: «به احتمال زیاد تا ۱۰ روز آینده ویزاها صادر خواهد شد. به هر دلیلی اگر ویزای کسی صادر نشود یا دیر صادر شود، پلنی داریم که به موقع اعلام می‌کنیم.» به گفته او تیم ملی پنجشنبه به آنکارا می‌رود.
+
+🔹او گفت: «سیاسی‌کاری در فوتبال ممنوع است. فیفا به عنوان مرجع فوتبال در جهان قطعا سیاسی‌کاری نخواهد کرد و امیدواریم دنبال مسیر خودش باشد.»
+
+🔹نایب رییس فدراسیون فوتبال درباره جلسه تاج با دبیرکل فیفا، گفت: «فیفا سرش شلوغ است ولی یکسری موارد را محکم به آنها گفتیم که یادشان نرود. مهدی تاج موارد را محکم به دبیرکل فیفا گفته‌است.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337967
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337967_1779211626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایننشال‌تایمز در گزارشی نوشت تهران مجبور شده نفت خام را روی نفتکش‌های قدیمی ذخیره کند. این روزنامه با استناد به تصاویر ماهواره‌ای نوشت دست‌کم ۵۲ نفتکش در اطراف خارک و چابهار هستند.
+
+گفت‌وگو با همایون فلک‌شاهی، کارشناس نفت و انرژی در موسسه کپلر
+@iranintltv
+</div>
+
+## IranIntlTV — post 337966
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337966_1779211627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان اطلاعات داخلی آلمان هشدار داده جمهوری اسلامی ممکن است پس از پایان جنگ با اسرائیل و آمریکا، دامنه عملیات‌های امنیتی و تروریستی خود در اروپا را گسترش دهد.
+
+بر اساس گزارش اختصاصی یوراکتیو، سازمان اطلاعات داخلی آلمان (BfV) اعلام کرده تهدید علیه مراکز یهودی و اسرائیلی، مخالفان جمهوری اسلامی و افرادی که حکومت ایران آن‌ها را «خائن» می‌داند، همچنان در سطح بالایی قرار دارد.
+
+این نهاد امنیتی گفته شماری از افراد ساکن آلمان برای آموزش نظامی یا همکاری با نهادهای حکومتی به ایران سفر کرده‌اند و برخی از آن‌ها در ویدئوهای تبلیغاتی جمهوری اسلامی و بسیج ظاهر شده‌اند.
+
+در این گزارش همچنین به نگرانی سرویس‌های امنیتی اروپا از استفاده جمهوری اسلامی از شبکه‌های نیابتی، گروه‌های وابسته به جرایم سازمان‌یافته و نیروهای کم‌هزینه محلی برای انجام حملات اشاره شده است.
+
+به گفته منابع امنیتی، جمهوری اسلامی از مارس ۲۰۲۶ کارزاری با نام «حرکت أصحاب الیمین الإسلامیه» (HAYI) راه‌اندازی کرده که از طریق شبکه‌های اجتماعی اقدام به جذب نیرو در میان محافل طرفدار جمهوری اسلامی و جریان‌های افراطی شیعه می‌کند.
+https://iranintl.com/202605191606
+</div>
+
+## IranIntlTV — post 337965
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337965_1779211628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند مقام آمریکایی به نیویورک‌تایمز گفتند تصمیم ترامپ برای به تاخیر انداختن حمله به ایران، ممکن است عملیات فریب باشد و شاید او همچنان حمله‌های برنامه‌ریزی‌ شده را اجرا کند.
+
+ارزیابی نوید محبی، تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337964
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337964_1779211629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران‌اینترنشنال، وضعیت ایران و سیاست‌های حکومت را با دولت‌های کمونیستی مقایسه کرده و می‌گوید در این وضعیت میان خانواده پولدار و زیر خط فقر تفاوت چندانی نیست. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337963
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337963_1779211631.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد در بازه زمانی ۲۸ و ۲۹ اردیبهشت، هیچ حادثه‌ای در خلیج فارس و دریای عمان گزارش نشده است.
+
+با این حال، وضعیت امنیتی منطقه همچنان ناپایدار است و تهدید علیه کشتیرانی تجاری ادامه دارد.
+https://iranintl.com/202605197145
+</div>
+
+## IranIntlTV — post 337962
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻دو سال پس از سقوط بالگرد رئیسی، جمهوری اسلامی دیگر پناهگاه امنی ندارد
+
+دو سال پس از ناپدید شدن بالگرد ابراهیم رئیسی در مه و کشته شدن او در کوهستان‌های آذربایجان شرقی، جمهوری اسلامی فقط یک رییس‌جمهور را از دست نداده است، بلکه بخشی از طرح جانشینی، سپر منطقه‌ای، احساس امنیت و این باور را از دست داده که زمان همچنان به سودش حرکت می‌کند.
+
+بالگرد حامل رئیسی ۳۰ اردیبهشت ۱۴۰۳ سقوط کرد. گزارش نهایی جمهوری اسلامی علت حادثه را شرایط جوی منطقه و مه غلیظ اعلام کرد و احتمال هر‌گونه خرابکاری را رد کرد.
+
+سقوطی که به استعاره تبدیل شد
+
+تصویر این حادثه بیش از آن قدرتمند بود که صرفا یک سانحه باقی بماند: کاروانی از مقام‌های حکومتی در میان مه و دید محدود، ارتباط خود را از دست داد اما حکومت همزمان تلاش می‌کرد نشان دهد کنترل اوضاع را در دست دارد.
+
+مرگ رئیسی، بیش از آن‌که یک معمای امنیتی باشد، به استعاره‌ای از وضعیت جمهوری اسلامی تبدیل شد. رئیسی ایران را اداره نمی‌کرد. قدرت واقعی در اختیار علی خامنه‌ای، سپاه پاسداران، ساختار امنیتی و شبکه‌های منطقه‌ای جمهوری اسلامی بود. اهمیت رئیسی در این بود که قرار بود نماد «تداوم» باشد: چهره‌ای وفادار، تندرو، سختگیر و قابل پیش‌بینی. فردی که از او به‌عنوان یکی از گزینه‌های احتمالی جانشینی خامنه‌ای یاد می‌شد.
+
+او آینده جمهوری اسلامی نبود، بلکه تمرینی برای آینده‌ای بود که هرگز نرسید.
+
+در اردیبهشت ۱۴۰۳ این‌طور به نظر می‌رسید که حکومت هنوز طرح جانشینی، سپر منطقه‌ای و صبر لازم را برای فرسوده کردن دشمنانش در اختیار دارد. اما دو سال بعد، تقریبا همه ستون‌هایی که تهران را دست‌نیافتنی نشان می‌دادند، یا آسیب دیده‌اند یا فرو ریخته‌اند.
+
+از «عمق راهبردی» تا نقشه هدف
+
+شمارش معکوس عملا از زمان حمله هفتم اکتبر حماس به اسرائیل آغاز شد.
+
+آن حمله، شبکه منطقه‌ای جمهوری اسلامی را وارد جنگ کرد: حزب‌الله لبنان، شبه‌نظامیان عراق و سوریه و حوثی‌های یمن.
+
+این شبکه سال‌ها «عمق راهبردی» تهران نامیده می‌شد اما پس از هفتم اکتبر، همان عمق راهبردی به نقشه اهداف تبدیل شد.
+
+فروردین ۱۴۰۳، جمهوری اسلامی و اسرائیل از جنگ سایه‌ها وارد رویارویی مستقیم شدند و یک ماه بعد، بالگرد رئیسی در مه سقوط کرد.
+
+جمهوری اسلامی با مراسم عزاداری رسمی، تابوت‌ها، پرچم‌های سیاه و حضور فرماندهان و روحانیون، تلاش کرد پیام «تداوم» را منتقل کند، اما از آن پس، مراسم تشییع جنازه در جمهوری اسلامی معنای دیگری پیدا کرد و نه نمایش ثبات، که نشانه از دست رفتن افراد، شبکه‌ها و جغرافیایی شد که حکومت را محافظت می‌کردند.
+
+مرگ رئیسی انتخابات زودهنگام را به‌دنبال داشت و مسعود پزشکیان، با لحنی اصلاح‌طلبانه، پس از انتخاباتی با مشارکت پایین، رییس‌جمهور شد.
+
+جمهوری اسلامی چهره‌ای نرم‌تر پیدا کرد، اما مرکز قدرت تغییر نکرد.
+
+تهران دیگر پناهگاه نبود
+
+خیلی زود، نخستین تحقیر بزرگ دوران پسارئیسی نیز رخ داد.
+
+اسماعیل هنیه، رهبر سیاسی حماس، برای مراسم تحلیف پزشکیان به تهران رفت و ساعاتی بعد در پایتخت ایران کشته شد.
+
+این فقط گرفتن جان یک مقام حماس نبود، بلکه پیامی بود مبنی بر این‌که حتی پایتخت حامیان «محور مقاومت» نیز دیگر پناهگاهی امن نیست.
+
+مدتی بعد، انفجار پیجرها و بی‌سیم‌های حزب‌الله در لبنان و سوریه، ساختار ارتباطی این گروه را علیه خودش تبدیل به سلاح کرد و چند روز بعد حسن نصرالله، دبیرکل وقت حزب‌الله، در بیروت کشته شد.
+
+جنبشی که بر پنهان‌کاری و فرماندهی زیرزمینی بنا شده بود، هم از درون نفوذپذیر شد و هم از بیرون هدف قرار گرفت.
+
+پس از آن، یحیی سنوار، رهبر حماس در غزه، نیز کشته شد. حماس باقی ماند، حزب‌الله باقی ماند و شعارها همچنان ادامه یافت، اما محور جمهوری اسلامی، رهبران، مسیرها، قلمرو و اعتمادبه‌نفس خود را از دست داد.
+
+سقوط اسد و انتقال جنگ به داخل ایران
+
+شکاف عمیق‌تر با سقوط بشار اسد در آذر ۱۴۰۳ ایجاد شد.
+
+این فقط سقوط یک متحد جمهوری اسلامی نبود، بلکه جغرافیای قدرت ایران را هدف قرار داد؛ یعنی مسیر ارتباط با حزب‌الله، دسترسی به مدیترانه و ایده دوران قاسم سلیمانی مبنی بر تبدیل دولت‌های ضعیف به عمق راهبردی ایران.
+
+سرانجام خرداد ۱۴۰۴، جنگ به داخل ایران رسید.
+
+اسرائیل در جریان جنگ ۱۲ روزه، مراکز هسته‌ای و نظامی جمهوری اسلامی را هدف قرار داد و سپس آمریکا به مستحکم‌ترین بخش‌های برنامه هسته‌ای حکومت ایران حمله کرد.
+
+سال‌ها، ابهام هسته‌ای سپر دفاعی تهران بود، اما در سال ۱۴۰۴ همان سپر به میدان جنگ تبدیل شد.
+
+جمهوری اسلامی همچنان توانست سرکوب، زندان و ایجاد رعب را ادامه دهد، اما دیگر قادر نبوده است بخش بزرگی از جامعه را متقاعد کند که آینده‌ای در پیش دارد.
+
+🔗جزئیات بیشتر را در وبسایت ایران اینترنشنال بخوانید
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337961
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337961_1779211631.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۹ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337959
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337959_1779211633.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۲۹ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337958
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337958_1779211634.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با وجود آنکه از زمان انتصاب مجتبی خامنه‌ای به‌عنوان سومین رهبر جمهوری اسلامی، هیچ تصویر یا ویدیویی از او منتشر نشده، کانال تلگرامی منتسب به او پیامی منتشر کرد که در آن بر «لزوم افزایش جمعیت» و «ترویج فرهنگ فرزندآوری» تاکید شده است.
+در این پیام که در ادامه تلاش‌های مقام‌های جمهوری اسلامی برای تشویق ایرانیان به فرزندآوری و افزایش نرخ تولد منتشر شده، آمده است از جمله دستاوردهای جنگ ۴۰ روزه، برآمدن جمهوری اسلامی در «مُستَوای قدرتی بزرگ و تاثیرگذار» بوده است.
+در ادامه این پیام تاکید شده «استمرار این وضع» و رسیدن به «درجه مطلوب‌تر» از آن، «نسبت مستقیمی با مسئله جمعیت» دارد و ملت ایران با «پیگیری مجدانه سیاست صحیح و حتمی افزایش جمعیت» می‌تواند «جهش‌هایی راهبردی» را تجربه کرده و در مسیر «خلق تمدن نوین ایران اسلامی» گام بردارد.
+در این متن همچنین از «تلاش روزافزون فعالان حوزه جمعیت و ترویج فرهنگ فرزندآوری» تقدیر شده و موضوع افزایش جمعیت از «مهم‌ترین دغدغه‌های» علی خامنه‌ای، رهبر کشته شده جمهوری اسلامی و از مهمترین مسائل راهبردی نظام توصیف شده است.
+https://iranintl.com/202605191704
+</div>
+
+## IranIntlTV — post 337957
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337957" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | سه‌شنبه ۲۹ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337956
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337956_1779211634.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «با قطع اینترنت و به بهانه شرایط جنگی، با اعدام، زندان، بیکاری، سرکوب و احضار، در حال کشتن مردم در خاموشی کامل هستند. ما صدایی نداریم.»
+</div>
+
+## IranIntlTV — post 337955
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337955_1779211636.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بررسی‌های ایران اینترنشنال نشان می‌دهد که هشت عضو خانواده زرین قلم، مالکان چند صرافی، با تشکیل یک شبکه پولشویی به سپاه پاسداران در دور زدن تحریم‌ها کمک می‌‌کنند. دستکم سه عضو این خانواده در محله‌های فینچلی و کنری وورف لندن زندگی می‌‌کنند.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 337954
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337954_1779211637.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، اعلام کرد تحقیق درباره انفجار مدرسه دخترانه در میناب «پیچیده» است، چون این مدرسه روی یک سایت فعال موشک کروز جمهوری اسلامی قرار داشته است.
+جزییات بیشتر با مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337953
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337953_1779211639.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سایت اتلتیک گزارش داده فیفا ممکن است به درخواست فدراسیون فوتبال ایران مانع ورود پرچم شیر و خورشید به استادیوم‌های جام جهانی شود: «به گفته منبعی که مستقیماً در جریان برنامه‌ریزی‌های فیفا قرار دارد، فیفا قصد دارد حضور این پرچم را در ورزشگاه‌های خود در تابستان امسال ممنوع کند.»
+
+🔹اتلتیک از فیفا پرسید آیا به هواداران اجازه خواهد داد پرچم‌ها را، در اندازه مجاز از نظر الزامات امنیتی، وارد کنند یا پوشاکی با تصویر پرچم پیش از انقلاب بپوشند. فیفا در پاسخ، فهرست اقلام ممنوعه خود را بر اساس آیین‌نامه رفتاری ورزشگاه‌ها ارسال کرد.
+
+🔹ماده ۳.۱.۲۴ آیین‌نامه رفتاری ورزشگاه‌ها تصریح می‌کند: «هرگونه اقلام، از جمله بنرها، پرچم‌ها، تراکت‌ها، پوشاک و دیگر وسایل که ماهیت سیاسی، توهین‌آمیز یا تبعیض‌آمیز داشته باشند و شامل واژه‌ها، نمادها یا ویژگی‌هایی باشند که علیه یک کشور، فرد یا گروهی بر اساس نژاد، رنگ پوست، قومیت، منشأ ملی یا اجتماعی، هویت جنسیتی، معلولیت، زبان، مذهب، عقیده سیاسی یا هر عقیده دیگر، تولد، ثروت، گرایش جنسی یا هر وضعیت دیگری تبعیض ایجاد کند، ممنوع هستند.»
+
+🔹جزییات بیشتر را در سایت بخوانید
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337952
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337952_1779211640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت رییس‌جمهور چین به او قول داده که هیچ سلاحی به تهران ارسال نکند.
+
+ترامپ گفت: «برآورد ما این است که ۸۲ درصد از موشک‌هایشان از بین رفته است. توانایی آن‌ها برای تولید دوباره هم الان بسیار کم شده است.»
+
+او افزود: «در مورد پهپادها هم همین‌طور است؛ بخش عمده‌ای از توانشان از بین رفته، هرچند هنوز مقدار کمی ظرفیت دارند، اما خیلی ناچیز است.»
+https://iranintl.com/202605194006
+</div>
+
+## IranIntlTV — post 337951
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337951_1779211640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برد کوپر، فرمانده فرماندهی مرکزی ایالات متحده (سنتکام)، در جلسه‌ای در کنگره اعلام کرد این نهاد در ماه‌های اخیر، در کنار سایر ماموریت‌های منطقه‌ای، به‌طور مشخص با «تهدید فزاینده» جمهوری اسلامی نیز مواجه بوده است.
+
+او افزود بررسی ارتش آمریکا درباره بمباران مدرسه میناب پیچیده است، زیرا این مدرسه در محل یک پایگاه فعال موشک‌های کروز در ایران قرار داشته است.
+
+فرمانده سنتکام همچنین گفت جمهوری اسلامی از زمان برقراری آتش‌بس تاکنون ده‌ها نفر را اعدام کرده و هزاران بار به‌صورت عمدی غیرنظامیان را در خاورمیانه هدف قرار داده است.
+https://iranintl.com/202605196604
+</div>
+
+## IranIntlTV — post 337950
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337950_1779211641.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، با انتقاد از دموکرات‌ها، گفت آنها در تلاش‌اند تا مانع توافق او با حکومت ایران شوند. ترامپ همچنین با اشاره به اقدام نظامی علیه حکومت ایران گفت: «آنها برای ۴۷ سال قلدر خاورمیانه بودند» و تاکید کرد اگر از توافق هسته‌ای دولت باراک اوباما با جمهوری اسلامی خارج نمی‌شد، آنها به سلاح هسته‌ای دست پیدا می‌کردند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337949
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337949_1779211642.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت اگر جمهوری اسلامی به سلاح هسته‌ای دست پیدا می‌کرد، نخست به اسرائیل و سپس به عربستان سعودی، کویت، امارات متحده عربی، قطر و به‌نظر من به کل خاورمیانه حمله می‌کرد.
+
+او افزود در آن صورت شرایط کاملا متفاوت می‌شد و دیگر مذاکره‌ای در کار نبود، بلکه جهان با یک «فاجعه هسته‌ای» روبه‌رو می‌شد.
+https://iranintl.com/202605193635
+</div>
+
+## IranIntlTV — post 337948
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337948_1779211643.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله اخیر به نزدیکی نیروگاه هسته‌ای براکه در امارات، نگرانی‌های زیادی درباره امنیت زیرساخت‌های حیاتی در خلیج فارس ایجاد کرده است. نیروگاه براکه صرفا یک پروژه انرژی توصیف نمی‌شود؛ بلکه به‌عنوان بخشی از مدل اقتصادی و رویکرد آینده‌نگر امارات مطرح است.
+مهدی بیگی، عضو تحریریه ایران‌اینترنشنال، در «پیوست» به این موضوع می‌پردازد
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14485
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ علی‌حسین‌ قاضی‌زاده:
+
+فیفا قصد دارد ورود پرچم شیر و خورشید به استادیوم‌های جام‌جهانی را ممنوع کند.
+
+ج.ا. جام جهانی را به میدان جنگ حکومت و مردم بدل کرده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14484
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14484_1779211645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 سرپرست تیم‌ملی فوتبال:
+
+ممنوعیت بُردن هرگونه پرچم
+به غیر از پرچم ایران به ورزشگاه‌های جام جهانی درست است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14483
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14483_1779211646.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢دونالد ترامپ:
+
+💢تنگه هرمز متعلق به ایران نیست.
+
+💢این آب‌های بین‌المللی است این کار برای آنها نیست. آنها درس خود را گرفته‌اند.
+
+💢اگر امروز بروم، ۲۵ سال طول می‌کشد تا بازسازی کنند. اما ما نمی‌رویم، ما این کار را درست انجام خواهیم داد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14482
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14482_1779211647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ایران چند روز فرصت دارد تا پای میز مذاکره بیاید؟
+
+💢ترامپ: دو یا سه روز. شاید جمعه، شنبه، یکشنبه. شاید اوایل هفته آینده. یک بازه زمانی محدود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 18:00
 ---
 
