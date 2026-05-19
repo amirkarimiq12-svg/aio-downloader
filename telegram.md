@@ -7,6 +7,911 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 15:24
+---
+
+## ChizBergerz — post 46545
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46545_1779191668.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قال موش‌علی: دفن نخواهم شد و تشییع جنازه نخواهیم گرفت :)))
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46544
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46544_1779191668.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاش یه گربه تو خارج از ایران بودم تا اینکه یه ایرانی داخل ایران :///
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46543
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46543_1779191669.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعید نیست ترامپ چند روز دیگه‌ همچین توییتی بزنه: 😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46542
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46542_1779191670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخی دلم خنک شد. تا آخر ببینید :)))
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46541
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46541" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📲#اپلیکیشن اندروید سایت جهانی دربی بت
+
+👍اسپانسر لیگ انگلیس
+👍
+🔥امکان شارژ امن از طریق کارت بانکی
+➖➖➖➖➖➖➖➖➖
+
+🪙همین حالا عضو شوید 👇
+https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46540
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46540_1779191672.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+re29
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+aCbq7yy8QY80NzQ0
+</div>
+
+## ChizBergerz — post 46539
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46539_1779191672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه صرف نداره یدونه یدونه این حشریارو عقد کنن، بصورت گوسفندی گله‌وار عقدشون میکنن برن جهاد نکاح دسته جمعی کص بدن، جنده‌های دوزاری تشنه کیر!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46538
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46538_1779191674.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هعی...💔
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71576
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71576_1779191676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود امید جان پالایشگاه بندرعباس رو خالی کردن. تا اخر هفته جنگ شروع میشه
+</div>
+
+## rodast_omiddana — post 71575
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71575_1779191676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود امید جان
+پتروشیمی های عسلویه دارن همه رو میبرن سرکار که سپر انسانی بسازن
+</div>
+
+## rodast_omiddana — post 71574
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71574_1779191676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سلام شیراز صدای انفجار شدید نزدیک سایتها رو کوه میاد همشم میگن خنثی سازیه ولی مشکوکه انگار بوی جنگ میاد
+</div>
+
+## rodast_omiddana — post 71573
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71573_1779191676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سلام جناب دانا
+تا حالا در عرض ۱ ساعت ۳بار برقمون رفته
+نمیدونم چ خبره ولی مشکوکه
+جنوب غرب تهران
+</div>
+
+## rodast_omiddana — post 71572
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71572_1779191676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خبرگزاری مهر:
+شنیده شدن صدای انفجار در جزیره قشم
+ظهر سه شنبه شنیده شدن صدای انفجار در جزیره قشم از سوی ساکنان محلی گزارش شده است. بر اساس این گزارش، هنوز ماهیت این صداها مشخص نیست.
+هنوز هیچ‌یک از نهادهای رسمی درباره علت وقوع این صداها اظهارنظر نکرده‌اند، اما پیگیری‌ها برای کسب اطلاع از ماهیت انفجارها ادامه دارد.
+</div>
+
+## rodast_omiddana — post 71571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 بیرانوند و خداداد عزیزی میگن تیم ملی برای جمهوری اسلامیه
+لینک یوتیوب:
+https://www.youtube.com/watch?v=Z_tULq-NTh0
+</div>
+
+## rodast_omiddana — post 71570
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71570_1779191676.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 گویا در اندیمشک موشک خود رژیم در هنگام تست به شهر برخورد کرد و چند کشته و زخمی برجای گذاشته است..
+یعنی اینقدری که موشکهای شیعه تا امروز مردم ایران را به کشتن داده، آمریکا و اسرائیل را نداده..
+</div>
+
+## rodast_omiddana — post 71569
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71569_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود امید جان همین الان پالایشگاه بندرعباس تخلیه شد
+</div>
+
+## rodast_omiddana — post 71568
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71568_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨گور بابای بی بی سی
+خیالتون از عمو ترامپ راحت باشه
+</div>
+
+## rodast_omiddana — post 71567
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71567_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨قشم چنان لرزید خونمون که 12 تا امام شیعه رو فحش کشیدم
+چییییییی بوددد
+</div>
+
+## rodast_omiddana — post 71566
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71566_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امیدددد مطمعنم قشم زدن صدااییی بد جور
+</div>
+
+## rodast_omiddana — post 71565
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71565_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود‌امید‌جان‌همین‌الان‌قشم‌بد‌صدایی‌اومد
+</div>
+
+## rodast_omiddana — post 71564
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71564_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨قشم صدای انفجار پیاپی ولی با فاصله
+</div>
+
+## rodast_omiddana — post 71563
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71563_1779191677.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود امید جان ، پدافند ها هک شده
+</div>
+
+## rodast_omiddana — post 71562
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71562_1779191677.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬فرمانده سپاه ایذه میگه حمله آمریکا قطعی شده
+لینک یوتیوب:
+https://youtu.be/7OOt362V5rY?is=d0lAFee79NNpq5dh
+</div>
+
+## rodast_omiddana — post 71561
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71561_1779191678.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨شدت انفجار خیلیییی بود
+قبلا پایگاه نیرو دریایی سیرجان رو باسنگ شکن زدن،
+امروز دقیقا مثل همون انفجار رخ داد.
+</div>
+
+## rodast_omiddana — post 71560
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71560_1779191678.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨وال استریت ژورنال:
+ترامپ با وجود مذاکرات اخیر هنوز تمایل به حمله به ایران دارد
+</div>
+
+## rodast_omiddana — post 71559
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71559_1779191678.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨داش مرودشت انفجار بزرگی رخ داده
+</div>
+
+## KiriMohems — post 47760
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47760_1779191678.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#سخن_بزرگان
+
+الا ای وسعت چشمان تو مانند دریا
+بیا که کیر خود بهر کصت کردم محیا
+الا ای نام زیبایت مدام ورد زبانم
+بیا و این ممه هایت گذار اندر دهنم
+
+خواجه حافظ شیرازی خطاب به دوست دختر خود در اوج حشریت و شق شدگی
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47759
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47759_1779191679.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r29🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## KiriMohems — post 47757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هتل تاریخی عامری‌های کاشان به علت قانون کصشعر بی حجابی پلمپ شد
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار پشم ریزون در اندیمشک منبعی نوشته : یکی از مهمات پدافند جمهوری اسلامی خورد وسط شهر و چند نفر کشته و زخمی داشته و تو بازار فرش خیلی اوضاع خرابه و رد خون کف زمین دیده شده #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار پشم ریزون در اندیمشک
+
+منبعی نوشته : یکی از مهمات پدافند جمهوری اسلامی خورد وسط شهر و چند نفر کشته و زخمی داشته و تو بازار فرش خیلی اوضاع خرابه و رد خون کف زمین دیده شده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47754
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47754_1779191680.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پایان خایمالی و انتظار برای کارت ملی؛ صدور کارت‌های جدید تا آخر پاییز
+
+رئیس سازمان ثبت احوال کشور:
+
+تا پایان پاییز ۱۴۰۵ معوقات و ترکاری های کارت هوشمند ملی جبران میشه.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47753
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارشاتی از صدا انفجار وحشتناک در قشم
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47752
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47752_1779191680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عروسی های رزمایشی و کصکلکانه در معابر عمومی
+
+زوج های خایمال دوست داشتنی با تجهیزات جنگی عروسی شون رو برگزار میکنن و شاید هم شب زفاف هم آقایی تو سنگر پشت پدافند میشه و خانومی هم عین پهپان میاد روی توپ پدافند آقایی
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47751
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47751_1779191682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تالار شیشه‌ای رقیب حشری وال استریت روی کار آمد
+
+برای اولین بار از زمان شروع جنگ؛معاملات کصشعر بورس تهران امروز صبح پس از تعطیلی از سر گرفته شد.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47750
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47750_1779191683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هشدار کیرخری هواشناسی برای تهران؛ گوزش باد لوبیایی
+
+اداره کل هواشناسی استان تهران:
+از بعدازظهر سه‌شنبه (۲۹ اردیبهشت‌) تا چهارشنبه (۳۰ اردیبهشت‌) در نیمه جنوبی کون غربی، مناطق مرکزی و سرکیر ارتفاعات در بعضی ساعت‌ها وزش باد خیلی شدید و احتمال رخداد طوفان و در مناطق جنوبی، غربی و مرکزی گاهی خیزش یا انتقال گرد و خاک و عن و کاهش شعاع دید و کیفیت هوا دور از انتظار نیست.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارشاتی از فعالیت پدافند در شهرهای :
+یزد ، اصفهان ، مرودشت ، اهواز ، دزفول ، بوشهر ، اندیمشک ، شیراز
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47748
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47748_1779191683.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وبسایت ردیاب هزینه جنگ ایران:
+آمریکا پاره کرده و بیش از ۸۵ میلیارد دلار در طول ۷۹ روز برای عملیات نظامی خودش تو ایران هزینه کرده
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 251898
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251898_1779191684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+He’s back. Prince is back...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251897
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251897_1779191685.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇧🇷 رسسسسسسسسمی، لیست تیم ملی برزیل برای جام جهانی 2026 آمریکا 
+◀️ دروازه‌بان‌ها: آلیسون، ادرسون، وِوِرتون 
+◀️ مدافعان: الکس ساندرو، برِمر، ایبانه‌ز، داگلاس سانتوس، گابریل، دانيلو، مارکینیوس، لئو پریرا، وِسلی 
+◀️هافبک ها: فابینیو، لوکاس پاکتا، برونو گیمارش،…
+</div>
+
+## SportBaadNews — post 251896
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251896_1779191686.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یارو با هوش مصنوعی اومده اتفاقات تلخ فوتبالی که رخ دادن رو درست کرده...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251895
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251895_1779191688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇧🇷 رسسسسسسسسمی، لیست تیم ملی برزیل برای جام جهانی 2026 آمریکا 
+◀️ دروازه‌بان‌ها: آلیسون، ادرسون، وِوِرتون 
+◀️ مدافعان: الکس ساندرو، برِمر، ایبانه‌ز، داگلاس سانتوس، گابریل، دانيلو، مارکینیوس، لئو پریرا، وِسلی 
+◀️هافبک ها: فابینیو، لوکاس پاکتا، برونو گیمارش،…
+</div>
+
+## SportBaadNews — post 251894
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251894_1779191688.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️-
+⚽️|
+⚽️ باخت منچسترسیتی = قهرمانی آرسنال بعد از 22 سال
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251893
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251893_1779191688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+⚽️ فوووووری از رومانووووو: مارسکا به سیتی هیروی‌گووو @SportBaadNews
+</div>
+
+## SportBaadNews — post 251892
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺مورینیو نیومده شروع کرد
+رامون آلوراز: مورینیو رودری رو میخواد!
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337918
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337918_1779191688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دومین جلسه رسیدگی به پرونده متهمان حمله با چاقو به پوریا زراعتی، مجری تلویزیون ایران‌اینترنشنال، در حال برگزاری است. دادستان بریتانیا در نشست دوشنبه گفت «ناندیتو بادیا» و «جورج استانا»، دو متهم رومانیایی این پرونده، به‌عنوان عوامل نیابتی جمهوری اسلامی عمل کردند.
+گفت‌وگو با تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه فایننشال تایمز گزارش داد در پی محاصره دریایی آمریکا، صادرات نفت ایران به شرق آسیا متوقف شده و بخش قابل توجهی از نفت خام روی نفتکش‌های قدیمی در خلیج فارس ذخیره شده است.
+گفت‌وگو با آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337916
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337916_1779191690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مریم عبدالهی، همسر رشید مظاهری، با انتشار پستی در اینستاگرام از زندانی بودن دروازه‌بان پیشین استقلال و تیم ملی فوتبال ایران در سلول انفرادی زندان ارومیه خبر داد.
+
+🔹رشید مظاهری پس از کشتار معترضان از سوی جمهوری اسلامی در ۱۸ و ۱۹ دی، با انتشار ویدیویی در پنجم اسفند، علی خامنه‌ای را مسئول کشتار مردم معرفی کرده بود. پس از انتشار آن پست، هیچ خبری از وضعیت مظاهری منتشر نشد.
+
+🔹مریم عبدالهی در پستی که در اینستاگرام منتشر کرد، نوشت: «ماه‌هاست برای آزادی رشید می‌جنگم و پیگیر وضعیتش هستم، اما امروز فهمیدم او را به زندان مرکزی ارومیه و در شرایط بسیار سخت انفرادی منتقل کرده‌اند.»
+
+🔹او همچنین نوشت: «رشید همیشه برای حق ایستاد و اکنون هزینه همین ایستادگی را با حبس در انفرادی می‌دهد. اما این سکوت ظالمانه دیگر کافی است. از جامعه ورزش، رسانه‌ها و مردم وطن‌پرست می‌خواهم بیش از گذشته صدای رشید مظاهری باشند. ما فقط شفافیت و رسیدگی فوری و عادلانه می‌خواهیم. او برای حق ایستاد و من هم تا زمان آزادی‌اش با تمام توان کنار او می‌ایستم و عقب‌نشینی نمی‌کنم.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337915
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337915_1779191690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از گزارش رسانه‌ها درباره شنیدن صدای چند انفجار مهیب در جزیره قشم، معاون امنیتی استاندار هرمزگان اعلام کرد صدای انفجارهای شنیده‌شده ظهر امروز در جزیره قشم مربوط به خنثی‌سازی مهمات عمل‌نکرده بوده است.
+
+او در پایان افزود: «از مردم جزیره قشم می‌خواهیم به هیچ‌وجه نگران نباشند و به شایعات فضای مجازی توجه نکنند.»
+
+این در حالی است که در موارد مشابه، مقام‌های جمهوری اسلامی پیش از اجرای عملیات خنثی‌سازی مهمات عمل‌نکرده، نسبت به احتمال شنیده شدن صدای انفجار اطلاع‌رسانی می‌کردند، اما درباره عملیات امروز در قشم اطلاعیه قبلی منتشر نشده بود.
+https://iranintl.com/202605195385
+</div>
+
+## IranIntlTV — post 337914
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337914_1779191691.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «باورم نمی‌شود در قرن ۲۱، یک حکومت نزدیک به سه ماه است که اینترنت را به روی مردم قطع کرده، این موضوع برای هیچ سازمان بین‌المللی اهمیت ندارد؟»
+</div>
+
+## IranIntlTV — post 337913
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337913_1779191692.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی‌الله حیاتی، معاون امنیتی انتظامی استانداری خوزستان، ظهر سه‌شنبه اعلام کرد که صدای شلیک‌های شنیده‌شده در آسمان اندیمشک ناشی از «تست سامانه پدافند هوایی» بوده است.
+حیاتی گفت بر اثر سقوط یک پرتابه در منطقه‌ای مسکونی، چهار شهروند مجروح شده‌اند که به گفته او در وضعیت پایدار قرار دارند و هم‌اکنون در مراکز درمانی تحت مداوا هستند.
+او افزود: «با هوشیاری نیروهای مسلح و مدیریت استان، شرایط کاملا تحت کنترل است.»
+https://iranintl.com/202605193667
+</div>
+
+## IranIntlTV — post 337912
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337912_1779191693.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای انفجار در قشم در ظهر روز سه‌شنبه خبر دادند. خبرگزاری مهر گزارش داد که هنوز هیچ‌یک از نهادهای رسمی درباره علت وقوع این صداها اظهارنظر نکرده‌اند.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337911
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337911_1779191693.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۲۹ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337910
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337910_1779191695.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الی کوهن، وزیر انرژی و عضو کابینه سیاسی-امنیتی اسرائیل، گفت: «رهبر جمهوری اسلامی پنهان شده و تحت فشار است. محاصره هرمز اقتصاد ایران را به سمت فروپاشی می‌برد و اگر تهران برنامه هسته‌ای را از سر بگیرد، اسرائیل حمله خواهد کرد.»
+
+او افزود: «اسرائیل اجازه نخواهد داد جمهوری اسلامی به سلاح هسته‌ای نزدیک شود و برای حفظ برتری نظامی خود بیش از ۱۰۰ میلیارد دلار سرمایه‌گذاری خواهد کرد.»
+https://iranintl.com/202605196327
+</div>
+
+## IranIntlTV — post 337909
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337909_1779191695.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روزنامه نیویورک‌پست گزارش داد قیمت بلیت‌های جام جهانی ۲۰۲۶ به‌طور قابل توجهی کاهش یافته است.
+
+🔹بر اساس این گزارش، برگزارکنندگان جام جهانی در ایالات متحده، کانادا و مکزیک با استقبال کمتر از انتظار هواداران روبه‌رو شده‌اند و همین مسئله باعث افت قیمت بلیت‌ها شده است.
+
+🔹نیویورک‌پست نوشت برخی بلیت‌ها که پیش‌تر با قیمت‌های بسیار بالا عرضه شده بودند، اکنون با کاهش چشمگیر قیمت فروخته می‌شوند. نگرانی درباره هزینه بالای سفر، اقامت و حمل‌ونقل در شهرهای میزبان از جمله دلایل کاهش تقاضا عنوان شده است.
+
+🔹این گزارش همچنین به نگرانی مقام‌های فیفا درباره تصاویر ورزشگاه‌های نیمه‌خالی اشاره کرده و نوشته است برگزارکنندگان در تلاش‌اند با کاهش قیمت‌ها و طرح‌های تشویقی، فروش بلیت‌ها را افزایش دهند.
+
+🔹جام جهانی ۲۰۲۶ برای نخستین‌بار با حضور ۴۸ تیم برگزار خواهد شد و گستردگی جغرافیایی مسابقات، چالش‌های تازه‌ای برای هواداران ایجاد کرده است.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337908
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337908_1779191696.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی پیرصالحی، رییس سازمان غذا و دارو، هشدار داد افزایش قیمت دارو می‌تواند باعث نارضایتی عمومی شود و به همین دلیل بیمه‌ها باید پوشش بیشتری برای بیماران فراهم کنند.
+
+گفت‌وگو با منصوره حسینی‌یگانه، عضو تحریریه ایران‌اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337907
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337907_1779191698.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از اعضای شورای شهر زنجان هنگام تحصن کارگران برای درخواست افزایش حقوق، با خودروی دولتی از روی پای یک پارکبان معترض عبور کرد.
+
+گفت‌وگو با آیه دریس، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337906
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337906_1779191699.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه لفاظی‌های تهدیدآمیز مقام‌های حکومت، محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، گفت در صورت حمله مجدد دشمن، «با ابزارها و شیوه‌های جدید، جبهه‌های جدیدی را علیه آنها خواهیم گشود».
+
+او اضافه کرد: «جمهوری اسلامی محاصره‌پذیر و قابل شکست نیست.»
+https://iranintl.com/202605192299
+</div>
+
+## IranIntlTV — post 337905
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت آلکاتل اعلام کرد تعمیر کابل‌های اینترنت زیردریایی در خلیج فارس را به‌دلیل ناامنی و تهدیدهای سپاه پاسداران متوقف کرده‌ است. این شرکت تاکید کرد سپاه از اپراتورهای خارجی خواسته برای نگه‌داری این زیرساخت‌ها به جمهوری اسلامی هزینه حفاظت بپردازند.
+گفت‌وگو با علی‌حسین قاضی‌زاده، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337904
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337904_1779191699.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسال‌شده به ایران‌اینترنشنال، شعارنویسی در حمایت از شاهزاده رضا پهلوی را روی یکی از دیوارهای شهر کیش نشان می‌دهد.
+</div>
+
+## IranIntlTV — post 337903
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337903_1779191701.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت آلکاتل اعلام کرده تعمیر کابل‌های اینترنت زیردریایی در خلیج فارس را به‌دلیل شرایط ناامن و تهدیدهای منتسب به سپاه پاسداران متوقف کرده است. این تصمیم در حالی گرفته شده که موضوع تامین امنیت و هزینه حفاظت از زیرساخت‌های ارتباطی همچنان محل اختلاف با اپراتورهای خارجی است و نگرانی‌ها درباره اختلال در شبکه‌های اینترنتی و مالی در صورت آسیب به کابل‌ها افزایش یافته است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 337902
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337902_1779191702.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اسرائیل هیوم در گزارشی تحلیلی نوشت احتمال ازسرگیری جنگ میان جمهوری اسلامی و آمریکا بالاست. هم‌زمان، دونالد ترامپ، رییس‌جهوری آمریکا، در گفت‌وگو با نیویورک پست گفت پس از دریافت پاسخ اخیر تهران درباره مذاکرات، تمایلی به دادن امتیاز بیشتر به جمهوری اسلامی ندارد.
+جزییات بیشتر با اشکان صفایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337901
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337901_1779191703.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی، برنده جایزه ویژه هیات داوران مستند گلدن گلوبز شد. این مستند با استفاده از تصاویر آرشیوی، روایت وقایع پس از انقلاب ۵۷ تا امروز را با زندگی شخصی فیلمساز پیوند می‌دهد.
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیویورک‌تایمز: جمهوری اسلامی از فرصت آتش‌بس برای احیای توان موشکی خود استفاده کرد
+
+نیویورک‌تایمز گزارش داد جمهوری اسلامی در دوره آتش‌بس شکننده میان تهران و واشینگتن، بازسازی بخشی از توان موشکی خود را آغاز کرده و هم‌زمان برای احتمال ازسرگیری درگیری‌ها آماده می‌شود.
+
+بر اساس این گزارش، جمهوری اسلامی از این فرصت برای بازگشایی ده‌ها محل استقرار موشک‌های بالستیک که در جریان حملات هدف قرار گرفته بودند، استفاده کرده است.
+
+جابه‌جایی پرتابگرهای متحرک موشکی و تطبیق تاکتیک‌های نظامی برای دور تازه احتمالی جنگ نیز از دیگر اقدام‌های تهران عنوان شده است.
+
+یک مقام نظامی آمریکا به نیویورک‌تایمز گفت بسیاری از موشک‌های بالستیک جمهوری اسلامی در تاسیسات زیرزمینی عمیق در دل کوه‌های گرانیتی نگهداری می‌شدند و آمریکا در حملات خود عمدتا ورودی این مراکز را هدف قرار داده بود.
+
+به گفته او، فروریختن دهانه این تاسیسات باعث مدفون شدن آن‌ها شد، اما ساختار اصلی سایت‌ها از بین نرفت و اکنون حکومت ایران بخش قابل توجهی از این مراکز را دوباره بازگشایی کرده است.
+
+این مقام آمریکایی افزود تهران همچنین بسیاری از تسلیحات باقی‌مانده خود را جابه‌جا کرده و در میان مقام‌های جمهوری اسلامی این باور تقویت شده که می‌توانند در برابر آمریکا مقاومت کنند؛ چه از طریق بستن موثر تنگه هرمز، چه با حمله به زیرساخت‌های انرژی کشورهای خلیج فارس و چه با تهدید هواپیماهای آمریکایی.
+
+جمهوری اسلامی در انتظار جنگی کوتاه اما شدید
+
+نیویورک‌تایمز نوشت با وجود ادامه مذاکرات، مقام‌های جمهوری اسلامی خود را برای احتمال ازسرگیری حملات آماده کرده‌اند و هشدار داده‌اند در صورت وقوع جنگ تازه، هزینه سنگینی به همسایگان و اقتصاد جهانی تحمیل خواهند کرد.
+
+حمیدرضا عزیزی، پژوهشگر مسائل امنیتی ایران در موسسه آلمانی امور بین‌الملل و امنیت، به این روزنامه گفت مقام‌های جمهوری اسلامی در دور نخست جنگ، خود را برای یک درگیری طولانی‌مدت حدود سه ماهه آماده کرده بودند و به همین دلیل استفاده از موشک‌ها را محدود کردند تا بتوانند هفته‌ها حملات را ادامه دهند.
+
+اما به گفته او، اگر جنگ دوباره آغاز شود، رهبران جمهوری اسلامی انتظار یک نبرد «کوتاه اما بسیار شدید» را دارند؛ جنگی که می‌تواند با حملات هماهنگ به زیرساخت‌های انرژی ایران همراه باشد.
+
+به نوشته نیویورک‌تایمز، جمهوری اسلامی ممکن است در دور تازه درگیری‌ها روزانه ده‌ها یا حتی صدها موشک شلیک کند تا «محاسبات طرف مقابل را تغییر دهد».
+
+تهدید خلیج فارس و باب‌المندب
+
+این گزارش افزود که کشورهای عربی خلیج فارس در صورت آغاز دوباره جنگ، ممکن است با حملات شدیدتر به زیرساخت‌های انرژی خود روبه‌رو شوند. هدف قرار دادن میادین نفتی، پالایشگاه‌ها و بنادر نفتی، یکی از مهم‌ترین ابزارهای تهران برای وارد آوردن فشار بر اقتصاد جهانی توصیف شده است.
+
+نیویورک‌تایمز همچنین به افزایش تهدیدهای لفظی علیه امارات متحده عربی اشاره کرد و نوشت برخی مقام‌ها و تحلیلگران نزدیک به جمهوری اسلامی معتقدند امارات با میزبانی پایگاه‌های نظامی آمریکا، در حملات علیه حکومت ایران نقش داشته است.
+
+مهدی خراطیان، تحلیلگر نزدیک به نهادهای امنیتی جمهوری اسلامی، ماه گذشته گفته بود: «ما حتما باید امارات را به دوران شترسواری برگردانیم و می‌توانیم این کار را بکنیم. اگر لازم باشد، ابوظبی را اشغال خواهیم کرد.»
+
+این روزنامه همچنین نوشت جمهوری اسلامی ممکن است علاوه بر تنگه هرمز، بر تنگه باب‌المندب نیز فشار وارد کند. آبراهی راهبردی میان دریای سرخ و خلیج عدن که حدود یک‌دهم تجارت جهانی از آن عبور می‌کند و در نزدیکی مناطق تحت کنترل حوثی‌های مورد حمایت جمهوری اسلامی قرار دارد.
+
+به نوشته نیویورک‌تایمز، اگر تهران احساس کند کنترلش بر تنگه هرمز در خطر است، ممکن است تلاش کند آمریکا را هم‌زمان در دو جبهه دریایی درگیر کند.
+
+این گزارش در پایان افزود اگرچه حوثی‌ها وعده داده‌اند در صورت وقوع جنگ منطقه‌ای از تهران حمایت کنند، اما در دور قبلی درگیری‌ها واکنش محتاطانه‌ای نشان دادند. موضوعی که تحلیلگران آن را ناشی از نگرانی این گروه درباره کاهش ذخایر نظامی‌اش می‌دانند.
+
+🔗 وب‌سایت ایران اینترنشنال
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 337899
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337899_1779191705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران گزارش دادند حمید خانی، عضو پیشین سپاه پاسداران، در جریان ماموریت خنثی‌سازی بمب‌های عمل‌نکرده ناشی از حملات مشترک اسرائیل و آمریکا در تهران کشته شده است. بر اساس این گزارش‌ها، او به صورت داوطلبانه در بخش مهندسی قرارگاه خاتم‌الانبیا فعالیت می‌کرده است.
+
+جزئیات بیشتری درباره زمان دقیق حادثه و نحوه وقوع آن منتشر نشده است.
+https://iranintl.com/202605198404
+</div>
+
+## Persian_Trend_Official — post 14473
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14473_1779191705.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢برای ۸۱ روز، جمهوری اسلامی اینترنت را در ایران خاموش کرده تا صدای مردم را خفه کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14472
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14472_1779191706.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌ها از وقوع انفجار در دمشق 💢خبرنگار الحدث از وقوع یک انفجار با منشأ نامشخص در نزدیکی منطقه «باب شرقی» دمشق خبر داد. ▪️فارس مدعی شد انفجار ناشی از خودرو بمب گذاری شده بوده است. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش‌ها از وقوع انفجار در دمشق
+
+💢خبرنگار الحدث از وقوع یک انفجار با منشأ نامشخص در نزدیکی منطقه «باب شرقی» دمشق خبر داد.
+
+▪️فارس مدعی شد انفجار ناشی از خودرو بمب گذاری شده بوده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14470
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14470_1779191706.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢شنیده شدن صدای انفجار در جزیره قشم ▪️ظهر سه شنبه شنیده شدن صدای انفجار در جزیره قشم از سوی ساکنان محلی گزارش شده است. 🔹اخبار تکمیلی متعاقباً منتشر خواهد شد./خبرگزاری مهر 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14469
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14469_1779191707.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢شنیده شدن صدای انفجار در جزیره قشم
+
+▪️ظهر سه شنبه شنیده شدن صدای انفجار در جزیره قشم از سوی ساکنان محلی گزارش شده است.
+
+🔹اخبار تکمیلی متعاقباً منتشر خواهد شد./خبرگزاری مهر
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14468
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14468_1779191707.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ویدیویی منتسب به چوپان عراقی که از پرواز هواپیما های اسرائیلی منتشر کرد و به گفته رسانه ها پیش زمینه لو رفتن پایگاه مخفی اسرائیل در خاک عراق شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 12:26
 ---
 
