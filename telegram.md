@@ -7,6 +7,496 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 00:28
+---
+
+## ChizBergerz — post 46563
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46563_1779224335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیدوارم طوری بزننت که ذرات تن نجست هیچوقت پیدا نشه!
+
+#اژه‌ای_خونخوار
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71606
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*ترامپ: تا روز جمعه به رژیم وقت دادیم بعدش مجبوریم حمله کنیم
+*6 شب تا حمله بزرگ آمریکا به رژیم؟
+لینک یوتیوب:
+https://www.youtube.com/watch?v=2G3iOYx7gdk
+</div>
+
+## KiriMohems — post 47789
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نمیدونیم چه کونی میدن سرعتش سرویسی که میدن به کون جت وصله بدون قطعی رکورد دارن!
+
+ثبت سفارش از ربات
+👇
+@Mvp_paybot
+پشتیبانی:
+@MvpVPNIR
+
+
+
+تضمین میکنیم خایه میکنید از سرعت سرویسش و کیفیتش ضمانت کیری مهمه
+➕❤️
+</div>
+
+## KiriMohems — post 47788
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47788_1779224336.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پژمان اپستین جمشیدی به ۹۹ ضربه شلاق تعزیری محکوم شده است.
+
+#Helsinki
+@KiriMohemSport
+</div>
+
+## SportBaadNews — post 251966
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251966_1779224336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+🏆 |پرافتخارترین تیم های لیگ انگلیس:
+
+
+⚽️
+🥇- منچستر یونایتد: 20 قهرمانی
+
+⚽️
+🥇 - لیورپول: 20 قهرمانی
+
+⚽️
+🥈 - آرسنال: 14 قهرمانی 
+🆕
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من که میدونم قهرمانی امسال آرسنال بعد سه سال نایب قهرمانی همش بخاطر روح پاک این پسر بود ولی نمیتونم ثابت کنم...
+</div>
+
+## SportBaadNews — post 251964
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251964_1779224337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای اولین بار تو کریر خودش پپ گواردیولا دو فصل پشت سر هم رو بدون قهرمانی لیگ گذروند‌...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251963
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عارف جان، پاشو داداش، آرسنال پرمیرلیگ قهرمان شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 251962
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_251962_1779224338.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عارف جان، پاشو داداش، آرسنال پرمیرلیگ قهرمان شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251960
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251960_1779224338.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبر چمپم بزنین بعد
+</div>
+
+## SportBaadNews — post 251959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کصکش بزن اتمی رو که دیگه به آرزوم رسیدم
+</div>
+
+## SportBaadNews — post 251958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کصکش بزن اتمی رو که دیگه به آرزوم رسیدم
+</div>
+
+## SportBaadNews — post 251957
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اقاااام آرسنااااللللل
+</div>
+
+## SportBaadNews — post 251956
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسسسسسسسسس
+</div>
+
+## SportBaadNews — post 251954
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251954_1779224339.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ رسسسسسسسسسسسسسمی، دنیا به پایان رسید، آرسنال پس از 3 سال نایب قهرمانی پشت سر هم و پس از 22 سال قهرمان پریمیرلیگ شدددددد!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251953
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تمام شد
+</div>
+
+## SportBaadNews — post 251952
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل سیتی: WATCH
+</div>
+
+## SportBaadNews — post 251951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی دیگه میخوان
+</div>
+
+## SportBaadNews — post 251948
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هالندددددددددد
+</div>
+
+## SportBaadNews — post 251947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیتی زددددددد
+</div>
+
+## SportBaadNews — post 251946
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشماممممممم
+</div>
+
+## SportBaadNews — post 251945
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلگگللگلگلگلگلگلگلل
+</div>
+
+## SportBaadNews — post 251944
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلگگللگلگلگلگلگلگلل
+</div>
+
+## SportBaadNews — post 251943
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرموش دقیقه 94 تیرررررر زد
+</div>
+
+## IranIntlTV — post 338002
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338002_1779224339.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت‌الله ناصحی‌پور، معاون گردشگری اداره میراث‌فرهنگی، گردشگری و صنایع‌دستی کاشان، گفت کافه مجموعه تاریخی عامری‌ها به دلیل گزارش وقوع دو مورد رعایت نکردن حجاب اجباری پلمب شد. او افزود مراجع ذی‌ربط پس از دریافت گزارش‌ها، دستور پلمب را صادر و اجرا کردند.
+ناصحی‌پور گفت این کافه اقامتی و گردشگری که در یکی از بناهای شاخص تاریخی کاشان فعالیت می‌کرد، پس از طی روند قانونی و بررسی‌های انجام‌شده، مشمول برخورد و پلمب شد.
+خانه عامری‌ها از شناخته‌شده‌ترین بناهای گردشگری دوره قاجار در کاشان است و همواره مورد توجه گردشگران داخلی و خارجی قرار دارد.
+https://iranintl.com/202605195284
+</div>
+
+## IranIntlTV — post 338001
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338001_1779224340.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافائل گروسی، مدیرکل آژانس بین‌المللی انرژی اتمی در نشست ویژه شورای امنیت سازمان ملل درباره حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی هشدار داد که حمله مستقیم به این تاسیسات می‌تواند پیامدهای خطرناکی به همراه داشته باشد.
+
+مدیرکل آژانس بین‌المللی انرژی اتمی افزود: «حمله به تاسیسات هسته‌ای که برای اهداف صلح‌آمیز استفاده می‌شوند، غیرقابل قبول است.»
+
+نماینده بحرین در شورای امنیت سازمان ملل اعلام کرد که تهران مسیر تنش‌افزایی را در پیش گرفته و با هدف قرار دادن زیرساخت‌های منطقه، امنیت کشورهای منطقه را تهدید کرده است.
+
+او گفت: «هدف قرار دادن نیروگاه هسته‌ای براکه در امارات متحده عربی تحول خطرناکی است که صلح و امنیت را تهدید می‌کند.»
+
+همچنین نماینده یونان در شورای امنیت سازمان ملل حملات به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد و گفت نقض ایمنی هسته‌ای کاملا غیرقابل قبول است و منطقه توان تحمل موج گسترده‌تری از خشونت را ندارد.»
+https://iranintl.com/202605192527
+</div>
+
+## IranIntlTV — post 338000
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338000_1779224340.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست اضطراری شورای امنیت سازمان ملل به درخواست بحرین درباره بررسی حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی برگزار شد.
+
+گفت‌وگو با رضا گوهرزاد، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337999
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337999_1779224342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون رییس‌جمهور آمریکا، گفت واشینگتن در مذاکرات با جمهوری اسلامی به‌دنبال محدودیت‌های بلندمدت و پایدار بر برنامه هسته‌ای ایران است. جی‌دی ونس همچنین تاکید کرد آمریکا توافقی را که به ایران امکان دستیابی به سلاح هسته‌ای بدهد، نمی‌پذیرد.
+
+گفت‌وگو با علیرضا نامورحقیقی، تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337998
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337998_1779224343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور دیپلماتیک امارات، حملات ایران را تجاوز وحشیانه جمهوری اسلامی خواند و تاکید کرد سکوت و موضع خاکستری بعضی کشورها، خطرناک‌تر است و از آن‌ها به‌ خاطر حرکت به سمت میانجی‌گری انتقاد کرد.
+
+ارزیابی علی صدرزاده، تحلیلگر مسائل خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 337997
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337997_1779224345.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «یک رفاقت؛ از زندان وکیل‌آباد مشهد تا سن‌دیگو» ساخته اردوان روزبه و تولید ایران‌اینترنشنال، برنده جایزه نقره‌ای تلی ۲۰۲۶ شد. این مستند روایت دوستی مایکل وایت، کهنه‌سرباز آمریکایی و مهدی وطن‌خواه، فعال سیاسی در زندان وکیل‌آباد مشهد است.
+
+گفت‌وگو با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337996
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337996_1779224346.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت احتمال حمله دوباره آمریکا به ایران وجود دارد اما تصمیم نهایی هنوز گرفته نشده است. او افزود دستور حمله اخیر را در لحظات آخر متوقف کرده، چون مذاکرات با مشارکت چند کشور منطقه‌ای در حال پیشرفت است.
+
+ارزیابی جمشید برزگر، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337995_1779224347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رییس‌جمهور آمریکا گفت شاید ایالات متحده دوباره مجبور شود به جمهوری اسلامی ضربه بزند، هرچند هنوز درباره انجام این اقدام تصمیم قطعی نگرفته است. او افزود فقط یک ساعت پیش از دستور حمله به ایران، آن را عقب انداخته است.
+
+ارزیابی جمشید برزگر، روزنامه‌نگار و تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337994
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337994_1779224349.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نماینده آمریکا در شورای امنیت سازمان ملل اعلام کرد نیروگاه براکه در امارات متحده عربی یک تاسیسات هسته‌ای صلح‌آمیز است و واشینگتن هیچ‌گونه اغماضی در قبال تخلفات تهران در حوزه ایمنی هسته‌ای نخواهد داشت.
+
+نماینده آمریکا در شورای امنیت سازمان ملل گفت جمهوری اسلامی باید حملات نیروهای نیابتی خود به کشورهای همسایه را متوقف کند.
+https://iranintl.com/202605191886
+</div>
+
+## IranIntlTV — post 337993
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337993_1779224350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نوشین (طاهره) عرب‌نژاد، متولد ۲۱ دی ۱۳۶۶، دانش‌آموخته مدیریت و فعال در حوزه فیلم‌سازی بود.
+او شامگاه ۱۹ دی‌ماه، در پشت‌بام خانه و در حالی‌ که خانواده‌اش برای جشن تولدش آماده می‌شدند، هدف گلوله قرار گرفت. بر اساس گزارش‌ها، نیروهای مسلح مستقر در میدان معراج مشهد به سوی معترضان و خانه‌های اطراف تیراندازی کردند و چندین نفر را هدف قرار دادند. نوشین نیز در جریان این تیراندازی، با اصابت گلوله به قفسه سینه‌اش زخمی شد.
+خانواده او با اورژانس تماس گرفتند، اما آمبولانسی اعزام نشد و خانواده با کمک همسایگان او را به بیمارستان رضوی منتقل کردند. با این حال، تلاش‌ها برای نجات جان او بی‌نتیجه ماند.
+بر اساس این گزارش، پیکر نوشین پس از اعمال فشار، تهدید و گرفتن تعهد به خانواده تحویل داده شد و مراسم خاکسپاری او نیز با محدودیت برگزار شد. همچنین به خانواده گفته شده بود باید اعلام کنند که نوشین به دست «اغتشاش‌گران» کشته شده است.
+https://iranintl.com/202605191306
+</div>
+
+## IranIntlTV — post 337992
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337992_1779224350.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وکیل مدافع پژمان جمشیدی با تایید صدور حکم پرونده موکلش از سوی شعبه ۹ دادگاه کیفری یک استان تهران به ایسنا گفت: «رای پرونده موکلم امروز صادر و ابلاغ شد. حکم بدوی است و ظرف ۲۰ روز قابل اعتراض است. تا زمانی که حکم قطعی نشده محتوای رای را اعلام نمی‌کنیم.»
+
+🔹ساعتی پیش، سایت امتداد به نقل از شاکی پرونده پژمان جمشیدی خبر داد که حکم این پرونده صادر و به او ابلاغ شده است. به گفته او، پژمان جمشیدی به ۹۹ ضربه شلاق تعزیری محکوم شده است. شاکی پرونده گفته تمام مدارکی که به نفع او است در پرونده وجود دارد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337991
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337991" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: شاید آمریکا دوباره به جمهوری اسلامی ضربه بزند
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337990
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337990_1779224351.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد از زمان آغاز محاصره دریایی جنوب ایران، ۸۹ کشتی تجاری ناچار به تغییر مسیر شده‌اند.این نهاد افزود نیروهای سنتکام به اجرای کامل محاصره بنادر ایران ادامه می‌دهند و مانع ورود و خروج جریان تجارت از این کشور می‌شوند.
+https://iranintl.com/202605198290
+</div>
+
+## IranIntlTV — post 337989
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337989_1779224352.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال شرایط روانی و روحی جامعه را بد توصیف کرده و از بحران معیشتی روایت می‌کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 337988
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337988_1779224353.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رجب طیب اردوغان، رییس‌جمهور ترکیه، در تماس تلفنی با اورسولا فون در لاین، رییس کمیسیون اروپا، تاکید کرد که تنگه هرمز باید هرچه سریع‌تر بازگشایی شود و آنکارا برای حفظ آتش‌بس و دستیابی به صلح در درگیری‌های جاری منطقه تلاش می‌کند.
+https://iranintl.com/202605192411
+</div>
+
+## Persian_Trend_Official — post 14496
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14496_1779224354.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خضریان،عضو کمیسیون امنیت ملی مجلس:
+
+💢امیدوارم خبر سفر عراقچی به نیویورک برای مذاکره در خصوص تنگه هرمز دروغ باشد!
+
+💢چرا ما در خصوص موضوع تنگه هرمز باید در خاک دشمن مذاکره کنیم؟
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14495
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14495_1779224355.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در کست باکس:
+
+https://castbox.fm/vi/946964459
+
+
+نیاز به دانلود هیچ اپلیکیشنی ندارید، فقط کافیه لینک رو در مرورگر خودتون کپی کنید و فایل رو بشنوید
+</div>
+
+## Persian_Trend_Official — post 14494
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای : https://open.spotify.com/episode/1E7uxKoNvLatPFATA5y8Jc?si=j4CwM-EiQDaOyw4ByYHJZw
+</div>
+
+## Persian_Trend_Official — post 14493
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14493_1779224356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای :
+
+https://open.spotify.com/episode/1E7uxKoNvLatPFATA5y8Jc?si=j4CwM-EiQDaOyw4ByYHJZw
+</div>
+
+## Persian_Trend_Official — post 14491
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هواپیمای پیشرفته «E-2D» آمریکا بر روی آسمان خلیج فارس در حال گشت زنی است
+
+💢گزارش‌ها حاکی از آن است که یک فروند هواپیمای هشدار زودهنگام و کنترل هوایی «E-2D Hawkeye» متعلق به نیروی دریایی آمریکا در حال گشت زنی در خلیج فارس است.
+
+▪️ این هواپیما برای شناسایی اهداف هوایی و دریایی و مدیریت میدان نبرد استفاده می‌شود
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14490
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14490_1779224356.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ قاتل الهه حسین زاده با اذان صبح فردا اعدام می‌شود.
+
+استوری خواهر الهه: امشب، قصاص مرهم داغ خواهرم نمی شود... اما شاید کمی از بی عدالتی این دنیا کم کند. الهه جانم...
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 22:55
 ---
 
