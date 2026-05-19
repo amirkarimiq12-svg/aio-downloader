@@ -7,6 +7,626 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 18:00
+---
+
+## rodast_omiddana — post 71589
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71589_1779201001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سلام عمو امید
+پایگاه دریایی بوشهر حدود نیم ساعت پیش صدای انفجار اومد
+</div>
+
+## rodast_omiddana — post 71587
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71587_1779201001.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 امید جان تو مساجد شهرمون (شاهین دژ) دارن کار با کلاشینکف یاد میدن دو سه تا فاطی کماندو میخوان با دلتا فورس آمریکا بجنگن
+😂
+</div>
+
+## rodast_omiddana — post 71586
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71586_1779201002.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 دم آقای میرقادری و خودت گرم
+تکرار برنامه ات روی یاهست ، معتاد برنامتم❤️
+خداروشکر تو هر فرکانسی ملی تی‌وی وصله😁
+
+📡 فرکانس و مشخصات:
+کانال ملی تی وی Mellig Tv
+فرکانس: V 27500 10762
+روی دو ماهواره Yahsat/TurkamanALAm
+</div>
+
+## rodast_omiddana — post 71585
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71585_1779201002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 در سالگرد مرگ ابراهیم رئیسی یاد تیتر تسنیم و خبرگزاری فارس افتادم که نوشته بودند:
+"حادثه فرود سخت هلیکوپتر حامل رئیس جمهور"
+همچنین دلم برای خواندن دعای ندبه عرزشیا برای زنده بودن ابرام هم تنگ شده..
+</div>
+
+## rodast_omiddana — post 71584
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71584_1779201002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 امروز سالگرد خورده شدن ابراهیم رئیسی توسط آقا خرسه هست ولی مهمتر از آن سالگرد اعتبار خبرگزاری فارس میباشد که مدعی بود رئیسی با ماشین به سمت تبریز راه افتاده است...
+</div>
+
+## rodast_omiddana — post 71583
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 چرا ترامپ حمله امروز به رژیم را لغو کرد؟
+نگران نباشید قبل از دوشنبه عملیات آغاز میشه!
+لینک یوتیوب:
+https://www.youtube.com/watch?v=OdpqCqq9_Ys
+</div>
+
+## rodast_omiddana — post 71580
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71580_1779201002.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وال استریت ژورنال:
+"مقامات قطر، عربستان سعودی و امارات متحده عربی می‌گویند از هیچ حمله قریب‌الوقوعی به ایران مطلع نبوده‌اند"
+
+دیدید گفتم ترامپ دروغ میگه و روغن ریخته شده را نذر امامزاده کرده، او قبل از دوشنبه حمله خواهد کرد و با دروغ دیشبش درصدد کنترل قیمت نفت و البته جنگ روانی بیشتر با سران رژیم برآمده است..
+</div>
+
+## rodast_omiddana — post 71579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 حمله شمس الواعظین به هواداران پادشاهی در صداوسیما
+لینک یوتیوب:
+https://www.youtube.com/watch?v=3grw25HQRoA
+</div>
+
+## rodast_omiddana — post 71578
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71578_1779201003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری
+حمید خانی، عضو پیشین سپاه پاسداران، در جریان ماموریت خنثی‌سازی بمب‌های کار نکرده در تهران به هلاکت رسید..
+شادباش به ملت ایران
+</div>
+
+## rodast_omiddana — post 71577
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71577_1779201003.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود امید جان
+اسکله چابهار هم تخلیه شده امروز
+</div>
+
+## KiriMohems — post 47768
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47768_1779201003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بابک زنجانی ریده به پیام رسان های خارجی و از شبکه اجتماعی خودش به اسم «مای دات» رونمایی کرد تا کیری بر پیکره واتس اپ ، تلگرام و .... وارد کنه
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47767
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47767_1779201004.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاصل قالیباف و میرسلیم:
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47766
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47766_1779201004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرورای ویتوری کانفیگ یو پینگ 83 
+😘 ایپی ثابت بدون قطعی بدون هیچگونه ضریبی با ۱۰۰ درصد ضمانت و کف ترین قیمت ! 
+⚡️1G : 600 | 250T 
+⚡️3G: 900 | 750T 
+⚡️5G : 3.000 | 1.250T 
+⚡️10G : 6.000 | 2.399T 
+⚡️20G : 12.000 | 4.800T ثبت سفارش از ربات تحویل آنی: @ConfigYouBot…
+</div>
+
+## KiriMohems — post 47765
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47765_1779201005.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرورای ویتوری کانفیگ یو پینگ 83 
+😘
+ایپی ثابت بدون قطعی بدون هیچگونه ضریبی
+با ۱۰۰ درصد ضمانت و کف ترین قیمت !
+
+⚡️1G : 600 | 250T
+
+⚡️3G: 900 | 750T
+
+⚡️5G : 3.000 | 1.250T
+
+⚡️10G : 6.000 | 2.399T
+
+⚡️20G : 12.000 | 4.800T
+
+ثبت سفارش از ربات تحویل آنی:
+@ConfigYouBot
+پشتیبانی:
+@Config_You
+</div>
+
+## KiriMohems — post 47764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 نیویورک‌تایمز: اظهارات ترامپ درباره تعویق جنگ با ایران ممکنه کصشعر فریبنده باشه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47763
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47763_1779201006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♨️ فوری ، تخمی :هلیکوپتر حامل رئیسی تو راه تبریز دچار سانحه شد و سقوط کرد. #Helsinki @KiriMohem
+</div>
+
+## KiriMohems — post 47762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 زلزله‌ای به کلفتی ۴.۶ ریشتر و در سولاخ ۸ کیلومتری زمین، نورآباد در استان لرستان را انگشت کرد
+
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47761
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47761_1779201006.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این یارو با هوش مصنوعی اومده اتفاقات کیری و تلخ فوتبالی که رخ دادن رو درست کرده...
+
+#Denver
+@KiriMohemSport
+</div>
+
+## SportBaadNews — post 251901
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251901_1779201008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گریه های نیمار بعد دعوت شدنش به تیم ملی برزیل در جام جهانی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 251900
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251900_1779201010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇵🇹 رسسسسسسسسمی؛ لیست تیم ملی پرتغال برای جام جهانی 2026 آمریکا 
+◀️دروازه بان‌ها: دیوگو کاستا، خوزه سا، روی سیلوا، ریکاردو ویلهو 
+◀️مدافعین: دیوگو دالوت، متئوس نونس، نلسون سمدو، ژائو کانسلو، نونو مندس، گونزالو ایناسیو، رناتو ویگا، روبن دیاز، توماس آرائوخو…
+</div>
+
+## SportBaadNews — post 251899
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_251899_1779201010.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣🇵🇹 رسسسسسسسسمی؛ لیست تیم ملی پرتغال برای جام جهانی 2026 آمریکا
+
+
+◀️دروازه بان‌ها: دیوگو کاستا، خوزه سا، روی سیلوا، ریکاردو ویلهو
+
+
+◀️مدافعین: دیوگو دالوت، متئوس نونس، نلسون سمدو، ژائو کانسلو، نونو مندس، گونزالو ایناسیو، رناتو ویگا، روبن دیاز، توماس آرائوخو
+
+
+◀️هافبک‌ها: روبن نوس، ساموئل کاستا، ژائو نوس، ویتینیا، برونو فرناندز، برناردو سیلوا
+
+
+◀️مهاجمین: ژائو فلیکس، ترینکائو، فرانچسکو کونسیسائو، پدرو نتو، رافائل لیائو، گونزالو گودس، گونزالو راموس و کریستیاااانو رونالدووو
+
+🔴
+⚽️
+🏆 ‌ ‌ ‌کریستیانو رونالدو برای ششمین بار در جام جهانی حضور خواهد داشت
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 337939
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337939_1779201010.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دفاع امارات متحده عربی اعلام کرد در ۴۸ ساعت گذشته شش پهپاد را شناسایی و با آن‌ها مقابله کرده است.
+این وزارتخانه افزود این پهپادها از خاک عراق پرتاب شده بودند.
+
+روز یک‌شنبه نیز وزارت دفاع امارات متحده عربی از مقابله با سه پهپاد شلیک‌شده از مرزهای غربی خبر داد. بر اساس این گزارش، پدافند هوایی این کشور دو فروند از پهپادها را منهدم کرد، اما پهپاد سوم به یک ژنراتور برق در خارج از محدوده داخلی نیروگاه هسته‌ای براکه در منطقه الظفره اصابت کرد.
+https://iranintl.com/202605190960
+</div>
+
+## IranIntlTV — post 337938
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337938" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: تکرار چرخه جنگ، محاصره و مذاکره
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337937
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337937_1779201011.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دبیر کمیسیون انرژی مجلس اعلام کرد جیره‌بندی بنزین یارانه‌ای و افزایش نرخ بنزین آزاد از اول خرداد اجرا می‌شود. همچنین سهمیه ۵ هزار تومانی از کارت‌های سوخت حذف خواهد شد.
+گفت‌وگو با عطا حسینیان، روزنامه‌نگار اقتصادی و حوزه انرژی
+@iranintltv
+</div>
+
+## IranIntlTV — post 337936
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337936_1779201013.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق اطلاعات رسیده به ایران‌اینترنشنال، کریگ فورمن، شهروند بریتانیایی که همراه همسرش، لیندزی فورمن، ۱۷ ماه است در ایران زندانی‌اند، از ۱۰ روز پیش در زندان اوین، در اعتراض به محرومیت از تماس تلفنی، ملاقات با همسرش و دیدار با وکیل، اعتصاب غذا کرده و تنها آب، قند و نمک مصرف می‌کند.
+
+یک منبع آگاه از وضعیت این زندانیان به ایران‌اینترنشنال گفت آن‌ها پس از مصاحبه با بخش جهانی بی‌بی‌سی که در آن درباره دشواری شرایط بسیاری از ایرانیان سخن گفته بودند، از تماس تلفنی و ملاقات با یکدیگر محروم شدند و مقام‌های زندان حتی ملاقات با وکیل را نیز قطع کردند؛ موضوعی که باعث اعتصاب غذای کریگ فورمن شد.
+
+این منبع با اشاره به وضعیت جسمانی او گفت فورمن پس از ۱۰ روز اعتصاب غذا وضعیت مناسبی ندارد و افزود اعتراض او جدا از محرومیت از ملاقات و تماس به این است که با وجود مشاهده انتقال هم‌بندی‌هایش برای اجرای حکم اعدام، اجازه ندارد درباره آنچه در زندان دیده و شرایط خود سخن بگوید.
+
+به گفته این منبع، فورمن بارها گفته مقام‌های زندان و دستگاه قضایی به او «وعده‌های دروغ» می‌دهند و او نمی‌فهمد چرا باید «این همه دروغ» از مسئولان جمهوری اسلامی بشنود.
+</div>
+
+## IranIntlTV — post 337935
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337935_1779201013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌‌اینترنشنال می‌گوید: «مجبورم روزی سه بار بروم در صف پمپ بنزین تا بتوانم ۱۰ لیتر سوخت بگیرم. آن‌وقت در صداوسیما از گرانی بنزین و تورم در آمریکا و اروپا می‌گویند.»
+</div>
+
+## IranIntlTV — post 337934
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337934_1779201015.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا، اعلام کرد از متحدان واشینگتن خواسته شده با شدت بیشتری شبکه‌های مالی تهران را هدف قرار دهند.
+او گفت کشورهای اروپایی باید برای تحریم تامین‌کنندگان مالی جمهوری اسلامی، شناسایی شرکت‌های پوششی و صوری، بستن شعب بانکی و مقابله با نیروهای نیابتی تهران همکاری کنند.
+https://iranintl.com/202605191772
+</div>
+
+## IranIntlTV — post 337933
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337933_1779201016.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان بنادر عربستان سعودی سه‌شنبه اعلام کرد که «خط کشتیرانی سریع دریای سرخ» را در بندر صنعتی ملک فهد در ینبع راه‌اندازی کرده است تا روند جابه‌جایی بار را تسریع کند، زمان انتظار را کاهش دهد و کارایی لجستیکی در این بندر را افزایش دهد.
+
+این سرویس بنادر جده، ینبع، عین‌السخنه در مصر، و عقبه در اردن را به یکدیگر متصل می‌کند.
+
+ظرفیت این سرویس جدید ۱ هزار و ۱۰۰ کانتینر استاندارد است.
+
+بندر صنعتی ملک فهد، واقع در ینبع در ساحل دریای سرخ، یکی از بزرگ‌ترین بنادر برای بارگیری نفت خام و محصولات پتروشیمی در دریای سرخ است.
+
+عربستان سعودی برای جبران توقف تقریبا کامل تردد از طریق تنگه هرمز در جریان جنگ ایران، ارسال محموله‌ها از طریق ینبع را افزایش داده است.
+https://iranintl.com/202605197094
+</div>
+
+## IranIntlTV — post 337932
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337932_1779201016.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای امنیت سازمان ملل به‌درخواست بحرین نشست اضطراری برگزار می‌کند. موضوع این جلسه حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی و پیامدهای آن عنوان شده است.
+مریم رحمتی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 337931
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337931_1779201018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری آسوشیتدپرس با استناد به تصاویر ماهواره‌ای تایید کرد در جریان حملات علیه جمهوری اسلامی، نشت نفت در آب‌های خلیج فارس به سواحل جزیره شیدور سرایت کرده است. این خبرگزاری نوشت حمله به پالایشگاه لاوان عامل این آلودگی بوده است.
+
+در روزهای گذشته ویدیویی در شبکه‌های اجتماعی منتشر شد که در آن پرنده و خرچنگی بی‌جان پوشیده از نفت در ساحل جزیره دیده می‌شوند و مردی نیز ماهی مرده‌ای را نشان می‌دهد.
+
+تصاویر ثبت‌شده در ۱۰ آوریل توسط ماهواره با وضوح بالا و تحلیل‌شده از سوی آسوشیتدپرس نشان می‌دهد آتش‌سوزی پالایشگاه لاوان دو روز پس از حمله همچنان ادامه داشته است. همچنین لکه نفتی گسترده‌ای آب‌های اطراف را آلوده کرده و جزیره شیدور، که با نام محلی مارو نیز شناخته می‌شود، را دربر گرفته است.
+https://iranintl.com/202605199759
+</div>
+
+## IranIntlTV — post 337930
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337930_1779201019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارزار «سه‌شنبه‌های نه به اعدام» اعلام کرد زندانیان معترض به مجازات اعدام، سه‌شنبه ۲۹ اردیبهشت برای صدوبیست‌ویکمین هفته متوالی در ۵۶ زندان ایران دست به اعتصاب غذا زدند. این اقدام در شرایط تشدید موج اعدام‌ها و افزایش نگرانی‌های جهانی درباره وضعیت حقوق بشر در ایران انجام شد.
+
+در بیانیه این کارزار آمده است حکومت جمهوری اسلامی در هفته‌های اخیر، هم‌زمان با گسترش فضای امنیتی و حضور نیروهای وابسته به حکومت در خیابان‌ها، بر اجرای احکام اعدام نیز افزوده است.
+
+این کارزار، به اعدام عبدالجلیل شه‌بخش، زندانی سیاسی بلوچ، در زندان زاهدان و همچنین محمد عباسی، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، اشاره کرد و در بیانیه خود نوشت که حکومت با استفاده از مجازات اعدام، در پی «ایجاد ترس و وحشت در جامعه» است.
+
+کارزار «سه‌شنبه‌های نه به اعدام» تاکید کرد که اعدام صرفا یک مجازات قضایی نیست، بلکه «مهم‌ترین ابزار سرکوب و قتل حکومتی» است که برای وادار کردن جامعه به سکوت و تسلیم به کار گرفته می‌شود.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید
+https://iranintl.com/202605193847
+</div>
+
+## IranIntlTV — post 337929
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337929_1779201019.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام تصویری از یک ملوان نیروی دریایی آمریکا بر عرشه ناو هواپیمابر آبراهام لینکلن منتشر کرد که در حال عبور از دریای عرب نگهبانی می‌داد. سنتکام نوشت نیروهای این فرماندهی برای اطمینان از اجرای کامل مقررات، ۸۸ کشتی تجاری را تغییر مسیر داده و چهار کشتی را از کار انداخته‌اند.
+https://iranintl.com/202605194310
+</div>
+
+## IranIntlTV — post 337928
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337928_1779201020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سجاد دهقانی شامگاه ۱۹ دی، در شب تولدش، در سه‌راه برق بندرعباس بر اثر اصابت دو گلوله جان باخت. یک روز پیش از آن نیز، اجمین مسیحی، جوان ۲۷ ساله ارمنی، در میدان هفت‌حوض تهران با شلیک مستقیم کشته شد. شاهدان به ایران‌اینترنشنال گفته‌اند او در صف اول معترضان حضور داشت و پیش از اصابت گلوله شعار «آزادی» سر می‌داد.
+جزییات بیشتر با فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 337927
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337927_1779201022.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از شهروندان با ارسال پیامی به ایران‌اینترنشنال می‌گوید: «حکومت در جنگ ۱۲ روزه، ۲۰ روز اینترنت را قطع کرد. در خیزش ملی هم ۲۰ روز، و تا امروز ۸۰ روز است که مجددا نت را قطع کرده. یعنی در یک سال گذشته، چهار ماه است که نت نداریم.»
+</div>
+
+## IranIntlTV — post 337926
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337926_1779201023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از نمایش تعیین پهپاد شاهد به‌عنوان مهریه یک عروس در تلویزیون جمهوری اسلامی تا آموزش کار با سلاح به کودکان؛ مجموعه‌ای از تصاویر و برنامه‌های مرتبط با فضای جنگ، که واکنش گسترده کاربران شبکه‌های اجتماعی را به‌دنبال داشته است.
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+@iranintltv
+</div>
+
+## IranIntlTV — post 337925
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337925_1779201025.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تصویر رسیده به ایران اینترنشنال نشان می‌دهد یکی از هواداران آرسنال در بازی شب گذشته این تیم برابر برنلی، آخرین بازی خانگی توپچی‌ها در این فصل، تصویری از جاویدنام عارف جعفرزاده، هوادار سرسخت تیم فوتبال آرسنال، را که در جریان انقلاب ملی ایرانیان علیه جمهوری اسلامی کشته شد، به دست گرفته است.
+
+🔹پیش‌تر تصاویری منتشر شده بود که نشان می‌داد لوگوی باشگاه آرسنال روی سنگ مزار او حک شده است.
+
+🔹جاویدنام عارف جعفرزاده، ۳۴ ساله و اهل رشت، شامگاه ۱۸ دی ۱۴۰۴ در جریان اعتراضات مردمی هدف شلیک مستقیم گلوله به سر قرار گرفت و جان باخت.
+
+🔹کشته شدن این هوادار آرسنال در فضای هواداری این باشگاه در انگلستان بازتاب گسترده‌ای داشت. نورت‌بنکسی، هنرمند مشهور انگلیسی، گرافیتی جاویدنام جعفرزاده را در «تونل نورت‌بنکسی» در ورودی‌ استادیوم امارات نقاشی کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337924
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337924_1779201026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیران دارایی کشورهای عضو گروه ۷ که در پاریس گرد هم آمده‌اند، با انتشار بیانیه‌ای مشترک بر ضرورت بازگشایی تنگه هرمز تاکید کردند.
+
+آن‌ها همچنین بار دیگر بر تعهد خود به همکاری‌های چندجانبه برای مقابله با ریسک‌های پیش‌روی اقتصاد جهانی تاکید کردند.
+
+وزیران دارایی کانادا، فرانسه، آلمان، ایتالیا، ژاپن، بریتانیا و ایالات متحده اعلام کردند به حفظ ثبات بازارهای انرژی پایبند هستند و از تمامی کشورها خواستند از اعمال محدودیت‌های خودسرانه بر صادرات خودداری کنند.
+https://iranintl.com/202605194425
+</div>
+
+## IranIntlTV — post 337923
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337923" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | سه‌شنبه ۲۹ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 337922
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337922_1779201026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احمد بخشایش اردستانی، عضو کمیسیون امنیت ملی مجلس، در مصاحبه با ایلنا گفت: «من فکر نمی‌کنم آمریکا به ایران حمله کند، چرا که در حمله نظامی چیزی به دست نخواهد آورد؛ اما اگر حمله کند، به خارک و اصفهان حمله خواهد کرد.»
+
+او افزود: «حمله به اصفهان هم برای این است که آن ۴۰۰ کیلو اورانیوم را به دست بیاورد؛ چیزی که قبلا در دستیابی به آن ناکام ماندند.»
+
+اردستانی ادامه داد: «به اعتقاد من، وضعیت "نه صلح، نه جنگ" باقی خواهد ماند، چرا که آمریکا دنبال ناآرامی است و فکر می‌کند که وضعیت اقتصاد ایران با ادامه این وضعیت جامعه را به سمت ناآرامی جلو خواهد برد.»
+
+او تهدید کرد: «اگر این بار دشمنان به ما حمله کنند، ما به چاه‌ها و تاسیسات نفتی آنان حمله خواهیم کرد. اگر قرار باشد آنها کاری کنند که ما نفتی نداشته باشیم، به لوله‌هایشان حمله نخواهیم کرد؛ به چاه‌ها حمله خواهیم کرد تا آن‌ها هم نفت نداشته باشند و سوخت برای دنیا گران شود.»
+https://iranintl.com/202605197059
+</div>
+
+## IranIntlTV — post 337921
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337921_1779201027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سردار آزمون که پس از موضع‌گیری‌هایی در مخالفت با جمهوری اسلامی، از فهرست تیم ملی برای جام جهانی کنار گذاشته شد، با انتشار استوری‌ای در اینستاگرام نوشت که افرادی قصد دارند او را تخریب کنند.
+
+🔹سردار آزمون با انتشار تصویری از تیم ملی پیش از سفر به ترکیه نوشت: «درست است که پیشتان نیستم، ولی رفیق‌های من هستید، دلیل نمی‌شود که برای شما آرزوی موفقیت نکنم. خیلی‌ها می‌خواهند خرابم کنند، ولی این حرف‌ها اصلا درست نیست. موفق باشید بچه‌ها.»
+
+🔹سردار آزمون پیش‌تر در واکنش به کشتار معترضان از سوی جمهوری اسلامی در جریان سرکوب انقلاب ملی ایرانیان، با انتشار ویدیویی از تصاویر کشته‌شدگان در اینستاگرام نوشت: «این‌ها قصه نبودند، واقعی بودند. هیچ‌وقت شما را از یاد نمی‌بریم.»
+
+🔹او همچنین پس از حملات جمهوری اسلامی به امارات متحده عربی، تصویری از خود در کنار حاکم دبی منتشر کرد. پس از آن، رسانه‌های حکومتی و مجریان صداوسیما به او حمله کردند و در نهایت از تیم ملی کنار گذاشته شد. همچنین قوه قضاییه جمهوری اسلامی اموال او را مصادره کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337920
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337920_1779201027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید در قشم سوخت به بازار سیاه منتقل شده و مردم نمی‌توانند بنزین پیدا کنند.
+</div>
+
+## Persian_Trend_Official — post 14481
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای طراحی چند صفحه از وبسایت پرشین ترند به یک وردپرس‌کار حرفه‌ای، خوش‌سلیقه و سریع نیاز داریم. کار در فاز اول خیلی بزرگ و پیچیده نیست؛ فقط طراحی و آماده‌سازی ۲ تا ۳ صفحه اصلی مورد نیاز است: صفحه تماشای لایو و ویدیو صفحه آرشیو لایوهای قبلی صفحه معرفی جایگاه‌های…
+</div>
+
+## Persian_Trend_Official — post 14480
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14480_1779201029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای طراحی چند صفحه از وبسایت پرشین ترند به یک وردپرس‌کار حرفه‌ای، خوش‌سلیقه و سریع نیاز داریم.
+کار در فاز اول خیلی بزرگ و پیچیده نیست؛ فقط طراحی و آماده‌سازی ۲ تا ۳ صفحه اصلی مورد نیاز است:
+صفحه تماشای لایو و ویدیو
+صفحه آرشیو لایوهای قبلی
+صفحه معرفی جایگاه‌های تبلیغاتی و همکاری با اسپانسرها
+نیاز ما بیشتر روی ظاهر حرفه‌ای، طراحی تمیز، ریسپانسیو بودن برای موبایل و دسکتاپ، سرعت اجرا و سلیقه بصری خوب است.
+ترجیحاً کسی پیام بدهد که:
+تجربه طراحی سایت وردپرسی حرفه‌ای داشته باشد
+با طراحی صفحات رسانه‌ای، ویدیویی یا خبری آشنا باشد
+بتواند کار را سریع، حدوداً در یکی دو روز، جمع کند
+خوش‌قول، دقیق و قابل‌اعتماد باشد
+نمونه‌کار واقعی برای ارائه داشته باشد
+بتواند بدون قالب‌های شلوغ و سنگین، یک خروجی تمیز و سبک تحویل دهد
+این پروژه فعلاً فاز اول است و اگر همکاری خوب باشد، برای توسعه‌های بعدی سایت هم ادامه خواهد داشت.
+افرادی که تجربه و زمان کافی دارند، لطفاً نمونه‌کار، توضیح کوتاه از توانایی‌ها و حدود هزینه پیشنهادی‌شان را ارسال کنند.
+📩 برای هماهنگی پیام بدهید.
+
+@NickTARTARUS
+‌
+</div>
+
+## Persian_Trend_Official — post 14479
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14479_1779201029.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید در دنیای موازی 🤷‍♂️
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14478
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14478_1779201029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسی می‌دونه سردار سلامی کجاست؟؟؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 این انفجار در نزدیکی یکی از ساختمانهای وابسته به وزارت دفاع دولت «الجولانی» رخ داده است ▪️ منابع محلی گفتند پس از انفجار، صدای تیراندازی همچنان به گوش می‌رسد. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14476
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14476_1779201030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️تعلیق پروازهای بریتیش ایرویز به اسرائیل
+
+💢خطوط هوایی «بریتیش ایرویز» از لغو پروازها به اسرائیل تا یک اوت خبر داد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14474
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢زلزله ۴.۶ ریشتری در نورآباد لرستان
+
+💢زمین لرزه ۴.۶ ریشتری در عمق ۸ کیلومتری زمین نورآباد لرستان را لرزاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 15:24
 ---
 
