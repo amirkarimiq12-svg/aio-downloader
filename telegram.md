@@ -7,6 +7,556 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 17:48
+---
+
+## ChizBergerz — post 46584
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46584_1779286717.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه ویدیو ببینیم از سوتی های هلی‌خرسی به مناسبت سالمرگش: 😂😂
+
++ ولی خارکصده چه دلقکی بود😂😂
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71643
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71643_1779286720.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ الان:
+"نتانیاهو هر کاری را که او بخواهد انجام خواهد داد. واشنگتن یک فرصت کوتاه دیگر به تهران می‌دهد و خودش عجله‌ای ندارد. آمریکا برای باز شدن تنگه هرمز نیز عجله‌ای ندارد، اکنون خشم زیادی در ایران وجود دارد، زیرا مردم در شرایط بسیار بدی زندگی می‌کنند
+</div>
+
+## rodast_omiddana — post 71642
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71642_1779286720.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨  کمپین سرباز شاه هستم
+نه به کنسرت فرصت طلبان
+</div>
+
+## rodast_omiddana — post 71641
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71641_1779286721.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨  کمپین سرباز شاه هستم
+نه به کنسرت فرصت طلبان
+</div>
+
+## rodast_omiddana — post 71640
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71640_1779286723.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 گویا تفنگدارن آمریکا یه تمرین امروز انجام دادن
+تیک تاک
+</div>
+
+## rodast_omiddana — post 71639
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71639_1779286723.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨  کمپین سرباز شاه هستم
+نه به کنسرت فرصت طلبان
+</div>
+
+## rodast_omiddana — post 71638
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71638_1779286724.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کنسرت گزاران استرالیا کنسرت مرتضی نجفی را فعلا لغو کردند
+باید مابقی کنسرتها نیز لغو شود
+ما بر سر خون جاویدنامان شوخی نداریم
+</div>
+
+## KiriMohems — post 47814
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47814_1779286724.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : از نتانیاهو بخوام که هرکونی درباره ایران بده ، میده
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری اتلتیک:
+فیفا خایمال ورود پرچم شیر و خورشید و هر پرچم غیر رسمی رو به استادیوم برای سکس و لواطای جام جهانی ممنوع کرد، فقط ورود با پرچم رسمی ممکنه
+
+#Denver
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47811
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47811_1779286726.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لواط مجدد وزیران کشور جمهوری اسلامی و پاکستان در تهران
+
+سید محسن نقوی وزیر کشور پاکستان ، ظهر امروز کون رو تو تهران پهن کرد و با اسکندر مومنی لاس و گفت‌و‌گو کرد.
+
+این دومین با که این یارو تو این ده روز پاشده اومده تهران
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47810
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47810_1779286726.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴راست کردن قیمت لبنیات تا ۳۰ درصد
+
+انجمن صنایع فرآورده‌های لبنی: براساس مصوبه تخمی، قیمت هر کیلو شیر خام درِ دامداری با ۲.۳ درصد چربی ۶۰.۵۰۰ تومان اعلام شد و خیلی راحت میتونیم دم سولاخ مردم بمالیم
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47809
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47809_1779286727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r30🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## SportBaadNews — post 252008
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252008_1779286727.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ میگل سرانو: ژوزه مورینیو می‌خواد آلساندرو باستونی رو به عنوان مدافع وسط برای رئال مادرید تو این تابستون جذب کنه، اون گزینه محبوب مورینیو برای پست دفاع وسطه. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252007
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252007_1779286728.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴
+⚽️ ادیت تراز؛ ارزش دانلود برا منچستریا 10 از 10
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252006
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252006_1779286729.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+⚽️ کوپه: ژوزه مورینیو مورتن هولمند هافبک اسپورتینگ رو یه مهره کاملاً کلیدی و اساسی برای پروژه‌ش تو رئال مادرید میدونه. مربی خیلی دوسش داره و خیلی شدید میخوادش بیاد باشگاه. رئال مادرید هم به حرف مورینیو گوش میده و هرچی بخواد انجام میده.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252005
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252005_1779286730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ مسی به این شکل داره از تمرین پسرش تو آکادمی اینترمیامی لذت میبره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252004
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252004_1779286730.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂😂😂😂😂 @SportBaadNews
+</div>
+
+## SportBaadNews — post 252003
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252003_1779286731.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️
+⚽️ خوزه فلیکس دیاز: برناردو سیلوا میخواد این تابستون به رئال بیاد، اون قبلا هم خودشو به رئال پیشنهاد داده!
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338093
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338093_1779286731.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، اعلام کرد: هرجا لازم باشد می‌جنگیم و هرجا لازم باشد مذاکره می‌کنیم. ما کاملا در خدمت منافع نظام هستیم.
+
+عراقچی افزود که ارتباط و هماهنگی مستمر و روزانه میان وزارت خارجه و فرماندهان نیروهای مسلح در سطوح مختلف برقرار است.
+https://iranintl.com/202605208263
+</div>
+
+## IranIntlTV — post 338092
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338092_1779286732.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران با انتشار بیانیه‌ای در واکنش به تهدیدهای اخیر دونالد ترامپ، هشدار داد در صورت حمله دوباره آمریکا و اسرائیل به جمهوری اسلامی، دامنه جنگ از منطقه فراتر خواهد رفت. سپاه همچنین اعلام کرد «ضربات کوبنده» را در مکان‌هایی وارد می‌کند که به گفته این نهاد نظامی، طرف مقابل «تصورش را هم نمی‌کند.»
+گفت‌وگو با شایان سمیعی، کارشناس امنیت ملی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338091
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338091_1779286733.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شران هسکل، معاون وزیر خارجه اسرائیل، به بابک اسحاقی، خبرنگار ایران‌اینترنشنال، گفت جنگ اسرائیل با سپاه و ایدئولوژی افراطی است، نه با مردم ایران.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338090
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338090_1779286734.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت رویداد۲۴ گزارش داد یک مرد جوان مجرد از جنگ‌زدگان ساکن هتل لاله تهران، در روزهای ابتدایی جنگ و در پی فشار شدید روانی ناشی از جنگ، آوارگی و بی‌خانمانی خودکشی کرده و جان باخته است.
+
+بر اساس این گزارش، علیرضا رئیسی، معاون وزیر بهداشت، گفته بود وزارت بهداشت برای ارائه مشاوره‌های روان‌شناختی به آوارگان آمادگی کامل داشته، اما شهرداری تهران از ورود تیم‌های متخصص این وزارتخانه جلوگیری کرده است.
+
+در مقابل، محمد صاحب، مدیرکل سلامت شهرداری تهران، این صحبت‌ها را رد کرد و گفت پیشنهاد همکاری وزارت بهداشت «بسیار دیر» و پس از آتش‌بس ارائه شد؛ زمانی که به گفته او، شهرداری از قبل مقدمات خدمات‌رسانی را فراهم کرده بود.
+
+(به توصیه کارشناسان، اگر با فردی روبه‌رو شدید که از جملات یا عباراتی حاکی از افسردگی یا تمایل به پایان زندگی استفاده می‌کند، از او بخواهید با یک پزشک متخصص معتمد، نهادهای فعال در این زمینه یا فردی مورد اعتماد درباره نگرانی‌هایش صحبت کند. اگر خودتان به خودکشی فکر می‌کنید، در ایران می‌توانید با اورژانس اجتماعی با شماره ۱۲۳ تماس بگیرید.)
+https://iranintl.com/202605200313
+</div>
+
+## IranIntlTV — post 338089
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338089_1779286735.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، گفت: «در ایران خشم زیادی وجود دارد و ناآرامی بی‌سابقه‌ای شکل گرفته است و خواهیم دید چه اتفاقی می‌افتد.» او همچنین تاکید کرد درباره توافق محدود مرتبط با تنگه هرمز عجله‌ای ندارد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338088
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338088_1779286737.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره توافق با جمهوری اسلامی و موضوع تنگه هرمز گفت: «ما یک فرصت به این موضوع می‌دهیم. عجله‌ای ندارم. نمی‌خواهم افراد زیادی کشته شوند؛ ترجیح می‌دهم تعداد کمی کشته شوند.»
+
+او گفت در ایران خشم و ناآرامی زیادی وجود دارد زیرا مردم در شرایط بدی زندگی می‌کنند و باید دید چه اتفاقی می‌افتد.
+https://iranintl.com/202605201857
+</div>
+
+## IranIntlTV — post 338087
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338087_1779286737.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره جنگ‌طلبی جمهوری اسلامی می‌گوید که حملات اخیر سپاه پاسداران به امارات متحده عربی تجارت بوشهر در ایران را تحت تاثیر قرار داد و نابود کرد. پیام این مخاطب با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 338086
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338086_1779286739.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ تاکید کرد احتمال دارد آمریکا برای زدن ضربه‌ای بزرگ، بار دیگر به جمهوری‌اسلامی حمله کند. سپاه پاسداران در واکنش گفت: «با رهبران کفر می‌جنگیم و جنگ را به فراتر از منطقه می‌کشانیم.»
+
+مریم رحمتی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338085
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338085" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: آخرین رایزنی‌ها پیش از جنگ آخر
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338084
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338084_1779286741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس مجلس، در سومین پیام صوتی با اشاره به گذشت یک ماه از آتش‌بس گفت: «تحرکات آشکار و پنهان دشمن نشان می‌دهد که به موازات فشارهای اقتصادی و سیاسی از اهداف نظامی خود دست نکشیده و به دنبال دور جدیدی از جنگ و ماجراجویی جدید است.»
+او افزود: «ما از فرصت آتش‌بس به بهترین شکل برای بازسازی توان نظامی استفاده کردیم و امروز از چنان آمادگی برخورداریم که دشمن را شگفت‌زده خواهیم کرد.»
+https://iranintl.com/202605209885
+</div>
+
+## IranIntlTV — post 338083
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338083_1779286741.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آرسنال پس از ۲۲ سال قهرمان لیگ برتر فوتبال انگلستان شد. تصویر جاویدنام عارف جعفرزاده، ۳۲ ساله و اهل رشت که از هواداران آرسنال بود، به دست یک هنرمند انگلیسی روی دیوار ستاره‌های این تیم در شمال لندن نقش بست.
+
+🔹گفتگوی آیدین مقیمی، خبرنگار ایران‌اینترنشنال با دو هوادار آرسنال
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338082
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338082_1779286742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروفسور توماس جونو، استاد دانشگاه اتاوا و متخصص سیاست خارجی کانادا و خاورمیانه، در مصاحبه اختصاصی با ایران‌اینترنشنال می‌گوید رژیم جمهوری اسلامی پس از جنگ از جهات بسیاری ضعیف‌تر شده و زیرساخت‌های اقتصادی آن آسیب جدی دیده است.
+
+نسخه کامل این گفت‌وگو در یوتیوب:
+https://youtu.be/CydXSHBajSk
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 338081
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338081_1779286744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرگزاری مهر گزارش داد که چند باشگاه لیگ برتری با ارسال نامه‌ای به مسئولان فوتبال، تاکید کرده‌اند که به دلیل مشکلات مالی، توان ادامه رقابت‌ها را ندارند و خواستار پایان بیست‌وپنجمین دوره لیگ برتر شده‌اند.
+
+🔹مهر نوشت که این باشگاه‌ها شرایط اقتصادی و اجرایی خود را «بحرانی» توصیف کرده و نسبت به ادامه حضور در فصل جاری لیگ برتر ابراز تردید کرده‌اند. در این نامه‌ها، مشکلات مربوط به پرداخت قرارداد بازیکنان و کادر فنی، دشواری‌های حمل‌ونقل، محدودیت‌های زیرساختی و کاهش حمایت اسپانسرها از مهم‌ترین دلایل عنوان شده است.
+
+🔹پس از آغاز جنگ آمریکا و اسرائیل با جمهوری اسلامی، مسابقات لیگ برتر فوتبال برگزار نشد و فدراسیون فوتبال اعلام کرد که ادامه بازی‌ها پس از پایان دیدارهای تیم ملی در جام جهانی برگزار خواهد شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338080
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338080" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | چهارشنبه ۳۰ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338079
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338079_1779286744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی نیروی دریایی سپاه پاسداران در بیانیه‌ای اعلام کرد: «در شبانه‌روز گذشته، ۲۶ فروند کشتی اعم از نفتکش، کانتینر‌بر و سایر کشتی‌های تجاری با هماهنگی و تامین امنیت نیروی دریایی سپاه از تنگه هرمز عبور کردند.»
+
+در این بیانیه آمده است: «تردد از تنگه هرمز با کسب مجوز و با هماهنگی نیروی دریایی سپاه در حال انجام است.»
+https://iranintl.com/202605204827
+</div>
+
+## IranIntlTV — post 338078
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338078_1779286745.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، امیر بشیری چلکاسری، متولد ۱۹ دی ۱۳۸۵، در اعتراضات ۱۸ دی‌ماه در خیابان طالقانی رشت بر اثر شلیک گلوله جنگی نیروهای حکومتی به ناحیه دهان جان باخت. پیکر او در شب تولدش، به‌صورت شبانه در زادگاهش، چلکاسر رودبار، به خاک سپرده شد.
+https://iranintl.com/202605209846
+</div>
+
+## IranIntlTV — post 338077
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338077_1779286746.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه لفاظی‌های مقام‌های حکومت، محمدجواد ظریف، وزیر پیشین امور خارجه جمهوری اسلامی، گفت: «ما نیاز به تضمین از قول‌شکنان و پیمان‌شکنان نداریم. مردم و نیروهای مسلح ما بزرگ‌ترین تضمین برای ما هستند.»
+
+او ادامه داد: «آینده پر از فرصت است برای ایران تهدیدها هستند، اما تهدیدگران فهمیدند که با تهدید و قلدری و زورگویی نمی‌توانند این مردم را تسلیم کنند.»
+
+ظریف با تکرار سخنان علی خامنه‌ای، دیکتاتور پیشین ایران افزود: «دوران بزن در رو تمام شده است.»
+https://iranintl.com/202605203689
+</div>
+
+## IranIntlTV — post 338076
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338076_1779286746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻شاهزاده رضا پهلوی با جمعی از اعضای انجمن ورزشکاران ایرانی آزادی‌خواه دیدار کرد و آنها از تبعیض و فشارهای جمهوری اسلامی علیه ورزشکاران در ایران گفتند و دیدگاه‌های خود را با شاهزاده رضا پهلوی در میان گذاشتند.
+
+🔹میترا حجازی‌پور، سوشا مکانی، مجید فلاح، ابراهیم اسحاقی، طیب آزموده و بهناز آذر از جمله ورزشکارانی هستند که در این دیدار حضور داشتند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338075
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338075_1779286748.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ماه‌ها بی‌خبری از وضعیت رشید مظاهری، دروازه‌بان پیشین تیم فوتبال ایران، قوه قضاییه بازداشت او را تایید کرد. مظاهری پس از کشتار معترضان در دی‌ماه، با انتشار ویدیویی علی خامنه‌ای را «شیطان» توصیف کرده بود.
+گفت‌وگو با رها پوربخش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338074
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338074_1779286749.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازداشت پسر معصومه ابتکار و اعضای خانواده او توسط اداره مهاجرت آمریکا، در روزهای اخیر به یکی از موضوعات پربحث در شبکه‌های اجتماعی تبدیل شده است. پس از انتشار اظهارات عروس خانواده به آسوشیتدپرس درباره تلاش برای داشتن «یک زندگی عادی»، بسیاری از کاربران به تناقض میان سبک زندگی خانواده مقام‌های جمهوری اسلامی در خارج از کشور واکنش نشان داده‌اند.
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، از واکنش کاربران می‌گوید
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14528
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14528_1779286751.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم ویدیوی حمله پهپادی به یک نفتکش در تنگه هرمز را منتشر کرد
+
+
+بر اساس ادعای این رسانه:
+
+▪️ نفتکش قصد داشته بدون هماهنگی با مقام‌های ایرانی از تنگه هرمز عبور کند
+▪️ پهپادهای ایرانی این شناور را هدف قرار داده‌اند
+
+
+تاکنون هیچ منبع مستقل یا مقام بین‌المللی این ویدیو و ادعاهای مطرح‌شده درباره آن را تأیید نکرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14527
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14527_1779286753.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢حزب الله لبنان مجددا تصاویری از حمله با FPV به پرتاب گرهای گنبد آهنین را منتشر کرده است.
+
+▪️این امکان وجود دارد که لانچر ها ماکت بوده باشند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14526
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14526_1779286755.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ احتمالا بخشی از اینترنت زیر ساخت ها در حال اتصال است!
+
+💢بر اساس آماری که چارت های رادار کلادفلیر نمایش می دهند، طی ساعات گذشته پهنای باند اینترنت کشور افزایش چشمگیری داشته و احتمالا این بدین معناست که اینترنت دیتا سنتر های ایرانی در حال اتصال است.
+
+💢هنوز مشخص نیست این اقدام جهت شناسایی باگ های سیستم فیلترینگ و آپدیت فایروال هست یا احتمالا تا ساعات آینده شاهد وصل شدن بخشی از فیلترشکن های قدیمی در داخل ایران خواهیم بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14524
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14524_1779286755.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢رسانه‌های جمهوری اسلامی عکس‌هایی از مجتبی خامنه‌ای با ابراهیم رئیسی، رئیس‌جمهور سابق ، منتشر کردند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## officialrezapahlavi — post 1834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه کامل گفتگو در نشست آینده تکنولوژی ایران
+
+این نشست روز ۱۶ مه (۲۶ اردیبهشت) در محل دفتر مرکزی شرکت «اوبر» در شهر سان‌فرانسیسکو در ایالت کالیفرنیای آمریکا برگزار شد.
+
+@OfficialRezaPahlavi
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 15:05
 ---
 
