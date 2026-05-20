@@ -7,6 +7,254 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 02:20
+---
+
+## KiriMohems — post 47839
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47839_1779317434.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین قیمت نفت ۱۰۵.۰۹ دلار
+
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252038
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه دنیا تو عشق و حالن و در انتظار شروع جام جهانی ان تا ازش لذت ببرن بعد ما اینجا نشستیم هر روز چشم انتظار یه خبر خوبیم. حداقل این اینترنتای تخمی رو وصل کنید به فلاکت افتادیم بخدا
+</div>
+
+## SportBaadNews — post 252037
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252037_1779317435.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+◀️
+⚽️ امشب باشگاه بارسلونا جشن ویژه‌ای برای قهرمانی هاش تو این فصل برگزار کرده؛ جشنی که تو اون تمام بازیکنا به همراه همسران و نامزدهاشون و زیدی هاشون حضور پیدا کردن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252034
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252034_1779317436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چرا حس میکنم اصن به کیرتون هم نیست که اینترنت سه ماهه قطعه، دلار 180 تومنه، اینترنت طبقاتی اومده، دارید گیگی کم کم 200-300 تومن پول کانفیگ میدید، گوشت و مرغ کیلویی خدا تومن شده، تخم مرغ شونه ای 500 تومن، قیمت گوشی ها 5 برابر شده، تورم کمر داره میشکنه، کار کاسبی های آنلاین خوابیده و...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یامال و زیدی @SportBaadNews
+</div>
+
+## SportBaadNews — post 252031
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252031_1779317437.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎ اگه این روزا سایتا سخت لود میشن، ربات تلگرام وینکوبت خیلی کارو راحت کرده:
+👇
+
+
+🤖 @Wincobet_bot
+
+بدون اینکه از تلگرام خارج شی میتونی مستقیم وارد بخش بازی‌ها و کازینو بشی، پیش‌بینی ثبت کنی و حتی واریز و برداشت انجام بدی.
+▪︎حالت Mini App داخل تلگرامه و خیلی سبک‌تر و سریع‌تر باز میشه:
+👇
+
+
+🤖 @Wincobet_bot
+</div>
+
+## SportBaadNews — post 252030
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252030_1779317438.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| هاروی الیوت که اول فصل قرضی از لیورپول جدا شده بود و به استون ویلا پیوسته بود درحالی قهرمانی اروپایی کسب کرد که تیم سابقش این فصل یکی از بدترین فصول تاریخش رو گذروند و حتی موفق به کسب یک جام هم نشد!
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338166
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338166_1779317439.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم به نقل از منابع آگاه گزارش داد جلسه‌ای که چهارشنبه در کاخ سفید درباره ایران برگزار شد، به تنش انجامید، اما ترامپ در نهایت، خلاف نظر وزیران جنگ و خارجه و همسو با دیدگاه جی‌دی ونس و فرستادگان ویژه‌اش، ادامه مذاکرات با جمهوری اسلامی را تایید کرد.
+این روزنامه نوشت ارزیابی مارکو روبیو، وزیر امور خارجه، و پیت هگست، وزیر جنگ آمریکا، این بود که در این مرحله، بدون اعمال فشار قابل‌توجه، از جمله تهدید به حمله و تشدید تحریم‌های اقتصادی، نمی‌توان از جمهوری اسلامی امتیاز گرفت. در مقابل، ونس معتقد بود تازه‌ترین پیشنهاد تهران نشانه‌ای از انعطاف است و می‌تواند زمینه حرکت به سوی یک توافق اولیه را فراهم کند.
+منابع آگاه از این جلسه به اسرائیل هیوم گفتند که استیو ویتکاف و جرد کوشنر، فرستادگان ویژه دونالد ترامپ نیز در این گفت‌وگو از موضع ونس حمایت کردند.
+آنها پیش از این جلسه با رهبران عمان، قطر و عربستان سعودی گفت‌وگو کرده بودند.
+به نوشته این رسانه تنش در این جلسه زمانی شدت گرفت که ترامپ از ونس و فرستادگان انتقاد و آنها متهم کرد که رویکردشان به جمهوری اسلامی امکان می‌دهد زمان بخرد و به تصویر ایالات متحده و نهاد ریاست
+</div>
+
+## IranIntlTV — post 338165
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338165_1779317439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتشار قانون جدید طالبان درباره طلاق موجی از نگرانی درباره وضعیت حقوق زنان و احتمال تشدید کودک‌همسری در افغانستان ایجاد کرده است.
+
+براساس این قانون، سکوت یک دختر هنگام جاری شدن خطبه عقد، به معنای رضایتش برای ازدواج تلقی می‌شود.
+
+گفت‌وگو با راضیه دانش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338164
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338164_1779317441.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت در جمهوری اسلامی، با تایید آسیب دیدن بخشی از زیرساخت‌های انرژی جمهوری اسلامی در جریان حملات آمریکا و اسرائیل، از ناتوانی دولت در تامین و واردات بنزین خبر داد.
+
+گفت‌وگو با مهدی مصلحی، کارشناس بازار نفت
+@iranintltv
+</div>
+
+## IranIntlTV — post 338163
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338163_1779317442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنای آمریکا طرح پایان دادن به جنگ با ایران را با ۵۰ رای در برابر ۴۷ رای یک گام به پیش برد.
+
+رسانه‌ها این اقدام را ضربه‌ای سیاسی به دونالد ترامپ توصیف کرده‌اند.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338162
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338162_1779317444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «صف بنزین در بندرعباس، شهری که بخش بزرگی از بنزین کشور را تولید می‌کند، نشانه‌ای از شدت گرفتن کمبود بنزین و بحرانی عمیق‌تر از روایت‌ دولت است. در صورت گسترش جنگ و حمله به زیرساخت‌های انرژی، خطر شکل‌گیری ابر بحران بنزین و برق در کشور وجود دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338161
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338161" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: چهارمین جنگ یا توافق در آخرین لحظه؟
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338160
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338160_1779317445.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس گزارش داد دونالد ترامپ در گفت‌وگوی تلفنی با بنیامین نتانیاهو از کار میانجی‌ها روی یک «تفاهم اولیه» خبر داده که قرار است آمریکا و ایران آن را امضا کنند تا جنگ به‌صورت رسمی پایان یابد و دوره ۳۰ روزه مذاکرات آغاز شود.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر امور دفاعی و امنیتی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338159
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338159_1779317447.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش رسانه‌های ایران، چهارشنبه در پی تیراندازی سرنشینان مسلح یک خودروی پژو به خودروی نیروهای انتظامی در یکی از جاده‌های اطراف سراوان، یک نیروی نظامی به نام امیرحسین شهرکی و دو نفر از مهاجمان کشته شدند.
+بر اساس این گزارش‌ها، پس از این درگیری، سلاح، مهمات و یک دستگاه استارلینک کشف و خودروی مهاجمان توقیف شد. تلاش‌ها برای شناسایی و بازداشت دیگر مهاجمان ادامه دارد.
+
+https://iranintl.com/202605200267
+</div>
+
+## IranIntlTV — post 338158
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338158_1779317448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت ایران باید تنگه هرمز را باز نگه دارد. او با اشاره به شرایط دشوار زندگی در ایران افزود خشم و ناآرامی زیادی در کشور وجود دارد.
+
+همزمان آکسیوس گزارش داد تماس تلفنی ترامپ و نتانیاهو درباره جمهوری اسلامی پرتنش بوده است.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338157_1779317449.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «تشکیل تدریجی صف برای برخی کالاها، از جمله بنزین و نان، در شهرهای مختلف به مساله‌ای تازه در زندگی روزمره مردم تبدیل شده، صف‌هایی که نشانه کمبود و اختلال در تامین برخی کالاها پس از جنگ اخیر هستند. گزارش‌هایی از شهرهایی مانند اصفهان، مشهد، بندرعباس و اراک از طولانی شدن صف بنزین و نان و مشکلات تأمین بنزین و آرد خبر می‌دهد.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14564
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14564_1779317451.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️شبی پر از آرامش برای شما آرزومندم 🫶
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رائول کاسترو متهم به قتل شد 💢دادستان‌های فدرال آمریکا روز چهارشنبه اعلام کردند که علیه رائول کاسترو، رئیس‌جمهوری پیشین کوبا، به اتهام نقش داشتن در سرنگونی هواپیماهای غیرنظامی در سال ۱۹۹۶ پرونده کیفری تشکیل داده‌اند. این هواپیماها مورد استفاده تبعیدی‌هایی…
+</div>
+
+## Persian_Trend_Official — post 14562
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14562_1779317452.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رائول کاسترو متهم به قتل شد
+
+💢دادستان‌های فدرال آمریکا روز چهارشنبه اعلام کردند که علیه رائول کاسترو، رئیس‌جمهوری پیشین کوبا، به اتهام نقش داشتن در سرنگونی هواپیماهای غیرنظامی در سال ۱۹۹۶ پرونده کیفری تشکیل داده‌اند. این هواپیماها مورد استفاده تبعیدی‌هایی کوبایی‌تبار ساکن میامی در آمریکا بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14561
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14561_1779317453.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای : https://open.spotify.com/episode/4ZyN11ARn9PzPUowsFbzbh?si=w_I-pR9MRMyUKElfOPbe8Q
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 00:54
 ---
 
