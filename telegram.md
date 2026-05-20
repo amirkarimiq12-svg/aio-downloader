@@ -7,6 +7,389 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 05:05
+---
+
+## ChizBergerz — post 46571
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑آی‌پی‌های جدید تست شده اپ شیر و خورشید برای همراه اول، یدونه کلیک کنید همش کپی میشه
+😐
+
+2.188.21.240
+185.137.25.214
+50.7.5.85
+50.7.4.107
+50.7.4.244
+37.255.133.30
+142.54.178.211
+5.160.13.85
+81.91.145.2
+2.21.2.65
+50.7.4.243
+2.23.168.254
+2.23.168.47
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46570
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46570_1779240933.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لاقل یکم بهتر و منطقی تر با هوش‌مصنوعی عکس بسازید، صف دوم بخوان سجده کنن که باید برن تو کون صف اولی‌ها😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46569
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46569_1779240934.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اول که گفتن ما استاد جنگ دریایی هستیم، کل نیرو دریایی‌شونو رو فرستادن کف دریا، بعد گفتن نیرو هوایی داریم، اونم نابود کردن، حالا استاد رزم زمینی شدن
+💩😂
+
+حالا چطور زیر برتری مطلق هوایی طرف مقابل اینا می خوان تانک و توپشون رو حرکت بدن؟ با تاک‌تیک‌های ناشناخته ژنرال محسن رضایی؟😂😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46566
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46566_1779240934.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چند روزیه این چالش که منشاءش روسیه هست تو اینستا ترند شده و کلا اکسپلورو باز میکنی کون میپاچه رو صورتت!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46565
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46565_1779240936.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+6 ما دیگه تا انتشار GTAVI باقی مونده...
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46564
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46564_1779240938.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شانس من اگه بخوام پارتی بازی کنم:
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71624
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71624_1779240939.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨تبریز 3 و نیم صدای پدافند اومد !!
+</div>
+
+## rodast_omiddana — post 71623
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71623_1779240939.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امید داش پدافند تبریز فعال شد ۱۰ ۱۲ تا صدا شنیدم از دور
+</div>
+
+## rodast_omiddana — post 71622
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71622_1779240940.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درسته سالها دورم از بازیهای سیاسی ولی شیر هر چقدرم پیر شده باشه بازم شیره آقای کَرکَس..
+</div>
+
+## rodast_omiddana — post 71621
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71621_1779240940.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کمپین سرباز شاه هستم
+نه به کنسرت فرصت طلبان
+</div>
+
+## rodast_omiddana — post 71620
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71620_1779240942.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 دوستان خیلی ویدیو برای کمپین
+"سرباز شاه هستم، نه به کنسرت فرصت طلبان"
+برام ارسال شده ولی چشمام دیگه باز نمیشه باید برم بخوابم
+فردا همه ویدیو ها را تا برسم منتشر میکنم..
+</div>
+
+## rodast_omiddana — post 71619
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71619_1779240942.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امید جان سلام
+ساعت 14:47 به مدت 5تا8ثانیه خونه لرزید‌ تهران
+</div>
+
+## rodast_omiddana — post 71618
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71618_1779240942.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 بندرعباس میگن زلزله شدیدی الان آمد_مشکوکه
+</div>
+
+## rodast_omiddana — post 71617
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71617_1779240943.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کمپین سرباز شاه هستم
+نه به کنسرت فرصت طلبان
+</div>
+
+## rodast_omiddana — post 71616
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71616_1779240945.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کمپین سرباز شاه هستم
+نه به کنسرت فرصت طلبان
+</div>
+
+## rodast_omiddana — post 71615
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71615_1779240947.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کمیپن #سرباز_شاه..
+آغاز به کار کمپین من سرباز شاهزاده رضا پهلوی هستم و بنا بر گفته ایشان خط قرمز ایران است..
+در کلیپ کوتاه بگید سرباز شاهزاده هستید و اجازه نمیدهید با نام ایشان کنسرت بزارند و پا رو خون جاویدنامان بزارند..
+</div>
+
+## KiriMohems — post 47793
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47793_1779240949.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤میخوای از پیش بینی فوتبال و شرط بندی پول دربیاری ؟!
+
+
+⚠️پس همین الان وارد کانال عمو بت باز شو
+چون بهت اموزش میده چطور پول دربیاری
+❗️
+
+اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی پس از دستش نده و عضو شو امار سوداش چک‌کن
+😍
+
+
+💵عمو قدیمی کاره و خاک این کارو‌خورده کنارش باش و حرفه ای پول دربیار
+💵
+A29🅰
+
+👍ادرس عضویت کانال vip:
+https://t.me/+8LLMpXUfhW43ZjVk
+https://t.me/+8LLMpXUfhW43ZjVk
+</div>
+
+## IranIntlTV — post 338021
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338021_1779240951.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مستند «یک رفاقت از زندان وکیل‌آباد مشهد تا سن‌ دیگو» تهیه شده از سوی شبکه ایران‌اینترنشنال به کارگردانی اردوان روزبه، در بخش مستند و تحلیل سیاسی تلویزیونی برنده جایزه تلی سال ۲۰۲۶ شد.
+جایزه تلی یک رقابت بین‌المللی در حوزه تولیدات ویدیویی، تلویزیونی، تبلیغات و محتوای دیجیتال است که از سال ۱۹۷۹ میلادی برگزار می‌شود و داورانی از شرکت‌هایی بزرگ مثل نتفلیکس و اچ.بی.او، هزاران اثر ارسالی را بررسی می‌کنند.
+مستند «یک رفاقت: از زندان وکیل‌آباد مشهد تا سن‌ دیگو» امسال در رقابت با ۱۳ هزار اثر از از سراسر جهان برنده جایزه شد.
+این مستند روایتگر داستان واقعی و غیرمنتظره دوستی میان مایکل وایت، کهنه‌سرباز آمریکایی، و مهدی وطن‌خواه، فعال سیاسی ایرانی است؛ دو زندانی که در بند عمومی زندان وکیل‌آباد مشهد با یکدیگر آشنا شدند.
+مایکل وایت در سال ۲۰۱۸ پس از سفر به ایران بازداشت شد و در بازداشتگاه‌های امنیتی جمهوری اسلامی تحت بازجویی‌های سنگین، شکنجه روانی و فشار برای اعتراف اجباری قرار گرفت. او بعدها روایت کرد که بازجویان تلاش داشتند او را وادار کنند اعتراف کند برای آمریکا و اسرائیل جاسوسی می‌کرده است.
+
+https://iranintl.com/2026051
+</div>
+
+## IranIntlTV — post 338020
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338020_1779240952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین‌لرزه‌ای به بزرگی ۴.۷ حوالی ساعت ۳:۱۲ بامداد چهارشنبه لافت در استان هرمزگان را لرزاند. این زلزله در قشم و هرمز و مناطق روستایی بندرعباس نیز احساس شد.
+https://iranintl.com/202605203241
+</div>
+
+## IranIntlTV — post 338019
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338019_1779240952.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما روز ۲۹ اردیبهشت‌ماه، در برنامه «سلام صبح بخیر»، از تندیس «مشت گره‌کرده» علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، به‌عنوان نماد جدید میدان انقلاب تهران رونمایی کرد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338018
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338018_1779240953.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی در کاخ سفید گفت: جمهوری اسلامی «قرار نیست به سلاح هسته‌ای دست پیدا کند. نمی‌توانند سلاح هسته‌ای داشته باشند. ما نمی‌توانیم چنین چیزی را تحمل کنیم و آن را تحمل نخواهیم کرد.»
+او گفت: «ما نیروی دریایی جمهوری اسلامی را نابود کردیم. نیروی هوایی آنها از بین رفته است. سامانه‌های پدافند هوایی آنها از بین رفته است. تمام تجهیزاتی که برای جنگ استفاده می‌کردند از بین رفته است. تقریبا همه چیز از بین رفته است.»
+ترامپ افزود: «نمی‌خواهم بگویم رهبران آنها از بین رفته‌اند، چون بیان آن چندان خوشایند نیست، اما واقعیت همین است.»
+https://iranintl.com/202605197914
+</div>
+
+## IranIntlTV — post 338017
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338017_1779240954.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی در کاخ سفید گفت: «ما جنگ ایران را خیلی سریع پایان خواهیم داد. آنها به شدت می‌خواهند توافق کنند. از این وضعیت خسته شده‌اند. این موضوع باید ۴۷ سال پیش حل می‌شد. کسی باید درباره آن کاری انجام می‌داد، و این اتفاق خواهد افتاد و سریع هم رخ خواهد داد.»
+او افزود: «خواهید دید که قیمت نفت سقوط خواهد کرد. قیمت‌ها پایین خواهد آمد. نفت بسیار زیادی در بازار وجود دارد. قیمت‌ها به شدت کاهش خواهد یافت.»
+
+https://iranintl.com/202605193673
+</div>
+
+## Persian_Trend_Official — post 14506
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14506_1779240955.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فیفا قصد دارد بار دیگر ورود پرچم «شیر و خورشید» پیش از انقلاب ایران و پوشاک مرتبط با آن را به استادیوم‌های جام جهانی در مسابقات ۲۰۲۶ ممنوع کند.
+
+این پرچم همچنین در جام جهانی قطر ۲۰۲۲ محدود شده بود.
+
+منبع: نیویورک تایمز
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14505
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14505_1779240956.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انتقاد تلویحی امارات از عربستان و قطر بر سر ارتباط با ایران
+
+💢شبکه i24 گزارش داد «انور قرقاش» مشاور رئیس امارات، بدون نام بردن مستقیم از عربستان و قطر، به‌صورت تلویحی از ادامه ارتباط و تماس‌های این کشورها با ایران انتقاد کرده است.
+
+بر اساس این گزارش:
+
+▪️ ابوظبی نگران است فشار کشورهای عربی باعث توقف دوباره عملیات نظامی آمریکا علیه ایران شده باشد
+▪️ برخی محافل اماراتی معتقدند عربستان و قطر در تلاش برای حفظ مسیر مذاکره با تهران هستند
+▪️ این اختلاف می‌تواند نشانه شکاف در مواضع کشورهای خلیج فارس درباره نحوه برخورد با ایران باشد
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14504
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک‌تایمز: آمریکا و اسرائیل برای آزادسازی احمدی‌نژاد به خانه او حمله کردند
+
+💢نیویورک‌تایمز مدعی شد آمریکا و اسرائیل در روزهای ابتدایی عملیات مشترک نظامی علیه ایران، خانه محمود احمدی‌نژاد را هدف حمله هوایی قرار داده‌اند.
+
+▪️بر اساس این گزارش:
+
+▪️ هدف از این حمله، آزاد کردن احمدی‌نژاد از حصر خانگی و استفاده از او در پروژه تغییر نظام در ایران بوده است
+▪️ احمدی‌نژاد به‌دلیل اختلاف با آیت‌الله خامنه‌ای تحت حصر قرار داشت
+▪️ برنامه‌ریزان اسرائیلی پیش از آغاز جنگ با او ارتباط برقرار کرده بودند
+
+در ادامه گزارش آمده:
+
+▪️ حمله اسرائیل محافظان مستقر مقابل منزل احمدی‌نژاد در تهران را هدف قرار داده بود
+▪️ احمدی‌نژاد از حمله جان سالم به در برد اما زخمی شد
+▪️ او پس از حمله نسبت به این طرح دچار تردید و ناامیدی شده است
+
+💢طبق ادعای نیویورک‌تایمز:
+
+▪️ طرح گسترده‌تر اسرائیل شامل حذف رهبران ارشد ایران، حمایت از ناآرامی‌های داخلی و ایجاد زمینه برای تشکیل دولت جایگزین بوده است
+▪️ مقام‌های آمریکایی و اسرائیلی تصور می‌کردند برخی جریان‌های داخلی ایران پس از آغاز جنگ با واشینگتن همکاری خواهند کرد
+
+این ادعاها تاکنون از سوی منابع رسمی ایران، آمریکا یا اسرائیل تأیید نشده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14503
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14503_1779240956.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️زلزله 4.7 ریشتری لافت هرمزگان را لرزاند
+
+💢بنا بر اعلام مرکز لرزه نگاری زمین لرزه ای به قدرت 4.7 ریشتر ساعت 3:10 بامداد امروز - چهارشنبه- لافت هرمزگان را لرزاند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14502
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14502_1779240957.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢دونالد ترامپ :
+
+💢ما همه چیز را نابود می‌کنیم و این جنگ را خیلی سریع به پایان می‌رسانیم.
+
+💢آن‌ها آنقدر خسته‌اند که می‌خواهند به شدت معامله کنند.
+
+💢این باید ۴۷ سال پیش اتفاق می‌افتاد. کسی باید کاری درباره‌اش انجام می‌داد. کسی باید کاری درباره‌اش انجام می‌داد.
+
+💢این اتفاق خواهد افتاد و خیلی سریع خواهد بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 02:52
 ---
 
