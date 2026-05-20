@@ -7,6 +7,762 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 23:11
+---
+
+## ChizBergerz — post 46607
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46607_1779306085.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: میخوای بهشون (ج.ا) حمله کنی؟
+
+ترامپ: جواب اینو نمیدم.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46606
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46606_1779306086.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق گزارش راسنه‌های معتبر خارجی؛ مایکل بی، کارگردان آمریکایی، درحال ساخت فیلمی بر اساس مأموریت نجات دو خلبان آمریکایی پس از سقوط جنگنده‌ی ارتش آمریکا درجریان جنگ با ایرانه؛ تمرکز این فیلم برروی عملیات گسترده‌ای که تو پشت خطوط دشمن در کوه‌های زاگرس در غرب ایران انجام شد، تمرکز خواهد کرد و بر اساس کتابی آینده از میچل زاکوف ساخته خواهد شد.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46605
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46605_1779306087.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاپل تراز:
+
+کوروش و میا
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46603
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس‌از اینکه حجاب تو تجمعات حکومتی آزاد شد، کرکتر منچیکو (منچ آنلاین) هم تو مایکت کشف حجاب کرد :)))
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46602
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46602_1779306087.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آنلاین شاپا رسما همه چیو انداختن بیرون
+
+ارزش دانلود؟ ۷۵ از ۱۰۰
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71669
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71669_1779306088.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دیشب برای پخش به موقع در ستلایت مشکل فنی داشتیم و جناب میرقادری خیلی زحمت کشید و این مشکل برای امشب حل شده است...
+برنامه به موقع پخش میشود و سپاس از مدیریت ملی تی وی..
+</div>
+
+## rodast_omiddana — post 71668
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+♨️ برنامه امشب:
+*ناگهان توقف جنگ توسط ترامپ
+*بلوف برای حمله این هفته یا جنگ افتاد برای دوماه دیگه؟
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71667
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 اختلاف شدید بین مذهبیا بابت خانمهای بی حجابی که شبها در تجمعات رژیم شرکت میکنند
+لینک یوتیوب:
+https://www.youtube.com/watch?v=_FXUbef3zWY
+</div>
+
+## rodast_omiddana — post 71666
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71666_1779306088.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تسنیم:
+"آمریکایی‌ها متن جدیدی به ایران ارسال کرده‌اند، ایران در حال بررسی متن است و هنوز پاسخی داده نشده است"
+
+برای برسی کردن هر متنی دستکم چهار نفر از سران نظام بایستی نسخه متن را دریافت کنند و اینجوری با تحرکات بوجود آمده سیستم امنیتی آمریکا و اسرائیل تلاش میکنند جای مجتبی را رصد کنند..
+</div>
+
+## rodast_omiddana — post 71665
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71665_1779306088.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دوستان از کنگره نگران نباشید ترامپ گویا میتونه خواست نمایندگان را وتو کند..
+در مورد این بازی امروز ترامپ باید بگم به احتمال زیاد هدف اصلی مجتبی هست رفته زیرزمین و ترامپ با این بازیها میخواد موشتبا را از سوراخ بکشه بیرون و سپس عملیات را آغاز کند..
+هر جور بررسی میکنم حمله قطعیه..
+</div>
+
+## rodast_omiddana — post 71664
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71664_1779306089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+باید پاسخ‌ها کاملاً ۱۰۰٪ درست باشند، و اگر اینطور شود، زمان، انرژی و جان‌های زیادی را نجات می‌دهیم.
+</div>
+
+## rodast_omiddana — post 71663
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71663_1779306089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ درباره مذاکرات:
+اگر پاسخ‌های درست را نگیریم، اوضاع خیلی سریع پیش می‌رود. همه ما آماده‌ایم. باید پاسخ‌های درست را به دست آوریم.
+</div>
+
+## rodast_omiddana — post 71662
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71662_1779306089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خیلیها بهم پیام دادن چقدر احتمال داره که ترامپ داره بلوف میزنه و مذاکرات امروز پوشش حمله آخر هفته است..
+صادقانه بگم اینبار نمیدانم، منطََق میگه تا دوشنبه باید حمله کنه و اگر تا دوشنبه حمله نکنه خًطر اینکه جنگ به بعد از جام جهانی منتقل بشه بالا میره..
+(البته احتمالات ضعیف هم وجود دارد در هنگام جام جهانی حمله ای انجام بشه)
+</div>
+
+## rodast_omiddana — post 71661
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71661_1779306089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 همین الان ترامپ درباره رژیم ایران:
+"ما در واقع با برخی افراد بسیار خوب سر و کار داریم.
+ما با افرادی با استعداد و با هوش خوب سر و کار داریم.
+ما کاملاً تحت تأثیر قرار گرفته‌ایم."
+</div>
+
+## rodast_omiddana — post 71660
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71660_1779306089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨برخی گزارشها میگن ترامپ به رژیم جمهوری اسلامی مهلت ۳۰ روزه داده است.
+یکماه دیگه هم جام جهانیه بنابراین عملا میشه فرصت دوماه...
+اگر این قضیه فریب نباشه، بجای اینکه جنگ تا دوشنبه آغاز شود، جنگ بعد از جام جهانی آغاز میشود..
+تحملتان را بالا ببرید ببینیم چی میشه..
+</div>
+
+## rodast_omiddana — post 71659
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 فرصت طلبی شاهین نجفی از انقلاب ملی مردم ایران
+لینک یوتیوب:
+https://www.youtube.com/watch?v=9lgCego8ox0
+</div>
+
+## KiriMohems — post 47826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار : قصد داری به اونا ( ایران) حمله کنی‌؟
+
+
+🔴ترامپ : کصم خله بهت بگم اخه کیری؟
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47825
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47825_1779306089.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ:
+
+
+💎اگر پاسخ‌های درست درباره ایران را نگیرم، سریعاً کیرم راست میشه و اقدام می‌کنم؛ من به پاسخ‌های کامل و صددرصد کیر کلفت از ایران نیاز دارم.
+
+
+💎تا زمانی که به توافق نرسیم، تحریم‌ها علیه ایران را لغو نخواهیم کرد.
+
+
+💎چند روزی منتظر واکنش ایران خواهیم ماند.
+
+
+💎با افراد منطقی و جیگر از ایران در حال مذاکره هستیم.
+
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47824
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47824_1779306090.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇 g30🅰
+
+✈️https://t.me/+RvVnWMHCqUc4YzFk
+</div>
+
+## KiriMohems — post 47823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‼️ترامپ: چند روزی منتظر پاسخ ایران میمونم بعدش خواهیم دید چه خواهد شد یا داداچی میشیم یا لاچاکشون میذاریم
+
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47822
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان: ایران همواره به تعهدات خود پایبند بوده و هر راهی را برای جلوگیری از بگایی و جنگ بررسی کرده است؛ همه مسیرها از طرف ما لنگاش باز است.
+
+
+🔴وادار کردن ایران به تسلیم از طریق اجبار چیزی جز توهم نیست ترامپ کصخل.
+
+
+🔴احترام و خایه مالی متقابل در دیپلماسی بسیار عاقلانه‌تر، ایمن‌تر و پایدارتر از جنگ است
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47821
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47821_1779306091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیر کلفت ترین نیروگاه خورشیدی تهران آماده افتتاح شدنه
+
+این نیروگاه 97 هکتاری با ظرفیت 63 مگاوات احداث شده و قراره برق مورد نیاز شهرک صنعتی شمس‌آباد رو تامین کنه و دیگه بقیه موارد کیرشم نیست
+
+#Berlin
+@Kirimmohems
+</div>
+
+## SportBaadNews — post 252020
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252020_1779306092.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+‼️فووووووووووری لارنس نورمن، خبرنگار وال استریت ژورنال: ایران و آمریکا در آستانه امضای یک توافق بزرگ هستند! 
+🤩 @khabari_18
+</div>
+
+## SportBaadNews — post 252019
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252019_1779306092.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️| مکس داومن 16 ساله بعد از قهرمانی با آرسنال امروز به این شکل براش تو مدرسشون تونل افتخار زدن و تشویقش کردن
+Aura +9999999999 
+🤩
+🔥
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252018
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252018_1779306093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یامال و دوست دختر جدیدش @SportBaadNews
+</div>
+
+## SportBaadNews — post 252017
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252017_1779306094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داخل توییتر پر شده ایشون دوست دختر جدید لامین یامال هستن @SportBaadNews
+</div>
+
+## SportBaadNews — post 252016
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252016_1779306094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🟠 Final Europa League
+
+⚫️ Freiburg - 
+🔵 AstonVilla
+
+
+‼️ این روزا قبل از پیش‌بینی بیشتر از خود بازی باید نگران این باشی که VPN وصل میشه یا نه. 
+😀
+
+ربات تلگرام وینکوبت دقیقاً برای همین شرایط خوبه چون کل سایت داخل خود تلگرام اجرا میشه و دیگه لازم نیست هی بین سایت و VPN درگیرشی: 
+👇
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌براحتی میتونید برای بازی فینال لیگ اروپا وارد سایت بشید و این دیدار رو پیش‌بینی کنید، واریز و برداشت هم بصورت آنی می‌باشد.
+
+
+📌کانال رسمی وینکوبت: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 252014
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252014_1779306095.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ فابریزیو رومانو: کاسمیرو قصد داره پس از پایان فصل از منچستریونایتد جدا بشه و به اینتر میامی بپیونده و گفته میشه مذاکرات برای این انتقال در مراحل پایانیه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252013
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252013_1779306095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸
+🔥 @SportBaadNews
+</div>
+
+## SportBaadNews — post 252012
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252012_1779306096.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+🔴 سردار آزمون تو پست اینستاگرامش: سلام، ميخوام در مورد موضوعاتی كه شايد خيلی ها ندونند و يا به خاطر بعضی سوءتفاهم‌ها نسبت به من قضاوتی عجولانه كردند، چند حرف رو از ته قلبم بزنم.
+
+يادمه سال‌ها پيش در سن ١٧ سالگي و قبل از اينكه از طرف اقای كيروش به تيم ملي ايران دعوت بشم، از يك كشور ديگه پيشنهاد مالی خيلی زيادی داشتم، ولي تنها جواب من اين بود كه من فرزند ايرانم و دوست دارم برای مردم كشورم بازی كنم و باعث خوشحاليشون بشم.
+
+وقتي پيراهن تيم ملي كشورم رو پوشيدم، به خودم قول دادم هر بار كه برای ايران بازی می كنم، با تمام وجود تلاش كنم تا باعث خوشحالی مردمی كه با عشق فوتبال رو دنبال می كنن بشم بخصوص بچه‌هايي كه توی دورترين شهرها و روستاها با پيروزی ما خوشحال ميشن.
+
+من هميشه با افتخار برای تيم ملی كشورم بازی كردم.وقتی می برديم، به خودم و هم‌تيمی هام افتخار می كردم و وقتی نمی برديم مثل همه آنها ناراحت‌ترين آدم دنيا بودم.
+
+من عاشق فوتبال هستم و عاشق مردم خوب و شايسته كشورم ايران ، مردمی كه هميشه با محبت و حمايت‌های بی دريغ‌شون به من انرژی دادن.
+
+شايد خيلي ها بدونند كارهای كوچكی كه تونستم انجام بدم از رزرو تمام هتل‌های گنبد برای امنيت مردم عزيز در دوران جنگ ۱۲ روزه گرفته تا تهيه آب شيرين برای روستاهای دورافتاده گلستان و همچنين حمايت از بانوان واليبال، بسكتبال و دوچرخه‌سواری، فقط گوشه‌ای از عشق من به ايران و ايرانی است و تا امروز هم از هيچ تلاشی برای حمايت از هموطنانم دريغ نكردم.
+
+هر جايي كه فوتبال بازي كنم، هويت من، قلب من و افتخار من ايران است.
+من فوتباليستم و عاشق فوتبال و هر چيزی كه در زندگی به دست آوردم اول لطف خدا بوده و بعد زحمت و تلاش و حمايت و محبت مردم عزيز و به خاطر همين عشق هميشه قدردان مردم كشورم هستم.
+
+براي تيم ملی كشورم بازيكنان، كادر فني و مخصوصاً اميرخان در جام جهانی آرزوی موفقيت و سربلندی دارم.
+انشالله بتركونيد رفقا و دل مردم ايران را شاد كنيد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدئوی عجیبی که از تمرین امروز تیم ملی در ترکیه بیرون آمد 
+🤩 @Football3060
+</div>
+
+## IranIntlTV — post 338142
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338142" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: حقیقت یا دروغ؟ طرح آمریکا برای حکومت احمدی‌نژاد بر ایران؟!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338141
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338141_1779306097.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از آنکه دونالد ترامپ گفت به درخواست کشورهای منطقه حمله به ایران را به تاخیر انداخته، برخی منابع منطقه‌ای به اورشلیم‌پست گفتند دلیل این درخواست، هراس از انتقام‌گیری جمهوری اسلامی بوده است.
+
+گفت‌وگو با عطا محامد، کارشناس روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 338140
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از زندگی در آتش‌بس- چهارشنبه ۳۰ اردیبهشت ۱۴۰۵
+
+🔹چند روز پیش پیامکی برای من ارسال شد مبنی بر اینکه ثبت‌نام شما در جانفدا با موفقیت انجام شد و برای تکمیل مشخصات به لینک ارسال‌شده مراجعه کنید. به شرافتم قسم من اصلاً ثبت‌نام نکرده بودم.
+
+🔹اوضاع طوریه که تورم تو ریزجزئیات زندگی هم تأثیر می‌ذاره. دیروز (۲۰ اردیبهشت) با پدر و مادرم رفتیم خرید و قیمت یه دونه نمک‌پاش ۱۱۰ هزار تومن بود.
+
+🔹من آلمان زندگی می‌کنم. امروز (۳۰ اردیبهشت) برای خط ایرانم پیام اومد که با درخواست من برای اینترنت پرو موافقت شده، در حالی که من اصلاً همچین درخواستی ندادم. این‌ها خودشون اینترنت رو روی مردم بستن، حالا هم دارن با همین کاسبی می‌کنن و جیب خالی مردم رو خالی‌تر می‌کنن.
+
+🔹از رشت، دیدن اینکه صادراتی‌های مزدور این حکومت جانی تو شبکه‌های خارجی فعال شدن و حرف مردم ایران رو تحریف می‌کنن، در حالی که ما یک گیگ اینترنت می‌خریم تا صدامون برسه که داریم روزبه‌روز فقیر و مفلوک‌تر می‌شیم و چاره‌ای جز تموم کردن این نفرین ۴۸ ساله نداریم.
+
+🔹توی استان ایست بازرسی می‌ذارن، همه با تفنگ و ماسک، فقط چشم‌هاشون معلومه. به همه گیر می‌دن، پلاک همه رو می‌نویسن. شرایط واقعاً سخته، مرغ شده کیلویی ۴۰۰ خورده‌ای.
+
+🔹از تهران، این‌قدر گرانی زیاد شده، هر روز شیر گرون می‌شه. با کالابرگ فقط تونستم یک کیلو گوشت چرخ‌کرده بخرم با یه بسته مرغ.
+
+🔹دلیل اینکه این حکومت نمی‌ره اینه که ملت هم‌دست نیست، هم‌دم نیست. وقتی نت ملی هست، هر گیگ رو ۲۵۰ تا ۴۰۰ می‌فروشن، در حالی که قیمت یک گیگ ۵۰ هست یا رایگانه. چرا این‌طور می‌کنین؟
+
+🔹از مشهد پیام می‌دم، پمپ‌بنزین‌ها خیلی شلوغه، به موتوری‌ها کارت آزاد نمی‌دن. اگه بخوای بیشتر از دوبار از کارت سوخت استفاده کنی باید ۱۰۰ تومن بیشتر بدی.
+
+🔹از رشت بعد از ۸۲ روز وصل شدم. یه کنکوری‌ام که همه‌چیزش رو هواست. امتحانات خرداد حضوری شده. وضعیت اقتصادی کل مردم هم واقعاً داغونه، جوری که قیمت‌ها روزانه بالا می‌ره. جاویدشاه.
+
+🔹از یه شهرستان کوچک پیام می‌دم، پمپ‌بنزین‌ها شلوغن، همه‌چی گرونه، زندگیمون سخت شده، تروخدا به دادمون برسید. جاویدشاه پاینده ایران.
+</div>
+
+## IranIntlTV — post 338139
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338139_1779306098.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حقیقت یا دروغ؟ طرح آمریکا برای حکومت احمدی‌نژاد بر ایران؟!
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/cfVdKzc7RL8
+@iranintltv
+</div>
+
+## IranIntlTV — post 338138
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338138" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: ترامپ: یا امضا می‌کنید یا ما کار را تمام می‌کنیم؛ قالیباف هشدار جنگ داد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338137
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338137_1779306101.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ درباره ایران گفت: «ما باید پاسخ درست را دریافت کنیم.»
+
+او افزود آمریکا در حال مذاکره با «افراد منطقی» در ایران است و چند روز در انتظار پاسخ آن‌ها خواهد ماند.
+
+ترامپ همچنین تاکید کرد تا زمانی که توافق حاصل نشود، هیچ‌گونه معافیتی اعمال نخواهد شد.
+https://iranintl.com/202605204860
+</div>
+
+## IranIntlTV — post 338136
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338136_1779306101.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در شبکه ایکس نوشت: «ایران همواره به تعهدات خود پایبند بوده و همه راه‌ها را برای جلوگیری از جنگ آزموده است؛ از سوی ما همه مسیرها همچنان باز است. وادار کردن ایران به تسلیم از طریق اجبار چیزی جز یک توهم نیست. احترام متقابل در دیپلماسی بسیار عاقلانه‌تر، امن‌تر و پایدارتر از جنگ است.»
+https://iranintl.com/202605200670
+</div>
+
+## IranIntlTV — post 338135
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338135_1779306101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «یکی از نزدیکان سابق محمود احمدی‌نژاد در واکنش به گزارش نیویورک‌تایمز گفته او نه مخفی شده و نه تحت فشار است و گزارش‌هایی را که می‌گویند احمدی‌نژاد در حصر خانگی یا بازداشت است، رد کرده است.»
+
+او افزود: «بخش مهم‌تر این اظهارات آن بود که این گزارش‌ها تلاشی از سوی حسن روحانی، محمدجواد ظریف و دموکرات‌های آمریکا برای انتقام گرفتن از دونالد ترامپ توصیف شد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338133
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338133_1779306103.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338132
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال از افزایش کالاهای خوراکی روایت کرده و می‌گوید قیمت یک پفک به ۱۸۰ هزار تومان رسیده است. پیام او با هوش مصنوعی خوانده شده است.
+
+
+Pofak-V.mp4
+</div>
+
+## IranIntlTV — post 338131
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338131_1779306104.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، در واکنش به سخنان دونالد ترامپ گفت اولتیماتوم‌ دادن به جمهوری اسلامی «مضحک» است و لفاظی‌ها و تهدیدهای خارجی تاثیری نخواهد داشت. او تاکید کرد جمهوری اسلامی بدون توجه به این اظهارات، منافع خود را دنبال می‌کند.
+
+بقایی آزادسازی اموال بلوکه‌شده را یکی از مطالبات مشخص تهران دانست و افزود در این مرحله تمرکز بر خاتمه جنگ در همه جبهه‌ها، از جمله لبنان است. او هشدار داد در صورت ادامه «زیاده‌خواهی» طرف مقابل، توافقی حاصل نخواهد شد.
+
+سخنگوی وزارت خارجه همچنین گفت تبادل پیام‌ها از طریق وابسته پاکستانی در جریان است و دیدگاه‌های آمریکا دریافت و در حال بررسی است؛ حضور وزیر کشور پاکستان نیز برای تسهیل این روند انجام شده است.
+https://iranintl.com/202605204064
+</div>
+
+## IranIntlTV — post 338130
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338130_1779306105.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاویدنام عارف جعفرزاده در جشن قهرمانی آرسنال در کنار تیم محبوبش بود.
+جاویدنام عارف جعفرزاده، ۳۴ ساله و اهل رشت، شامگاه ۱۸ دی ۱۴۰۴ در جریان اعتراضات مردمی هدف شلیک مستقیم نیروهای جمهوری اسلامی قرار گرفت و جان باخت. او پس از فراخوان شاهزاده رضا پهلوی، در حالی که لباس تیم آرسنال را بر تن داشت به خیابان رفت. کشته شدن این هوادار آرسنال در فضای هواداری این باشگاه در انگلستان بازتاب گسترده‌ای داشت.
+
+آیدین مقیمی گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338129
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338129_1779306106.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس گزارش داد ترامپ و نتانیاهو سه‌شنبه درباره تلاش تازه برای دستیابی به توافق با ایران گفت‌وگو کردند. به گفته یک منبع آمریکایی، ترامپ به نتانیاهو اطلاع داده میانجی‌ها در حال تدوین «تفاهم اولیه» برای پایان رسمی جنگ و آغاز دوره‌ای ۳۰ روزه مذاکرات درباره موضوعاتی از جمله برنامه هسته‌ای ایران و بازگشایی تنگه هرمز هستند.
+به نوشته اکسیوس، دو منبع اسرائیلی از اختلاف نظر دو رهبر درباره مسیر پیش رو خبر دادند و یک منبع آمریکایی گفت پس از تماس، «موهای بی‌بی آتش گرفته بود».
+این گزارش می‌افزاید پیش‌نویس جداگانه‌ای از سوی قطر وجود ندارد و دو مقام عرب و یک منبع اسرائیلی گفته‌اند قطر پیش‌نویس جدیدی را به تهران و واشینگتن ارائه کرده، اما هنوز مشخص نیست ایران با آن موافقت کند. همچنین به گفته یک مقام عرب، هیأتی قطری برای گفت‌وگو درباره نسخه جدید به تهران سفر کرده است.
+
+https://iranintl.com/202605208847
+</div>
+
+## IranIntlTV — post 338128
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338128_1779306106.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد شهروندان پوستری را در کرج روی دیوار نصب کرده‌اند که با اعتراض به سیاست جنگ‌طلبانه جمهوری اسلامی افزوده تنها جنگ مردم، جنگ برای براندازی رژیم است.
+</div>
+
+## IranIntlTV — post 338127
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338127_1779306108.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انستیتو پاستور، نهادی که یک قرن پیش برای نجات جان ایرانیان از چنگال بیماری و قحطی متولد شد، چطور تبدیل به یکی از اهداف آمریکا و اسرائیل در جنگ اخیر شد؟ از تحقیقات پیشرفته روی باکتری سیاه‌زخم تا تلاش‌های مخفیانه برای خرید تجهیزات دوگانه در اروپا؛ جمهوری اسلامی چطور یک مرکز پزشکی را به منطقه خاکستری و امنیتی تبدیل کرد؟
+انستیتو پاستور زیر ذره‌بین تیتراول
+@iranintltv
+</div>
+
+## IranIntlTV — post 338126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338126_1779306109.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، رییس هیات مذاکره‌‌کننده جمهوری اسلامی گفت فعالیت‌های آمریکا و اسرائیل نشان می‌دهد این دو کشور قصد دارند دور جدیدی از جنگ را شروع کنند. سپاه پاسداران نیز تهدید کرد در صورت حمله به ایران، جنگ محدود به منطقه نمی‌ماند.
+
+گفت‌وگو با مصطفی دانشگر, تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14549
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14549_1779306111.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢به مناسبت دومین سالگرد سقوط هلیکوپتر ابراهیم رئیسی
+
+🔹بشنوید گزیده ای از قدرت سخنوری این ،شهید عضو هیئت مرگ
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14547
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14547_1779306113.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حمله پهپادی به مقر گروه معارض کُرد در سلیمانیه عراق
+
+💢رسانه‌ها از وقوع انفجار در پی حمله یک پهپاد انتحاری به مقر وابسته به گروه‌های معارض کُرد در استان سلیمانیه واقع در اقلیم کردستان عراق خبر می‌دهند.
+
+💢استان سلیمانیه در ماه‌های گذشته چندین بار شاهد حملات پهپادی و موشکی علیه گروه‌های معارض ایرانی بوده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14546
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14546_1779306113.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آیا همانطور که رسانه های دولتی ایران گزارش داده اند، آمریکا در جریان مذاکرات صلح پیشنهاد کاهش تحریم های نفتی ایران را داده است؟
+
+💢ترامپ: نه، من این را نشنیده ام. تا زمانی که توافقی امضا نکنند، هیچ کمکی نمی‌کنم.
+
+▪️وقتی آنها توافق نامه ای امضا می کنند، می توانیم دوباره آن مکان را بسازیم و کشوری داشته باشیم که واقعا کشور خوبی برای مردم باشد.
+
+▪️اما نه، ما چیزی پیشنهاد نکرده ایم.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14545
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14545_1779306114.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: منتظر پاسخ ایران برای جلوگیری از تشدید تنش هستیم
+
+💢دونالد ترامپ درباره مذاکرات با ایران گفت:
+
+▪️ «منتظر پاسخ مناسبی از سوی ایران هستیم تا از تشدید بیشتر جلوگیری شود»
+▪️ «چند روز برای دریافت پاسخ ایران صبر خواهیم کرد»
+▪️ «تا زمانی که به توافق نرسیم، هیچ تحریمی علیه ایران را لغو نخواهم کرد»
+
+او همچنین افزود:
+
+▪️ «در ایران افراد باهوش و بااستعدادی وجود دارند و امیدواریم توافقی خوب برای هر دو طرف حاصل شود»
+
+▪️ «اگر پاسخ‌های صددرصد درست از ایران دریافت کنیم، در زمان، هزینه و جان انسان‌ها صرفه‌جویی خواهد شد»
+
+▪️ «ممکن است روند تحولات خیلی سریع پیش برود یا چند روز طول بکشد، اما می‌تواند ناگهان و با سرعت زیادی پایان یابد»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14544
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14544_1779306115.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام:
+
+💢اوایل امروز در خلیج عمان، تفنگداران دریایی آمریکا از یگان اعزامی دریایی سی و یکم سوار بر M/T Celestial Sea، یک نفتکش تجاری با پرچم ایران شدند که مظنون به تلاش برای نقض محاصره ایالات متحده از طریق عبور از بندر ایران بود.
+
+💢نیروهای آمریکایی پس از جستجو و هدایت خدمه کشتی برای تغییر مسیر، کشتی را آزاد کردند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14543
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/CCiwTJiy05Y?feature=share
+</div>
+
+## Persian_Trend_Official — post 14542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود 20 دقیقه دیگه لایو آغاز میشه
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 21:04
 ---
 
