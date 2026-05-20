@@ -7,6 +7,635 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 00:54
+---
+
+## rodast_omiddana — post 71670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴پخش زنده
+*ناگهان توقف جنگ توسط ترامپ
+*بلوف برای حمله این هفته یا جنگ افتاد برای دوماه دیگه؟
+لینک یوتیوب:
+https://www.youtube.com/watch?v=ygRXCDKsNpo
+</div>
+
+## KiriMohems — post 47838
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47838_1779312269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در مدارس دخترانه این مملکت چه میگذشته است؟
+#خیلی_اوضاع_خیطه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47837
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گزارش خبرگزاری فارس از غرفه همسریابی تو تجمعات شبانه تهران
+
+والا ما به این کار میگیم کصکشی
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47836
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 منم همینطور بی‌بی
+
+باراک راوید: یه منبع آمریکایی که در جریان تماس تلفنی بین ترامپ و نتانیاهو قرار داشت به من گفت: « پشمای بی‌بی بعد از تماس آتش گرفته بود!»
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47835
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47835_1779312270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 آکسیوس:
+
+یک منبع آمریکایی گفته که ترامپ به نتانیاهو گفته که میانجی‌ها دارن میمالن تا بر روی یک «توافقنامه» کار بکنن که هم آمریکا و هم ایران اونو امضا میکنن تا رسماً جنگ تموم بشه و یک دوره ۳۰ روزه مذاکره در مورد مسائلی مانند برنامه هسته‌ای ایران و باز شدن تنگه هرمز رو شروع کنن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47833
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47833_1779312271.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پراتون بریزه کانفیگ زیر قیمت! 
+😰
+🤑 هر یک گیگ کانفیگ 170 هزار تومن 
+🤑 پینگ کانفیگ ها زیر 100 
+🚀 ، مناسب برای چرخ زدن تو اینستا ، یوتیوب 
+▶️، تلگرام 
+✈️، توییتر 
+🐦 و تیک تاک 
+🎧 مناسب برای تمام گیم‌ها 
+🎮 و تریدرها 
+↗️ هم لینک ساب بهتون ارائه میشه 
+🔗، هم می‌تونید داخل…
+</div>
+
+## KiriMohems — post 47832
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47832_1779312272.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پراتون بریزه کانفیگ زیر قیمت! 
+😰
+🤑
+هر یک گیگ کانفیگ 170 هزار تومن 
+🤑
+پینگ کانفیگ ها زیر 100 
+🚀
+، مناسب برای چرخ زدن تو اینستا ، یوتیوب 
+▶️، تلگرام 
+✈️، توییتر 
+🐦 و تیک تاک 
+🎧
+مناسب برای تمام گیم‌ها 
+🎮 و تریدرها 
+↗️
+هم لینک ساب بهتون ارائه میشه 
+🔗، هم می‌تونید داخل خود ربات حجم مصرفی و باقی مونده رو چک کنید 
+🤖
+📊
+
+با تضمین برگشت وجه 
+✅
+
+ادرس ربات برای خرید کانفیگ
+🫴
+@Unique_vpnbot
+
+لینک کانال برای کانفیگ های رایگان. 
+🔽
+@networkunique_IR
+</div>
+
+## KiriMohems — post 47831
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47831_1779312273.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کیری شدن کله نتانیاهو بخاطر کارای ترامپ
+
+
+یک منبع واکنش نتانیاهو پس از تماس را اینگونه توصیف کرد: موهای بی‌بی رو کِز داد
+
+گزارش شده که نتانیاهو در هفته‌های آینده به دنبال سفری به واشنگتن برای گفتگو با ترامپ و شاید هم یک چک افسری ناب به او بزند
+
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47830
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47830_1779312274.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مایکل بی، کارگردان آمریکایی،از کونش گذاشته تا فیلمی بر اساس مأموریت نجات دو خلبان آمریکایی پس از سقوط جنگنده‌ تو ایران بسازه؛ تمرکز این فیلم برروی عملیات کلفتی‌ که تو پشت خطوط دشمن در کوه‌های زاگرس در غرب ایران صورت گرفت و بر اساس کتابی آینده از میچل زاکوف ساخته میشه و خلاصه قرار فیلمی باشه که با دیدنش آبمون چکه کنه
+
+#Helsinki
+@MohemMovie
+</div>
+
+## KiriMohems — post 47829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تا دسته تکراری و فوری
+
+لارنس نورمن: ایران و آمریکا در آستانه امضای یک کلفت و بزرگ هستند
+
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47827
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47827_1779312274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل، چند نقطه از جنوب لبنان رو تلمبه بارون کرد
+
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252029
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252029_1779312276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+5 تیر: 
+🇮🇷ایران - مصر
+🇪🇬
+
+⏰ساعت 6:30
+</div>
+
+## SportBaadNews — post 252028
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252028_1779312276.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇺
+⚽️| استون ویلا با برد 3-0 مقابل فرایبورگ قهرمان لیگ اروپا شد! 
+✅ این پنجمین قهرمانی اونای امری به عنوان سرمربی تو لیگ اروپا بود 🔥🔥 🏆 2013/14 با سویا 🏆 2014/15 با سویا 🏆 2015/16 با سویا 🏆 2021/21 با ویارئال 🏆 2025/26 با استون ویلا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252027
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252027_1779312277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇦🇷
+🔥 #فکت | امیلیانو مارتینز 33 ساله تو تمام فینال هایی که بازی کرده برنده شده:
+
+✅ 2 کوپا آمریکا
+
+✅ 1 جام جهانی
+
+✅ 1 برابر فینالیسیما
+
+✅ 1 کامیونیتی شیلد
+
+✅ 1 جام حذفی
+
+✅ 1 لیگ اروپا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252026
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252026_1779312277.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇺🏆 | بیشترین قهرمانی اروپایی بین مربیان تاریخ:
+
+
+✅ ژوزه مورینیو - 5 قهرمانی
+
+✅ کارلو آنچلوتی - 5 قهرمانی
+
+✅ جووانی تراپاتونی - 5 قهرمانی
+
+✅
+⭕️ اونای امری - 5 قهرمانی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252024
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇺
+⚽️| استون ویلا با برد 3-0 مقابل فرایبورگ قهرمان لیگ اروپا شد!
+
+
+✅ این پنجمین قهرمانی اونای امری به عنوان سرمربی تو لیگ اروپا بود 🔥🔥
+🏆 2013/14 با سویا
+🏆 2014/15 با سویا
+🏆 2015/16 با سویا
+🏆 2021/21 با ویارئال
+🏆 2025/26 با استون ویلا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252023
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252023_1779312278.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویرجینیا دوست دختر سابق وینی بعد کات رفته از یه میمون لب گرفته استوری گذاشته عجب لاشی 
+😐
+😐
+😐 @SportBaadNews
+</div>
+
+## SportBaadNews — post 252022
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252022_1779312278.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویرجینیا دوست دختر سابق وینی بعد کات رفته از یه میمون لب گرفته استوری گذاشته
+
+عجب لاشی 
+😐
+😐
+😐
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252021
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252021_1779312279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رافینیا : دوس دارم فینال جام جهانی بین برزیل و اسپانیا باشه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338156
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338156_1779312280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ گفته فقط چند روز دیگر برای توافق با جمهوری اسلامی فرصت خواهد داد. او گفته الان سوال اصلی این است که جمهوری اسلامی سند توافق را امضا خواهد کرد یا ما کار را تمام خواهیم کرد. طبق گفته ترامپ همه چیز باید تا یکشنبه روشن شود اما تجارب تاریخی نشان داده سیاست بالا و پایین بسیار دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338155
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۴۰ روز مادری؛ مراقبت انسانی، نمایش عاطفه و پرسش‌های اخلاقی
+
+نعیمه دوستدار- روایت زنی جوان که برای مدتی کوتاه سرپرستی یک نوزاد را بر عهده داشت، به یکی از بحث‌برانگیزترین موضوعات شبکه‌های اجتماعی فارسی‌زبان تبدیل شد. روایتی که با لحنی احساسی و الهام‌بخش منتشر شد، خیلی زود به موجی از نقدهای اخلاقی، روانشناختی و سیاسی دامن زد.
+ماجرا از انتشار روایت‌های سارا کنعانی، فعال فضای مجازی، درباره حضور موقت یک نوزاد در خانه‌اش آغاز شد. او در اینستاگرام و ایکس از تجربه «مادری موقت» نوشت. تجربه‌ای که در قالب طرح «میزبان» سازمان بهزیستی انجام شد.
+رسانه‌های حکومتی در ایران، از جمله خبرگزاری جمهوری اسلامی (ایرنا) و روزنامه همشهری، این روایت را با ادبیاتی احساسی و تصویری بازنشر کردند. تصاویری از خانه، آغوش، گریه هنگام جدایی و توصیف‌هایی از «۴۰ روز مادری».
+تصاویر بدون حجاب کنعانی در ایرنا منتشر شد و کاربران مدتی بعد خبر از دسترس خارج شدن این خبرگزاری را منتشر کردند.
+اما آنچه ابتدا برای بخشی از کاربران تصویری انسانی از مراقبت از کودک بی‌سرپرست به نظر می‌رسید، برای گروهی دیگر به پرسشی جدی درباره مرز میان حمایت از کودک و تبدیل کودک به «محتوا» بدل شد.
+
+https://www.iranintl.com/fa/202605197267
+</div>
+
+## IranIntlTV — post 338154
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338154_1779312281.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت باید پاسخ درستی از جمهوری اسلامی دریافت کند. او افزود واشینگتن در تهران با «افرادی منطقی» در حال گفت‌وگو است و چند روز دیگر نیز در انتظار پاسخ آنها خواهد ماند.
+ترامپ همچنین تاکید کرد تا زمان دستیابی به توافق، هیچ‌گونه امتیاز یا تخفیفی به ایران داده نخواهد شد.
+
+گفت‌وگو با محسن مدیرشانه‌چی، پژوهشگر موسسه نظم جهانی، و محمد قائدی، مدرس روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 338153
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338153_1779312283.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رابرت اِستلوف، مدیر اجرایی انستیتو واشینگتن، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «کاملا وارد مرحله‌ای شده‌ایم که هدف بلندمدت، تغییر حکومت است. اینکه چطور به آن برسند، از طریق ادامه فشار و محاصره سیاسی و اقتصادی حکومت خواهد بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338152
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338152_1779312284.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه پاسداران در واکنش به تهدیدهای کاخ سفید هشدار داد در صورت حمله آمریکا و اسرائیل، به نقاطی که آنها تصور نمی‌کنند، ضرباتی کوبنده وارد می‌کند.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال و آرام حسامی، استاد علوم سیاسی کالج مونتگومری
+@iranintltv
+</div>
+
+## IranIntlTV — post 338151
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338151_1779312286.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «مهم این است که چه پاسخی از ایران دریافت می‌کنیم. اگر پاسخ، آن چیزی نباشد که ما انتظار داریم، خیلی سریع وارد عمل خواهیم شد. همه‌چیز آماده است.»
+
+او افزود: «اگر به توافق برسیم، از هزینه‌های بسیار زیاد و کشته شدن انسان‌ها جلوگیری می‌شود. ممکن است این ماجرا خیلی زود تمام شود یا چند روز دیگر طول بکشد.»
+
+او تاکید کرد: «آمریکا تا پیش از امضای توافق، هیچ تخفیفی در تحریم‌ها به ایران نخواهد داد و در حال حاضر هیچ امتیاز یا پیشنهاد مشخصی روی میز نیست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338150
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338150_1779312288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کلیفورد می، رییس بنیاد دفاع از دموکراسی‌ها، به مرضیه حسینی، خبرنگار ایران‌اینترنشنال، گفت: «پیش‌بینی دونالد ترامپ خیلی سخت است، چون مدام نظرش را عوض می‌کند.»
+
+او افزود: «امیدوارم هرچه زودتر به این نتیجه برسد که برای ادامه این مسیر، باید هم فشار اقتصادی را حفظ کند و هم فشار نظامی را افزایش دهد؛ از جمله حمله به مراکز نظامی و شاید حتی حذف لایه‌های بعدی قدرت در ایران.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338149
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338149_1779312289.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپاه در واکنش به تهدیدهای آمریکا و اسرائیل هشدار داد در صورت حمله، پاسخ‌های کوبنده‌ای در نقاط غیرقابل‌تصور خواهد داد. محمدباقر قالیباف نیز گفت نشانه‌ها از احتمال دور جدید تنش و جنگ حکایت دارد. وزیر خارجه ایران هم از هماهنگی روزانه میان دستگاه دیپلماسی و نیروهای نظامی خبر داد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338148
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338148_1779312290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قانون جدید طالبان درباره طلاق و ازدواج، موجی از نگرانی درباره حقوق زنان و افزایش کودک‌همسری در افغانستان ایجاد کرده است. براساس این قانون، سکوت دختر به‌منزله رضایت برای ازدواج تلقی می‌شود؛ موضوعی که منتقدان می‌گویند راه را برای ازدواج اجباری و کودک‌همسری هموارتر می‌کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338147_1779312292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا زاکانی، شهردار تهران، در گفت‌وگو با صداوسیما، گفت: «محاصره دریایی معنا ندارد. این‌ها اغراق می‌کنند و جرات حمله ندارند. اوج اقداماتشان را هم انجام دادند و دیدند ما دست بالا را داریم.»
+
+او اضافه کرد: «اگر حمله کنند، پاسخ می‌گیرند. دوره بزن‌دررو تمام شده است.»
+https://iranintl.com/202605200745
+</div>
+
+## IranIntlTV — post 338146
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338146_1779312292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش سازمان حقوق بشری هه‌نگاو، غلامرضا خانی‌شکرآب، ورزشکار و زندانی سیاسی اهل اردبیل که پیش‌تر با اتهام جاسوسی برای اسرائیل به اعدام محکوم شده بود، در خطر قریب‌الوقوع اجرای حکم اعدام قرار دارد.
+
+بر اساس این گزارش، او به‌طور ناگهانی از بند امنیتی زندان اوین به سلول انفرادی زندان قزل‌حصار کرج منتقل شده است.
+https://iranintl.com/202605206911
+</div>
+
+## IranIntlTV — post 338145
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338145" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: تهران توافق را امضا نکند، کار را تمام می‌کنیم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338144
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338144_1779312293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام اسرائیلی به روزنامه اسرائیل هیوم گفت حکومت ایران هنوز درک نکرده چه بر سر این کشور آمده و افزود همان‌گونه که این حکومت لبنان، عراق و یمن را به عقب‌ماندگی کشاند، اکنون خود ایران نیز به کشوری عقب‌مانده تبدیل شده است.
+
+به گزارش اسرائیل هیوم، در اورشلیم سقوط حکومت ایران همچنان سناریویی محتمل تلقی می‌شود و مقام‌های اسرائیلی می‌گویند پس از پایان مرحله کنونی، احتمال ازسرگیری اعتراض‌ها وجود دارد.
+
+این روزنامه همچنین نوشت آسیب‌های واردشده به ایران بسیار قابل توجه بوده و برآوردها حاکی است در دو دور درگیری حدود ۳۰۰ میلیارد دلار خسارت اقتصادی به ایران وارد شده است.
+https://iranintl.com/202605205378
+</div>
+
+## IranIntlTV — post 338143
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند معترض به سرکوب و فضای امنیتی در ایران طی پیامی به ایران اینترنشنال گفت که در فضای قطع اینترنت و گرانی آن، «مزدورهای صادراتی حکومت جانی» حرف و مطالبات مردم را تحریف می‌کنند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Persian_Trend_Official — post 14560
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14560_1779312293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هالیوود فیلمی درباره عملیات نجات خلبانان آمریکایی در ایران می‌سازد
+
+💢به گزارش ددلاین، استودیوی «یونیورسال پیکچرز» و «مایکل بی» کارگردان مشهور آمریکایی، در حال ساخت فیلمی درباره نجات دو نیروی هوایی آمریکا در ایران پس از سرنگونی جنگنده F-15E Strike Eagle آن‌ها در جریان عملیات «خشم حماسی» هستند.
+
+🔻بر اساس این گزارش:
+
+▪️ فیلم بر پایه کتابی از «میچل زاکف» که قرار است در سال ۲۰۲۷ منتشر شود ساخته خواهد شد
+▪️ مایکل بی اعلام کرده طی سال‌های فعالیتش همکاری «شگفت‌انگیزی» با وزارت جنگ آمریکا و ارتش این کشور داشته است
+▪️ این موضوع احتمال همکاری مستقیم پنتاگون با پروژه را تقویت می‌کند
+
+مایکل بی درباره این پروژه گفت:
+
+▪️ فیلم روی نیروهایی تمرکز دارد که یکی از «پیچیده‌ترین و پرریسک‌ترین عملیات‌های تاریخ معاصر» را انجام داده‌اند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14559
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ادعای «میدل ایست آی»:
+
+🔹سه منبع گفتند که انتظار دارند جنگ در هفته‌های آینده و پس از پایان دوره حج، از سر گرفته شود
+
+🔹ایالات متحده در گذشته از سیگنال‌های فریبنده و حیله‌های دیگر استفاده کرده تا سعی کند طرف مقابل را دچار احساس امنیت کاذب کند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14558
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جانشین فرمانده نیروی دریایی سپاه: آماده رویارویی در تنگه هرمز هستیم
+
+💢جانشین فرمانده نیروی دریایی سپاه پاسداران ایران اعلام کرد نیروهای ایرانی در وضعیت آماده‌باش قرار دارند و تهدیدها را جدی می‌دانند.
+
+وی گفت:
+
+▪️ «دست ما روی ماشه است»
+
+▪️ اگر ترامپ تصور می‌کند می‌تواند با زور تنگه هرمز را باز کند، باید بداند با همان نیروی دریایی مواجه خواهد شد که ادعا می‌کردند نابود شده است
+
+▪️ دشمنان اشتباه می‌کنند اگر فکر کنند با هدف قرار دادن زیرساخت‌ها، این ملت عقب‌نشینی خواهد کرد
+
+▪️ ایران طی ۴۷ سال گذشته نشان داده که آسیب‌پذیر است اما تسلیم نمی‌شود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14557
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14557" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه تلگرام :
+</div>
+
+## Persian_Trend_Official — post 14555
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14555_1779312294.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخ صوتی لایو امشب در کست باکس :
+
+https://castbox.fm/vi/947285526
+</div>
+
+## Persian_Trend_Official — post 14554
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14554_1779312295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢سپاه پاسداران با صدور بیانیه‌ای تهدید کرد:
+
+⭕️در صورت حمله دوباره آمریکا و اسرائیل، جنگ را به فراتر از منطقه خواهد کشاند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14553
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه صوتی لایو امشب در اسپاتیفای :
+
+https://open.spotify.com/episode/4ZyN11ARn9PzPUowsFbzbh?si=w_I-pR9MRMyUKElfOPbe8Q
+</div>
+
+## Persian_Trend_Official — post 14552
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14552_1779312295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایران محدوده نظارت خود بر تنگه هرمز را مشخص کرد
+
+💢هیئت تنگه خلیج فارس اعلام کرد جمهوری اسلامی ایران حدود منطقه نظارت بر مدیریت تنگه هرمز را تعیین کرده است.
+
+🔻بر اساس این بیانیه:
+
+▪️ مرز شرقی این محدوده، خطی است که «کوه مبارک» در ایران را به جنوب فجیره در امارات متصل می‌کند
+
+▪️ مرز غربی نیز خطی است کهانتهای جزیره قشم در ایران را به «ام‌القیوین» در امارات وصل می‌کند
+
+💢این اعلام در شرایطی منتشر شده که تنش‌ها بر سر کنترل و عبور کشتی‌ها از تنگه هرمز همچنان ادامه دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14551
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 عضو کمیسیون امنیت ملی مجلس
+
+💢عاصم منیر فردا حامل پیام جدیدی از سوی آمریکا به ایران است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14550
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14550_1779312296.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس
+
+💢یک منبع آمریکایی گفت ترامپ به نتانیاهو گفته است که میانجی‌ها در حال کار بر روی یک «توافقنامه» هستند که هم ایالات متحده و هم ایران آن را امضا خواهند کرد تا رسماً به جنگ پایان دهند و یک دوره ۳۰ روزه مذاکره در مورد مسائلی مانند برنامه هسته‌ای ایران و باز شدن تنگه هرمز را آغاز کنند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 23:11
 ---
 
