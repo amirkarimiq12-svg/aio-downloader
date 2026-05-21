@@ -7,6 +7,513 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 21:57
+---
+
+## ChizBergerz — post 46641
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46641_1779388077.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+G(OLD)
+
+من ترجیح میدم تو لندکروز بشکه بشکه اشک بریزم تا اینکه پشت هوندا مثل کصخلا بخندم...
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46640
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46640_1779388078.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کتاب نوشتن واسه رییسی اسمشو گذاشتن "خسته نیستم".
+
+اولین چیزی که به ذهن آدم میاد اینه که "خب بکیرم".
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46639
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46639_1779388078.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصورم از زرشکیان حروم‌زاده که میگه با موش‌تباه ملاقات کرده: 😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46638
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46638_1779388079.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وعده‌ی مناسب قبل از باشگاه:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46637
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46637_1779388080.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکم آنلاین شاپ ایرانی ببینیم...
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46636
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46636_1779388083.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیزی که تو ۱۸ سالگی انتخاب میکنی⬅️
+
+چیزی که تو ۳۰ سالگی انتخاب میکنی➡️
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71719
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71719_1779388084.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 بترسید از کسیکه نام "کنسرت" را "تجمع فرهنگی سیاسی" میزارد و دست به بلیط فروشی میزند..
+</div>
+
+## rodast_omiddana — post 71717
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71717_1779388084.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کاسبی با خون جاویدنامان و بِرَند شاهزاده با رَسم شکل...
+</div>
+
+## rodast_omiddana — post 71716
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71716_1779388084.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 پاسخ طوفانی به کلیپ 13 دقیقه ای شاهین نجفی که پشت شاهزاده پنهان شده
+لینک یوتیوب:
+https://www.youtube.com/watch?v=xpDv-m5DvP4
+</div>
+
+## KiriMohems — post 47865
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47865_1779388085.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ ۴۸ ساعت دیگه:
+
+قرار بود به ایران حمله کنیم ولی قراره لوله‌کش بیاد برای سیفون دستشویی، ملانیا خونه تنهاست من حتما باید پیشش باشم.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47864
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47864_1779388086.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ایران نمیتونه اورانیوم غنی‌شده اش رو نگه داره. به محض اینکه اونا رو بگیریم، احتمالاً نابودش میکنیم. ما این عن رو را نمیخواییم.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47863
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47863_1779388088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 عن در کونتان چیپس میشه ببینید:
+
+یک بسته چیپس کیری نمکی ساده نیم میلیون تومان!!!
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47862
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47862_1779388088.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار آزمون هم طی یه پست تو اینستاگرامش، برای تیم‌ملی مالیده، گفته یسریا تو کشور در موردم عجولانه قضاوت کردن و سوء‌تفاهم شده، برای تیم‌ملی مالیده، خوبی‌هایی که به مردم کرده رو کرده تو چشمون و از تک‌تکش اسم برده و منت گذاشته، بازم برای تیم‌ملی مالیده و گفته برای بازیکنا و کادرفنی و امیرخان آرزوی موفقیت دارم، برید بترکونید و دل مردمو شاد کنید؛ تا نشون بده لایق حمایت‌هایی که این‌مدت شده بود رو نداره. وسلام
+
+#professor
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47861
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47861_1779388089.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✖️ سایت بین المللی bet120x 
+✖️
+
+ 
+👍دارای مجوز رسمی Gambling Judge سوئد
+👍
+     
+
+💳شارژ حساب از طریق ارز و یووچر و پرمیوم ووچر
+
+💳تسویه حساب دلاری سریع
+💊بیمه شرط میکس
+
+⚠️فروش شرط
+
+🔔ویرایش شرط                    
+3️⃣
+2️⃣
+
+
+🎁20%هدیه واریز از طریق ارز و ووچر
+┅━━━━━━━━━━━
+
+🎁 10%برگشت باخت به صورت روزانه
+
+🎁 10%برگشت باخت به صورت هفتگی
+
+🎁10%برگشت باخت به صورت ماهانه
+
+💻ادرس ورود به سایت:
+https://bet120x.com/fa/?btag=971470
+➖➖➖➖➖
+   
+👈 آموزش واریز و برداشت دلاری
+👉
+
+
+🔪کانال اطلاع رسانی:
+👇 g31🅰
+
+✈️https://t.me/+RvVnWMHCqUc4YzFk
+</div>
+
+## KiriMohems — post 47860
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: همین الان هم داریم با ایران لاس میزنیم؛ خواهیم دید چه کونی داده خواهد شد
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252076
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الهلال خووووورد
+</div>
+
+## SportBaadNews — post 252075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الهلال خووووورد
+</div>
+
+## SportBaadNews — post 252074
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252074_1779388091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نزده فوتموب کصخل شده 😐
+</div>
+
+## SportBaadNews — post 252073
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گگلللل النصرررر هم زددد
+</div>
+
+## SportBaadNews — post 252072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گگلللل النصرررر هم زددد
+</div>
+
+## SportBaadNews — post 252071
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252071_1779388091.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الهلال یه گل زد و فعلا قهرمانه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252070
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252070_1779388092.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+❌ طبق گفته رسانه های انگلیس، لوک شاو و مگوایر به تیم ملی انگلیس دعوت نشدند
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252069
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252069_1779388092.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 مت لو: انتظار میره پالمر به تیم ملی انگلیس دعوت نشه
+😐
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تغییر نام سانتیاگو برنابئو درگوگل مپ به امباپه دیکتاتور😂😂😂 @SportBadTweet | Ar
+</div>
+
+## SportBaadNews — post 252067
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252067_1779388093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔻کوپه: انریکه ریکلمه رسماً نامزد شدنش تو انتخابات ریاست رئال رو به باشگاه اعلام کرد.
+
+طبق قانون، نامزد ها حداقل 48 ساعت قبل از پایان مهلت انتخابات، باید به باشگاه اطلاع بدن که میخوان نامزد بشن و الان انریکه ریکلمه اینکارو انجام داده و اگه بخواد میتونه رسما نامزد بشه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252066
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252066_1779388093.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ تمام رسانه‌های انگلیس خبر از دعوت نشدن فودن به تیم ملی انگلیس میدن
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338278
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338278_1779388094.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه عباسی، ۳۱ ساله و دانشجوی دانشگاه هنر اصفهان، روز ۱۹ دی‌ماه در جریان انقلاب ملی در بلوار کشاورز شهر اصفهان هنگامی‌ که در حال کمک و پناه دادن به مجروحین بود با اصابت گلوله به گردنش مجروح و دچار قطع نخاع شد. او ۲۱ اسفندماه پس از گذران نزدیک به چند هفته کما، در بیمارستان جان باخت.
+
+بنا به گزارش‌های رسیده به ایران‌اینترنشنال، او پس از یک دوره کما، به هوش آمده و در روزهای پایانی زندگی‌اش حال عمومی بهتری داشته است. خبر درگذشت فاطمه از طریق تماس تلفنی به خانواده اطلاع داده شد.
+
+دوستان فاطمه او را علاقه‌مند به حرفه‌ عکاسی معرفی کرده‌اند.
+
+طبق اطلاعات رسیده به ایران‌اینترنشنال، فاطمه پس از گرفتن تعهد به خانواده تحویل و طی کنترل شدید امنیتی در قطعه ۵۲ باغ رضوان اصفهان به خاک سپرده شد.
+https://iranintl.com/202605218377
+</div>
+
+## IranIntlTV — post 338277
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338277_1779388095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسکات بسنت، وزیر خزانه‌داری آمریکا درباره تحریم‌های جدید این کشور علیه حزب‌الله، گروه تحت حمایت جمهوری اسلامی، در شبکه اجتماعی ایکس نوشت: «حزب‌الله یک سازمان تروریستی است و باید کاملا خلع سلاح شود.»
+
+او افزود: «وزارت خزانه‌داری به اقدامات خود علیه مقاماتی که در دولت لبنان نفوذ کرده‌اند و حزب‌الله را قادر می‌سازند تا کارزار بی‌معنی خشونت علیه مردم لبنان را به راه بیندازد و مانع صلح پایدار شود، ادامه خواهد داد.»
+
+پیش‌تر وزارت خزانه‌داری آمریکا اعلام کرد محمدرضا رئوف شیبانی، سفیر اخراجی جمهوری اسلامی در لبنان را تحریم کرده است.
+
+نام شیبانی در میان ۹ نفری است که وزارت خزانه‌داری آمریکا پنجشنبه به دلیل ارتباط با حزب‌الله لبنان تحریم کرده است.
+
+آمریکا اعلام کرده که این افراد خلع سلاح حزب‌الله را مختل می‌کردند و در جهت پیشبرد برنامه‌های جمهوری اسلامی در لبنان فعالیت می‌کردند.
+https://iranintl.com/202605217096
+</div>
+
+## IranIntlTV — post 338276
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338276_1779388096.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی تاج، رییس فدراسیون فوتبال، درباره جلسه با دبیرکل فیفا در جمع خبرنگاران گفت: «ما ۱۰ مورد را تنظیم کرده بودیم و درباره همه آنها با فیفا به نتایج خوبی رسیدیم. آنچه فیفا قول داده، این است که این مواردی که دغدغه فدراسیون فوتبال بوده، رعایت شود.»
+
+🔹تاج درباره شرایط تیم ملی و موضوع ویزای آمریکا گفت: «در حال پیگیری است و تیم ملی بهترین شرایط را پشت سر می‌گذارد. بازی‌های دوستانه در ترکیه پیش‌بینی شده و تیم برنامه‌های خود را انجام می‌دهد.»
+
+🔹او همچنین گفت: «در حال حاضر هنوز برای هیچ فردی ویزا صادر نشده اما بسیاری از کشورهای حاضر در جام جهانی نیز هنوز ویزا نگرفته‌اند. امیدواریم ویزاها صادر شود تا تیم ملی بتواند به‌راحتی بازی‌هایش را برگزار کند.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338275
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338275_1779388097.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خزانه‌داری آمریکا اعلام کرد محمدرضا رئوف شیبانی، سفیر اخراجی جمهوری اسلامی در لبنان، را تحریم کرده است.
+
+وزارت خارجه آمریکا نیز اعلام کرد ۹ نفر مرتبط با حزب‌الله را که حاکمیت لبنان را تضعیف می‌کنند، تحریم کرده است.
+بر اساس این اعلام، این افراد در روند خلع سلاح حزب‌الله اخلال ایجاد کرده و در جهت پیشبرد برنامه‌های جمهوری اسلامی در لبنان فعالیت می‌کردند.
+https://iranintl.com/202605213671
+</div>
+
+## IranIntlTV — post 338274
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338274_1779388097.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک نهاد مدنی ایرانی در آمریکا با ارسال نامه‌ای به فیفا درباره ممنوعیت احتمالی ورود پرچم شیروخورشید به ورزشگاه‌ها در جام جهانی هشدار داد.
+
+این نهاد با استناد به قوانین آزادی بیان در آمریکا، چنین اقدامی را نقض حقوق مدنی دانسته است.
+
+گفت‌وگو با منصور آریا، حقوقدان
+@iranintltv
+</div>
+
+## IranIntlTV — post 338273
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338273_1779388100.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر کمیسر عالی حقوق بشر سازمان ملل اعلام کرد ولکر تورک، کمیسر عالی حقوق بشر این نهاد، اعدام دو نفر دیگر در ایران را محکوم کرد.
+بر اساس گزارش این دفتر، تورک گفته مقام‌های جمهوری اسلامی از جنگ با آمریکا و اسرائیل به‌عنوان بهانه‌ای برای تشدید سرکوب داخلی استفاده می‌کنند.
+
+خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، گزارش داد رامین زله و کریم معروف‌پور، دو زندانی سیاسی بامداد پنج‌شنبه ۳۱ اردیبهشت اعدام شدند.
+https://iranintl.com/202605219033
+</div>
+
+## IranIntlTV — post 338272
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338272_1779388101.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال می‌گوید که بین مردم و حکومت دریایی از خون فاصله است و ترامپ نباید با جمهوری اسلامی مذاکره کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Persian_Trend_Official — post 14624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/zMW0RhvWank?feature=share
+</div>
+
+## Persian_Trend_Official — post 14623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 قوه قضاییه جمهوری اسلامی بازداشت رشید مظاهری را تأیید کرد
+
+💢قوه قضاییه جمهوری اسلامی بازداشت «رشید مظاهری» دروازه‌بان پیشین تیم ملی فوتبال ایران را تأیید کرد.
+
+🔻بر اساس اعلام مقام‌های قضایی:
+
+▪️ او با اتهاماتی از جمله «فعالیت تبلیغی برخلاف امنیت ملی» مواجه شده است
+▪️ بازداشت مظاهری پس از انتقاد علنی او از علی خامنه‌ای و حوادث دی‌ماه ۱۴۰۴ صورت گرفته است
+
+💢رشید مظاهری یکی از چهره‌های شناخته‌شده فوتبال ایران و سابقه حضور در تیم ملی را در کارنامه دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14622
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حدود 30 دقیقه دیگه لایو آغاز میشه
+</div>
+
+## Persian_Trend_Official — post 14621
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14621_1779388103.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزارت خارجه جمهوری اسلامی اعلام کرد ادعاهای مطرح‌شده درباره غنی‌سازی اورانیوم و سرنوشت مواد غنی‌شده، چیزی جز «گمانه‌زنی رسانه‌ای فاقد اعتبار» نیست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14620
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14620_1779388103.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ترامپ مدعی شد که وضعیت ایران خیلی زود حل خواهد شد
+
+💢دونالد ترامپ، رئیس‌جمهور آمریکا، در جمع خبرنگاران در دفتر بیضی شکل ( در کاخ سفید) اظهار داشت:
+
+🔹ایالات متحده با دریافت هزینه حمل و نقل توسط ایران در تنگه هرمز مخالف است.
+
+🔹آمریکا قصد دارد اورانیوم ایران را خارج کرده و به احتمال زیاد آن را معدوم (نابود) کند.
+
+🔹گروه ضربت نیروی دریایی آمریکا به رهبری ناو هواپیمابر یواس اس «نیمیتز» که وارد دریای کارائیب شده است، برای تهدید مقامات کوبا نیست.
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14619
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14619_1779388106.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام به همه اعضای خانواده پرشین ترند 🌟
+
+از تراست VPN برای بچه‌های پرشین ترند ۱۰٪ تخفیف روی پلن‌های معمولی گرفتم 🔥
+(البته اگر این پیام رو براشون بفرستین)
+
+همچنین ۳ تا سرور جدید فقط برای سرعت بالاتر توی دیدن ویدئوها اضافه کردن 🚀
+
+👇😳😳
+یه طرح بمب هم دارن که هر گیگ براتون حدود ۱۶۸ تومن درمیاد 😳
+برای جزئیات حتماً بهشون پیام بدین 👇👇👇
+😳😳☝️
+@trusstvpnn_admin
+@trusstvpnn_admin
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 20:04
 ---
 
