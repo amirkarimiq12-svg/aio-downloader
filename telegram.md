@@ -7,6 +7,157 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 03:25
+---
+
+## ChizBergerz — post 46645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حل مشکل اتصال vpn روی همراه اول با ست کردن APN جدید بخصوص برای اپ شیر و خورشید مسیر در اکثر گوشی ها : تنظیمات - اتصالات - شبکه های تلفن همراه - نام نقاط دستیابی - ساخت نام نقطه دستیابی جدید در منوی انگلیسی : settings - connections - mobile networks - access…
+</div>
+
+## ChizBergerz — post 46644
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46644_1779407736.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماشالا چه جهاد نکاحی راه انداختن تو خیابونا، چه بکن بکن‌هایی داره هرشب اتفاق میوفته... @ChizBergerz
+</div>
+
+## ChizBergerz — post 46643
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46643_1779407737.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ماشالا چه جهاد نکاحی راه انداختن تو خیابونا، چه بکن بکن‌هایی داره هرشب اتفاق میوفته...
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46642
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حل مشکل اتصال vpn روی همراه اول با ست کردن APN جدید بخصوص برای اپ شیر و خورشید
+
+مسیر در اکثر گوشی ها :
+
+تنظیمات - اتصالات - شبکه های تلفن همراه - نام نقاط دستیابی - ساخت نام نقطه دستیابی جدید
+
+در منوی انگلیسی :
+settings - connections - mobile networks - access point names - ADD or +
+
+Name : mcinet
+APN : mcinet
+Authentication type : PAP or CHAP
+APN type : default
+APN protocol : IPv4/IPv6
+APN roaming protocol : IPv4/IPv6
+MMS/Proxy
+از APN حذف کنید
+فقط این گزینه هارو اینجوری ست کنید بعد ذخیره کنید و بعد اون پروفایل APN رو انتخاب کنید.
+مشکل حل میشه
+</div>
+
+## rodast_omiddana — post 71729
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71729" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_مجتبی خامنه ای دستور داد اورانیوم خارج نره!_شانس حمله ترامپ به رژیم بالا رفته!
+</div>
+
+## rodast_omiddana — post 71728
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71728" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈مجتبی خامنه ای دستور داد اورانیوم خارج نره!_شانس حمله ترامپ به رژیم بالا رفته!
+</div>
+
+## rodast_omiddana — post 71727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_مجتبی خامنه ای دستور داد اورانیوم خارج نره!_شانس حمله ترامپ به رژیم بالا رفته!
+</div>
+
+## rodast_omiddana — post 71726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_مجتبی خامنه ای دستور داد اورانیوم خارج نره!_شانس حمله ترامپ به رژیم بالا رفته!
+</div>
+
+## KiriMohems — post 47872
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47872_1779407739.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سوتی پشم ریزون تو صدا و سیما
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252155
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252155_1779407741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس و خانواده @SportBaadNews
+</div>
+
+## IranIntlTV — post 338311
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338311_1779407742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیاست‌های سخت‌گیرانه دونالد ترامپ علیه کانادا نتیجه‌ای معکوس برای واشینگتن در پی داشته است.
+
+نظرسنجی‌های جدید نشان می‌دهد این تنش‌ها نه‌تنها کانادا را تسلیم نکرده، بلکه باعث اتحاد مردم و رکوردشکنی محبوبیت دولت فعلی این کشور شده است.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338310
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338310_1779407743.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرکز تجارت دریایی بریتانیا سطح تهدید در منطقه دریایی خاورمیانه را همچنان «بحرانی» خواند و گفت که تردد در تنگه هرمز همچنان به‌طور چشمگیری کاهش یافته اما در ۴۸ ساعت گذشته هیچ رخداد مرتبط با امنیت در این محدوده گزارش نشده است.
+این نهاد که به نیروی دریایی بریتانیا وابسته است، پنجشنبه ۳۱ اردیبهشت اعلام کرد: «مین‌گذاری در داخل و اطراف مسیرهای جداسازی تردد دریایی همچنان یک تهدید محسوب می‌شود و اختلال در سامانه‌های ناوبری ماهواره‌ای جهانی به‌طور مستمر ادامه دارد.»
+طبق اعلام این مرکز، شناورهای تجاری همچنان در سراسر خلیج عمان و شمال دریای عرب به نیروی دریایی آمریکا گزارش می‌دهند و اجرای محاصره دریایی از سوی این کشور ادامه دارد.
+مرکز تجارت دریایی تردد تجاری در باب‌المندب و خلیج عدن را همچنان «باثبات» توصیف کرد.
+
+https://iranintl.com/202605219066
+</div>
+
+## IranIntlTV — post 338309
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338309_1779407744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ پنجشنبه ۳۱ اردیبهشت در گفت‌وگو با خبرنگاران در کاخ سفید اعلام کرد که مطمئن نیست بتواند این آخر هفته در مراسم ازدواج پسر بزرگش، دونالد ترامپ جونیور، شرکت کند. او دلیل این تردید را درگیری‌های مرتبط با ایران و دیگر مشغله‌های کاری عنوان کرد.
+ترامپ در توضیح این موضوع در دفتر بیضی گفت: «او دوست دارد من در مراسم باشم»، اما افزود: «به او گفتم این زمان‌بندی برای من مناسب نیست، چون موضوعی به نام ایران و مسائل دیگر دارم.»
+بر اساس این اظهارات، مراسم ازدواج دونالد ترامپ جونیور، ۴۷ ساله، و بتینا اندرسون، ۳۹ ساله، قرار است در باهاما برگزار شود. این زوج از سال ۲۰۲۴ وارد رابطه شدند و در دسامبر ۲۰۲۵ نامزد کردند.
+پسر رییس‌جمهوری آمریکا پیش‌تر با ونسا ترامپ ازدواج کرده بود و این زوج پنج فرزند دارند. او همچنین با کیمبرلی گیلفویل نامزد بود که اکنون به عنوان سفیر آمریکا در یونان فعالیت می‌کند.
+
+https://iranintl.com/202605211033
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 02:31
 ---
 
