@@ -7,6 +7,365 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 01:26
+---
+
+## rodast_omiddana — post 71725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*مجتبی خامنه ای دستور داد اورانیوم خارج نره!
+*شانس حمله ترامپ به رژیم بالا رفته!
+لینک یوتیوب:
+https://www.youtube.com/watch?v=5BH_85tdbqk
+</div>
+
+## KiriMohems — post 47871
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎙 خبرنگار خطاب به ترامپ : آخر هفته عروسی پسرته، میری؟
+
+ترامپ : چی بگم والا، دس رو کیرو خایم نذار که خونِ . دوست دارم برم اما یه مسئله به نام ایران هست و کلی کار دارم، امیدوارم توش کنی خوبی داشته باشه.
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47870
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مخبر : اروپایی‌ها چپو راست برای عبور از تنگه هرمز به خایه هامونو میمالن ، خواهش مندیم کمتر بمالید تخمامون حساسه
+⠀
+
+#Berlin
+@Kirimohems
+</div>
+
+## SportBaadNews — post 252154
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252154_1779400602.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس و خانواده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252153
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- همه اون لحظه‌ای که سایت نصفه لود میشه و VPN قاطی میکنه رو تجربه کردیم، مخصوصاً وقتی وسط بازی یا ثبت پیش‌بینی باشی. 
+😑
+
+- ربات رسمی تلگرام وینکوبت کارو راحت و ورود به سایت رو آسون کرده:👇
+
+-
+🤖 @Wincobet_bot
+-
+🤖 @Wincobet_bot
+
+- برای کسایی که بیشتر وقتشون توی تلگرامه، خیلی کاربردیه.
+</div>
+
+## SportBaadNews — post 252152
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252152_1779400603.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️🇵🇹 | طبق گفته اکثر منابع اروپایی و عربی خورخه ژسوس که اول فصل از الهلال به النصر اومده بود حالا پس از قهرمان کردن این تیم تو لیگ تا چند روز دیگه رسما از این باشگاه جدا میشه و میخواد بره و تو پرتغال مربیگری کنه @SportBaadNews
+</div>
+
+## SportBaadNews — post 252151
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252151_1779400604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨
+🇧🇷 فووووری و رسمیییییی: نیمار به اسکواد برزیل دعوت شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252150
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252150_1779400604.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️🇵🇹 | طبق گفته اکثر منابع اروپایی و عربی خورخه ژسوس که اول فصل از الهلال به النصر اومده بود حالا پس از قهرمان کردن این تیم تو لیگ تا چند روز دیگه رسما از این باشگاه جدا میشه و میخواد بره و تو پرتغال مربیگری کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252149
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رونالدو سه سال حضور در النصر: یه لیگ مسی سه سال حضور در اینتر میامی: یه لیگ رسانه چه کارا که نمیکنه! @SportBadTweet | خایمال رونالدو
+</div>
+
+## SportBaadNews — post 252148
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252148_1779400604.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیویی کوتاه از جشن قهرمانی النصر
+
+پشم ریزووووونه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252147
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252147_1779400607.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پروف آوردم برای کریس فنا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشالا هتریک امشب تو خونه 😁😁❤️ 
+🔞 @SporteHub
+</div>
+
+## SportBaadNews — post 252145
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گارناچو و بانو @SportBaadNews
+</div>
+
+## SportBaadNews — post 252144
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252144_1779400608.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🥶🥶🥶🥶
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252143
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252143_1779400609.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم فیلم لحظه بالا بردن جام قهرمانی لیگ عربستان توسط کریستیانو رونالدو 🐐🏆🔥
+@GoalBad
+</div>
+
+## SportBaadNews — post 252142
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252142_1779400611.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این هم جااااااااااااامممممم بالای دستان کریستیانووووووو رونالدوووووو 🐐🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252141
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252141_1779400612.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😘
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252140
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252140_1779400613.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ پست باشگاه یوونتوس برای کریستیانو رونالدو: الان و همیشه 🐐 (بهترین تاریخ) 👏🏻
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252139
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من بعد از دیدن جشن قهرمانی النصر کونم سوخت حقیقتا، به شدت پشم ریزون بود، خفن ترین جشن قهرمانی که تو عمرم دیدم!
+
+چقدر خفن بود، چه عشقی میکنن اینا
+
+کیر تو بختمون
+</div>
+
+## SportBaadNews — post 252138
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252138_1779400614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشمامممم جشن قهرمانیووووو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252137
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252137_1779400615.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس برسه خونه گللللللل سوم رو میزنه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338301
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338301_1779400616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه آمریکا، در پستی در ایکس نوشت ترامپ تاکید کرده است بدون توانایی غنی‌سازی، مسیری برای دستیابی به سلاح هسته‌ای وجود ندارد و به دلیل سابقه «تقلب» جمهوری اسلامی، تهران نباید اجازه ادامه غنی‌سازی را داشته باشد.
+او با هشدار درباره اینکه جمهوری اسلامی می‌تواند از حدود ۴۴۰ کیلوگرم اورانیوم با غنای بالا برای ساخت «بمب کثیف» یا غنی‌سازی بیشتر تا سطح ۹۰ درصد برای تولید سلاح هسته‌ای استفاده کند، گفت ترامپ همچنان تاکید دارد که جمهوری اسلامی نباید اجازه حفظ این مواد را داشته باشد.
+او همچنین جلوگیری از ادامه حمایت جمهوری اسلامی از گروه‌های نیابتی را از خطوط قرمز مذاکرات دانست و نوشت: «زمان همه‌چیز را مشخص خواهد کرد.»
+
+https://iranintl.com/202605211326
+</div>
+
+## IranIntlTV — post 338300
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338300_1779400617.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسوشیتدپرس گزارش داد احمد وحیدی، فرمانده سپاه پاسداران، به یکی از چهره‌های اصلی در شکل‌دهی به موضع سخت جمهوری اسلامی در مذاکرات مربوط به پایان جنگ با آمریکا تبدیل شده است.
+
+گفت‌وگو با مهدی نخل‌احمدی، روزنامه‌نگار و فعال سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338299
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338299_1779400620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشینگتن‌پست گزارش داد آمریکا در جریان دفاع از اسرائیل در برابر حملات جمهوری اسلامی طی جنگ اخیر، بیش از ۲۰۰ موشک‌ رهگیر سامانه تاد--حدود نیمی از کل موجودی پنتاگون-- را مصرف کرده است.
+
+بر اساس ارزیابی‌های وزارت دفاع آمریکا که واشینگتن‌پست به نقل از منابع آگاه منتشر کرده، همچنین بیش از ۱۰۰ موشک اس‌ام۳ و اس‌ام۶ از ناوهای آمریکایی در شرق مدیترانه استفاده شده است.
+
+در مقابل، اسرائیل کمتر از ۱۰۰ موشک رهگیر «پیکان» و حدود ۹۰ موشک «فلاخن داوود» به کار گرفته است؛ برخی از این رهگیرها نیز برای مقابله با پرتابه‌های ساده‌تر گروه‌های نیابتی جمهوری اسلامی در یمن و لبنان استفاده شده‌اند.
+https://iranintl.com/202605217861
+</div>
+
+## IranIntlTV — post 338298
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338298_1779400620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «کنترل کامل تنگه هرمز را در اختیار داریم و حصر دریایی صد درصد موفق بوده است. هیچ کشتی‌ای بدون اجازه ما وارد یا خارج نمی‌شود.»
+
+او افزود: «یا مطمئن می‌شویم جمهوری اسلامی سلاح هسته‌ای نداشته باشد، یا مجبور می‌شویم اقدامی قاطع انجام دهیم.»
+
+ترامپ همچنین گفت جمهوری اسلامی روزانه حدود ۵۰۰ میلیون دلار از دست می‌دهد و آمریکا اجازه نخواهد داد تهران دوباره به اورانیوم غنی‌شده دسترسی پیدا کند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338297
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338297_1779400623.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با انتشار گزارش‌ها از افزایش نفوذ تندروها و نقش پررنگ‌تر سپاه در تصمیم‌های نظامی و مذاکراتی تهران، آسوشیتدپرس می‌گوید حمد وحیدی، فرمانده سپاه پاسداران، از چهره‌های کلیدی در مواضع سخت جمهوری اسلاامی در مذاکرات با آمریکا شده است.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338296
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338296_1779400625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال النصر در هفته پایانی لیگ حرفه‌ای عربستان سعودی با نتیجه ۴-۱ ضمک اف‌سی را شکست داد و با ۸۶ امتیاز بالاتر از الهلال به مقام قهرمانی رسید. گل‌های النصر را در این بازی سادیو مانه، کومان و کریستیانو رونالدو (۲بار) به ثمر رساندند. رونالدو با دو گلی که به ثمر رساند تعدادگل‌های خود را به عدد ۹۷۳ رساند.
+
+🔹در دیگر بازی لیگ حرفه‌ای عربستان سعودی، الهلال دیگر تیم مدعی قهرمانی با نتیجه ۱-۰ الفیحا را شکست داد و با ۸۴ امتیاز در رده دوم قرار گرفت.
+
+🔹الاهلی، قهرمان دو دوره اخیر لیگ نخبگان آسیا با ۸۱ امتیاز در رده سوم قرار گرفت.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338295
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338295_1779400626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت: «در حال حاضر با آنها مذاکره می‌کنیم و خواهیم دید چه می‌شود، اما به هر حال به هدفمان خواهیم رسید. نمی‌توانیم اجازه بدهیم به سلاح هسته‌ای دست پیدا کنند.»
+
+ترامپ همچنین هشدار داد: «در صورت وقوع چنین وضعیتی، خاورمیانه ممکن است با بحران و حتی خطر جنگ هسته‌ای روبه‌رو شود؛ بحرانی که می‌تواند به اروپا و فراتر از آن گسترش پیدا کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338294
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338294_1779400629.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ می‌گوید آمریکا «کنترل کامل» تنگه هرمز را در دست دارد و محاصره دریایی علیه جمهوری اسلامی «صد درصد موفق» بوده است. او همچنین گفت واشینگتن اورانیوم غنی‌شده ایران را «می‌گیرد و نابود می‌کند».
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14642
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14642" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو امشب پنجشنبه ۳۱ اردیبهشت
+نسخه کم حجم ۶.۷ مگابایت
+
+اخبار ضد و نقیض از توافق ایران و آمریکا
+
+🫆SJ
+
+@persian_trend_official
+</div>
+
+## Persian_Trend_Official — post 14641
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14641_1779400632.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رئیس جمهور آمریکا:
+
+🔹بر اساس انتخاب موفقیت آمیز رئیس‌جمهور فعلی لهستان، کارول ناوروسکی، که من افتخار داشتم از او حمایت کنم
+خوشحالم اعلام کنم که ایالات متحده ۵۰۰۰ نیروی اضافی به لهستان اعزام خواهد کرد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 23:55
 ---
 
