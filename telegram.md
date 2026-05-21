@@ -7,6 +7,707 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 23:55
+---
+
+## rodast_omiddana — post 71724
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71724_1779395135.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری_الحدث:
+"عاصم منیر فرمانده ارتش پاکستان امشب به تهران نخواهد آمد"
+
+این یعنی به امید خدا تا دوشنبه میتواند جنگ آغاز شود..
+</div>
+
+## rodast_omiddana — post 71723
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71723_1779395135.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سلام امید عزیز
+جنوب غرب تهران ساعت نه و نیم بود که صدای چندتا انفجار اومد
+</div>
+
+## rodast_omiddana — post 71722
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71722_1779395136.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 داداش غرب تهران آسمون پر پهباده یعنی یه نگاه انداختم بالا سرم ۸-۹ تا بالای ابرا بود به سمت جنوب میرفتن با سرعت
+</div>
+
+## rodast_omiddana — post 71721
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71721_1779395136.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 میفهمم ناراحت هستید چند روز درگیر چند لاشخور شدم..
+متاسفانه برخی چیزها اجتناب ناپذیره، من مدتهاست سکوت کردم و نمیخواستم وارد این درگیریها بشم..
+ولی وقتی میبینی از سکوتت یک عده از خون جاویدنامان ماهی دستکم یکبار در بورلی هیلز لس آنجلس فاندریزینگ میزارند و میلیون دلاری پول جمع میکنند بعدش شاهزاده چهارتا بادیگارد خصوصی نداره، و روشن نیست این پولها چه میشود به آدم فشار میاد ولی باز سکوت کردم..
+وقتی میفهمی حضرات مداح دیروز بیت و رپر امروز دفتر برای رفتن به تظاهرات پول میگیرند تا جاویدشاه بگن و تو باز برای اتحاد سکوت میکنی، و نتیجه میشود اینبار با نام جاویدنامان میخواهن کنسرت بزارند، و برای اینکار حاضرن به اسطوره ملی ایران علی کریمی هم توهین کنند و بخواهند استبداد آخوندی را به شکل دیگر احیا کنند، اینجاست که دیگر اجازه نداری سکوت کنی...
+از همه شما مخاطبان پوزش میخواهم ولی راهی ندارم جز اینکه این مسئله را به سرانجام برسانم..
+دوستتون دارم و امیدوارم اهمیت موضوع را درک کرده باشید
+</div>
+
+## rodast_omiddana — post 71720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 برنامه امشب:
+*ترامپ حمله میکند یا به محاصره اقتصادی ادامه میدهد؟
+*مردم ایران نگرانن که فعلا جنگ نشه!
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## KiriMohems — post 47869
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47869_1779395136.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆🎖 و بالاخره طلسم کیری ننش گایده شد
+
+
+النصر با برد برابر ضمک قهرمان و کیر کلفت لیگ عربستان شد تا کریستیانو رونالدو اولین جام رسمی خود را با این تیم دشت کند
+✅ با بریس برابر ضمک ، گل شماره ۹۷۳ اقا کریستیانو رونالدو به ثمر رسید
+
+#Berlin
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌یه VPN  کار درست پیدا کردیم استارلینک با مدرک!  فقط پرداختش ارزیه اما معتبره با سرعت خیلی سوپر
+⚡️ کانالش: @iranvpn @iranvpn ثبت سفارش پشتیبانش: @IranVPNManager ﻿
+</div>
+
+## KiriMohems — post 47867
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌یه VPN  کار درست پیدا کردیم استارلینک با مدرک!  فقط پرداختش ارزیه اما معتبره با سرعت خیلی سوپر
+⚡️
+
+کانالش:
+@iranvpn
+@iranvpn
+ثبت سفارش پشتیبانش: @IranVPNManager
+﻿
+</div>
+
+## KiriMohems — post 47866
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47866_1779395137.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیتزافروشی‌های اطراف پنتاگون شلوغ شده، و به ۵۰٪ سفارش رسیده!
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252136
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پشمام جشن قهرمانی رو
+
+پشم ریزون ترین جشن قهرمانی که تو زندگیم دیده بودم هست
+</div>
+
+## SportBaadNews — post 252135
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252135_1779395138.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جو رو پسرررررررر 🔥🔥🔥
+لبخند از ته رونالدو رو ببین پسرررر🔥🔥
+جو ورزشگاه رو 🔥🔥🔥🔥🔥
+
+
+🟡 ارزش دانلود 100000 از 10
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252134
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252134_1779395142.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ رسسسسسسسسسسسسسسمی؛ رونالدو بعد از 3 سال و از دست دادن 14 جاممممم بالاخره با قهرمانی تو لیگ عربستان اولین جام خودش رو با النصر به دست آورد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252132
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252132_1779395142.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 قرعه کشی 10 سرور 10 گیگی کانال @VpnBadNews ، جهت شرکت در قرعه کشی روی ربات زیر استارت کنید، دکمه شرکت در قرعه کشی رو بزنید و کدی که دریافت میکنید رو حتما سیو کنید که بعدا کد مخصوص خود را گم نکنید، نتیجه قرعه کشی ساعت 00:00 اعلام میشه داخل کانال: @VpnBadNews…
+</div>
+
+## SportBaadNews — post 252131
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252131_1779395143.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 قرعه کشی 10 سرور 10 گیگی کانال @VpnBadNews ، جهت شرکت در قرعه کشی روی ربات زیر استارت کنید، دکمه شرکت در قرعه کشی رو بزنید و کدی که دریافت میکنید رو حتما سیو کنید که بعدا کد مخصوص خود را گم نکنید، نتیجه قرعه کشی ساعت 00:00 اعلام میشه داخل کانال: @VpnBadNews
+
+
+🤖 @vpnbadnews_bot
+
+🤖 @vpnbadnews_bot
+
+ربات جهت شرکت ☝️☝️☝️
+</div>
+
+## SportBaadNews — post 252130
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252130_1779395144.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+◀️ کریستیانو رونالدو با قهرمانی تو لیگ حرفه‌ای عربستان این آمار زیر رو تکمیل تر کرد:
+
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 لیگ انگلیس رو فتح کرده
+🇪🇸 لیگ اسپانیا رو فتح کرده
+🇮🇹 لیگ ایتالیا رو فتح کرده
+🇵🇹 لیگ پرتغال رو فتح کرده
+🇪🇺 چمپیونزلیگ رو فتح کرده
+🇸🇦 عربستان رو فتح کرد
+
+
+🏆 5 تا لیگ قهرمانان اروپا
+
+🏆 2 تا سوپرجام اروپا
+
+🏆 1 قهرمانی یورو
+
+🏆 2 تا لیگ ملت‌ ها
+
+🏆 4 تا جام باشگاه‌های جهان
+
+🏆 3 تا لیگ برتر انگلیس
+
+🏆 2 تا جام اتحادیه انگلیس
+
+🏆 1 جام حذفی انگلیس
+
+🏆 2 تا لالیگا اسپانیا
+
+🏆 2 تا سوپرجام اسپانیا
+
+🏆 1 جام حذفی اسپانیا
+
+🏆 2 تا سوپرجام ایتالیا
+
+🏆 2 تا سری آ ایتالیا
+
+🏆 1 جام حذفی ایتالیا
+🇸🇦 1 جام باشگاه‌های عرب
+🇸🇦 1 لیگ حرفه ای عربستان
+
+🏆 5 تا توپ طلا
+
+👟 4 تا کفش طلا
+
+⬆️ آقای گل تمام دوران تاریخ فوتبال
+⚽ 973 گل در طول دوران حرفه‌ای
+
+
+🔥
+🔥
+🔥
+🔥
+🔥
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252129
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتی کریس هم بعد 3 سال جام زد ولی میلاد حقوق مارو نداده هنوز
+</div>
+
+## SportBaadNews — post 252128
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حتی کریس هم بعد 3 سال جام زد ولی میلاد حقوق مارو نداده هنوز
+</div>
+
+## SportBaadNews — post 252127
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252127_1779395144.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ رسسسسسسسسسسسسسسمی؛ رونالدو بعد از 3 سال و از دست دادن 14 جاممممم بالاخره با قهرمانی تو لیگ عربستان اولین جام خودش رو با النصر به دست آورد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252125
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252125_1779395145.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ رسسسسسسسسسسسسسسمی؛ رونالدو بعد از 3 سال و از دست دادن 14 جاممممم بالاخره با قهرمانی تو لیگ عربستان اولین جام خودش رو با النصر به دست آورد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252124
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252124_1779395146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+41 سالگی و این حرفا... 
+🔥
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252123
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252123_1779395146.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بخند مرد، بخنددددد ما به گریه هات عادت نداریم 🥲
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252122
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رونالدو هم تعویض شد بعد 87 دقیقه بازی دو گل زده
+</div>
+
+## SportBaadNews — post 252121
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252121_1779395147.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشکای کریس بعد از گل چهارم اشک شادی @SportBaadNews
+</div>
+
+## SportBaadNews — post 252120
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252120_1779395148.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اشکای کریس بعد از گل چهارم اشک شادی @SportBaadNews
+</div>
+
+## SportBaadNews — post 252116
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252116_1779395148.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گگلگلللل چهارمممم النصررر، دبللل کریستیانوووو: WATCH
+</div>
+
+## SportBaadNews — post 252115
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گگلللل چهارم النصررر توسططط کریستیانوووووو
+</div>
+
+## SportBaadNews — post 252114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کریس از خوشحالی داره گریه میکنه
+</div>
+
+## SportBaadNews — post 252112
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هنوزم اون رونالدوی قدیمیییی زنده‌ستتتتت
+</div>
+
+## SportBaadNews — post 252111
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گگلللل چهارم النصررر توسططط کریستیانوووووو
+</div>
+
+## IranIntlTV — post 338293
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338293_1779395149.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز به نقل از یک منبع ارشد ایرانی نوشت هنوز هیچ توافقی میان تهران و واشینگتن حاصل نشده، اما شکاف‌ها کاهش یافته است.
+
+این منبع افزود غنی‌سازی اورانیوم و کنترل جمهوری اسلامی بر تنگه هرمز همچنان از جمله موارد اختلاف در مذاکرات است.
+https://iranintl.com/202605214677
+</div>
+
+## IranIntlTV — post 338292
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338292_1779395150.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم فوتبال النصر در هفته پایانی لیگ حرفه‌ای عربستان سعودی با نتیجه ۴-۱ داماک اف‌سی را شکست داد و با ۸۶ امتیاز بالاتر از الهلال به مقام قهرمانی رسید. گل‌های النصر را در این بازی سادیو مانه، کومان و کریستیانو رونالدو (۲بار) به ثمر رساندند. رونالدو با دو گلی که به ثمر رساند تعدادگل‌های خود را به عدد ۹۷۳ رساند.
+
+🔹در دیگر بازی لیگ حرفه‌ای عربستان سعودی، الهلال دیگر تیم مدعی قهرمانی با نتیجه ۱-۰ الفیحا را شکست داد و با ۸۴ امتیاز در رده دوم قرار گرفت.
+
+🔹الاهلی، قهرمان دو دوره اخیر لیگ نخبگان آسیا با ۸۱ امتیاز در رده سوم قرار گرفت.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338291
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338291_1779395151.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی الزیدی، نخست وزیر عراق، در شبکه ایکس درباره حملات اخیر به امارات متحده عربی و عربستان سعودی نوشت: «ما بار دیگر این اقدام جنایتکارانه که پادشاهی عربستان سعودی و امارات متحده عربی را هدف قرار داد، محکوم و تقبیح می‌کنیم.»
+
+او افزود: «ما دستور افشای جزئیات این حملات جنایتکارانه را صادر کرده‌ایم و یک کمیته تحقیقاتی نخبه در اولین جلسه شورای وزیران امنیت ملی تشکیل شده است.»
+
+نخست‌وزیر عراق نوشت: «ما بر اهمیت تحقیقات مشترک با برادرانمان در دو کشور، با هدف بررسی همه جوانب، تاکید می‌کنیم.»
+https://iranintl.com/202605219998
+</div>
+
+## IranIntlTV — post 338289
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338289" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: اورانیوم ایران را می‌گیریم و نابود می‌کنیم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338288
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338288_1779395152.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور ارشد رییس دولت امارات، گفت کشورهای منطقه سال‌ها با رفتارهای تهدیدآمیز و زورگویانه جمهوری اسلامی روبه‌رو بوده‌اند. او افزود بازسازی اعتماد با شعار ممکن نیست و نیاز به احترام عملی به حاکمیت کشورها دارد.
+
+گفت‌وگو با علیرضا نوری‌زاده، مدیر مرکز پژوهش‌های ایران و عرب
+@iranintltv
+</div>
+
+## IranIntlTV — post 338287
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338287_1779395156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آسوشیتدپرس گزارش داد با افزایش ابهام درباره وضعیت رهبری جمهوری اسلامی، نفوذ جریان‌های تندرو در ساختار قدرت ایران بیشتر شده است.
+
+موسسه مطالعات جنگ در واشینگتن نیز اعلام کرد احمد وحیدی و نزدیکانش کنترل پاسخ نظامی و سیاست مذاکراتی تهران را در دست گرفته‌اند.
+
+گفت‌وگو با مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338286
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338286" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی دومینو: نفس‌های جنگ پشت دروازه‌های ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338285
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338285_1779395159.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حامد تیزرویان، عکاس حیات‌وحش و فعال محیط زیست، ۱۴ اردیبهشت ۱۴۰۵ در ساری بازداشت شده است. بر اساس اطلاعات منتشرشده، ماموران در جریان این بازداشت، تلفن همراه و دیگر وسایل الکترونیکی او را نیز ضبط کردند. اتهام مطرح‌شده علیه او «اجتماع و تبانی با هدف اقدام علیه امنیت ملی» عنوان شده است.
+گزارش‌ها حاکی است بازداشت این عکاس حیات‌وحش پس از انتشار مطالبی انتقادی در شبکه‌های اجتماعی صورت گرفته است. این مطالب شامل انتقاد از کشتار معترضان در دی‌ماه و همچنین اعتراض به اجرای احکام اعدام بوده است.
+حامد تیزرویان از عکاسان شناخته‌شده در حوزه حیات‌وحش ایران به شمار می‌رود. ثبت تصاویر کمیاب از گونه‌هایی مانند خرس قهوه‌ای و مرال که در معرض خطر انقراض قرار دارند، بخشی از فعالیت حرفه‌ای او بوده است
+https://iranintl.com/202605219434
+</div>
+
+## IranIntlTV — post 338284
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338284_1779395160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی با رد گمانه‌زنی‌ها درباره جزییات مذاکرات مرتبط با پایان جنگ گفت: ادعاهای مطرح شده در رسانه‌ها درباره مباحث هسته‌ای از جمله مواد غنی شده یا بحث غنی‌سازی، گمانه‌زنی رسانه‌ای بوده و فاقد اعتبار است.
+
+او همچنین گفت در این مرحله، تمرکز مذاکرات بر خاتمه جنگ در همه جبهه‌ها از جمله لبنان است.
+https://iranintl.com/202605215041
+</div>
+
+## IranIntlTV — post 338283
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338283_1779395161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث شامگاه پنج‌شنبه به نقل از یک منبع دیپلماتیک ارشد اعلام کرد که فرمانده ارتش پاکستان امشب به تهران سفر نخواهد کرد.
+
+پیش‌تر الحدث گزارش داده بود فرمانده ارتش پاکستان ممکن است روز پنج‌شنبه برای اعلام نهایی شدن متن توافق میان تهران و واشینگتن به ایران سفر کند.
+https://iranintl.com/202605213043
+</div>
+
+## IranIntlTV — post 338282
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338282_1779395161.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه به نقل از یک مقام ارشد جمهوری اسلامی گزارش داد «تصمیم نهایی مجتبی خامنه‌ای این است که اورانیوم غنی‌شده به واشینگتن تحویل داده نشود.»
+
+این در حالی است که دونالد ترامپ در صحبت‌های روز پنج‌شنبه خود در کاخ سفید درباره اورانیوم غنی‌شده ایران گفت: «ما اورانیوم بسیار غنی‌شده را می‌گیریم. اجازه نمی‌دهیم آن‌ها آن را داشته باشند.» او افزود پس از در اختیار گرفتن این مواد، احتمالا آن را نابود خواهند کرد.
+https://iranintl.com/202605213164
+</div>
+
+## IranIntlTV — post 338281
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338281_1779395162.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338280
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338280_1779395164.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338279
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال خطاب به رهبران آمریکا و اسرائیل خواست که مردم ایران را تنها نگذارند و افزود منتظر فراخوان شاهزاده پهلوی برای اعتراضات است. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## Persian_Trend_Official — post 14639
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ویدیویی دیگر از از زیر دریایی مرطوب السابحات برای دوستانی که تصور میکردن هوش مصنوعی است ... 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14637
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14637_1779395166.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢در این ویدیو زیر دریایی السابحات ۲ رو مشاهده میکنید 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14636
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14636_1779395167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢در این ویدیو زیر دریایی السابحات ۲ رو مشاهده میکنید
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14635
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢خبرنگار : آیا شهید رئیسی ترور شد؟
+
+🔻مخبر:
+▪️هیچوقت نتوانستم قبول کنم حادثه هلی‌کوپتر شهید رئیسی یک سقوط ساده بود و  همچنان نیز قبول ندارم.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران سال‌ها با پهپادهای ارزان آمریکا را به دردسر انداخت. حالا پنتاگون همان سلاح را با فناوری برتر علیه خودش آماده می‌کند.
+
+وزارت دفاع آمریکا شرکت Shield AI را مأمور کرده تا نرم‌افزار ازدحام هوشمند Hivemind را روی پهپاد LUCAS نصب کند؛ پهپادی که مستقیماً از روی طرح شاهد ایرانی کپی شده.
+
+این سیستم به یک اپراتور اجازه می‌دهد صدها پهپاد خودران را بدون هیچ دخالت انسانی هدایت کند. آزمایش‌های عملیاتی پاییز ۲۰۲۶ برنامه‌ریزی شده‌اند.
+
+مقامات پنتاگون می‌گویند این تصمیم پاسخ مستقیمی است به معادله‌ای که ایران کشف کرد؛ یک پهپاد ۲۰ هزار دلاری در برابر یک موشک ۳ میلیون دلاری. آمریکا می‌خواهد این معادله را برعکس کند.
+
+بودجه پیشنهادی ۲۰۲۷ برای پهپاد و سیستم‌های خودران به ۵۳.۶ میلیارد دلار رسیده؛ بزرگ‌ترین رقم در تاریخ نظامی آمریکا در این
+حوزه.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اسماعیل کوثری، عضو کمیسیون امنیت ملی مجلس
+
+💢 اگر امارات از مکان‌هایی که در اختیار آمریکا گذاشته علیه ما استفاده کند، قطعا آنجا را زیر آتش موشک‌های خود می‌بریم.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14630
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یدیعوت آحرونوت: حملات ایران به چند پایگاه مهم اسرائیل خسارت وارد کرده است
+
+💢روزنامه «یدیعوت آحرونوت» گزارش داد تصاویر ماهواره‌ای نشان می‌دهد چندین پایگاه نظامی اسرائیل در حملات اخیر ایران آسیب دیده‌اند.
+
+🔻بر اساس این گزارش:
+
+▪️ پایگاه هوایی «رمات داوید» دچار خسارت شده است
+▪️ احتمال آسیب‌دیدگی در پایگاه «نواتیم» نیز مطرح شده
+▪️ پایگاه وابسته به واحد اطلاعاتی ۸۲۰۰ و چند مرکز نظامی دیگر نیز هدف قرار گرفته‌اند
+
+🔻همچنین تصاویر ماهواره‌ای نشان می‌دهد:
+
+▪️ در اردوگاه «شمشون» نزدیک طبریا آتش‌سوزی گسترده‌ای رخ داده است
+▪️ این آتش‌سوزی از ۱۰ مارس، همزمان با اعلام حمله پهپادی حزب‌الله به این پایگاه آغاز شده
+▪️ بر اساس تحلیل تصاویر، آتش چند روز ادامه داشته و حدود ۲۰۰ متر از محوطه داخلی پایگاه را دربر گرفته است
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14629
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ گزارشات حاکی از عدم پذیرش باز کردن تنگه هرمز توسط ایران است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢الحدث به نقل از یک منبع دیپلماتیک:
+
+🔻فرمانده ارتش پاکستان امشب به تهران سفر نخواهد کرد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14627
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14627_1779395170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ روزنامه The Wall Street Journal در گزارشی اعلام کرد که اسرائیل پس از حملات ۷ اکتبر ۲۰۲۳، یک عملیات گسترده اطلاعاتی و امنیتی را برای شناسایی، بازداشت یا حذف عاملان این حملات آغاز کرده است.
+
+بر اساس این گزارش، این عملیات توسط واحدی ویژه موسوم به «NILI» و با استفاده از ابزارهای نظارتی، داده‌های اطلاعاتی و رصد میدانی دنبال می‌شود.
+
+وال‌استریت ژورنال همچنین نوشت که این اقدامات در کنار اهداف امنیتی، با انتقاداتی درباره تشدید درگیری‌ها و افزایش تلفات غیرنظامی نیز مواجه شده است.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14625
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14625_1779395170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 واشنگتن‌پست: آمریکا بخش اصلی دفاع موشکی اسرائیل مقابل ایران را بر عهده داشت
+
+💢روزنامه واشنگتن‌پست گزارش داد ایالات متحده در جریان درگیری اخیر ایران و اسرائیل، نقش بسیار پررنگ‌تری از تل‌آویو در رهگیری موشک‌ها ایفا کرده است.
+
+🔻بر اساس این گزارش:
+
+▪️ نیروهای آمریکایی بیش از ۲۰۰ موشک رهگیر پیشرفته THAAD شلیک کردند
+▪️ این رقم تقریباً معادل نیمی از کل ذخایر سامانه THAAD آمریکا عنوان شده است
+▪️ علاوه بر آن، بیش از ۱۰۰ موشک رهگیر دریایی نیز توسط آمریکا پرتاب شده است
+
+در مقابل:
+
+▪️ اسرائیل در مجموع کمتر از ۲۰۰ موشک رهگیر پیشرفته خود را استفاده کرده است
+
+💢واشنگتن‌پست می‌گوید این اختلاف نشان می‌دهد واشنگتن تا چه اندازه بار اصلی دفاع موشکی اسرائیل را در این درگیری بر دوش کشیده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 21:57
 ---
 
