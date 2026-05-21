@@ -7,6 +7,778 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 20:04
+---
+
+## ChizBergerz — post 46635
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46635_1779381279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## ChizBergerz — post 46634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تا حالا بدون واریزی روی فوتبال ها شرط بستی؟! 
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی! 
+💳 شارژ سریع و امن با درگاه ریالی ، تتر یا ترون فقط با یک کلیک! 
+⌛ پشتیبانی 24 ساعته 
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:…
+</div>
+
+## ChizBergerz — post 46633
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46633_1779381280.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تا حالا بدون واریزی روی فوتبال ها شرط بستی؟!
+
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 شارژ سریع و امن با درگاه ریالی ، تتر یا ترون فقط با یک کلیک!
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g31
+
+📱 @winro_io
+</div>
+
+## ChizBergerz — post 46632
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46632_1779381281.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اول اینکه کیرم تو کص مادرت آقای ویلسون.
+دومن پرچم جمهوری‌اسلامی از پهنا تو کص خواهرت حرومزاده ولد‌الزنا!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46631
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46631_1779381281.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیم کیلو چیپس ساده شده نیم میلیون تومن! کیرم تو قبرت خمینی مادرقحبه!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46628
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گلی به جمال مهلقا جابری
+با یه طراحی یقه صدای مردم رسوند
+
+بی‌ادعا با این همه کمالات و زیبایی یه گوشه نشسته استوری‌شو میذاره مبارزشو میکنه، بعضیا تخم ایشونم نیستن ولی کم مونده ادعای اسپارتاکوسی کنن.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46627
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تمام آن‌چیزی که امروز مرز بین توافق و جنگ را تعیین می‌کند، موضوع اورانیوم غنی‌شده است.
+اگر تحویلش دهند، جنگ، موقتا متوقف می‌شود.
+اگر بخواهند حفظش کنند، در زودترین زمان جنگ آغاز می‌شود.
+
+-علی حسین قاضی زاده-
+</div>
+
+## ChizBergerz — post 46626
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏از کانفیگ خریدن خسته شدم، دلم میخواد برم اینستا، برم یوتوب، برم تیک تاک، برم تو کص مادر وزیر ارتباطات...
+</div>
+
+## rodast_omiddana — post 71715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 کمپین همچون شاهزاده سرباز ایران هستم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=m1zR7lCmWhw
+</div>
+
+## rodast_omiddana — post 71714
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71714_1779381282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 میدل ایست آی:
+"سه منبع گفتند که انتظار دارند جنگ در هفته‌های آینده و پس از پایان دوره حج، از سر گرفته شود.
+ایالات متحده در گذشته از سیگنال‌های فریبنده و حیله‌های دیگر استفاده کرده تا سعی کند طرف مقابل را دچار احساس امنیت کاذب کند."
+</div>
+
+## rodast_omiddana — post 71713
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71713_1779381282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آکسیوس:
+"یک منبع آمریکایی گفت ترامپ به نتانیاهو گفته است که میانجی‌ها در حال کار بر روی یک «توافقنامه» هستند که هم ایالات متحده و هم ایران آن را امضا خواهند کرد تا رسماً به جنگ پایان دهند و یک دوره ۳۰ روزه مذاکره در مورد مسائلی مانند برنامه هسته‌ای ایران و باز شدن تنگه هرمز را آغاز کنند"
+
+
+فقط میتونم بگم نگران نباشید با هر سناریویی جمهوری اسلامی سقوط خواهد کرد
+</div>
+
+## rodast_omiddana — post 71712
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71712_1779381282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فکت
+در طول جنگ 39 روزه رژیم نفتش را میتوانست بفروشه و از نظر مالی به مشکل جدی نخورد..
+ولی در طول این آتش بس یک قطره نفت تازه تولید شده اش را نتونسته بفروشه و داره از نظر اقتصادی نابود میشه..
+
+پانوشت:
+احتمال اینکه ترامپ فعلا حمله نکنه تا این محاصره دریایی حسابی رژیم را ضعیف کند و سپس حمله کند..
+فقط روی اعصابتان مسلط باشید، به ایران قسم ته این ماجرا رژیم رفتنی هست، خدا لعنت کنه اون بیشرفهایی که به شما گفتن جنگ ده روزه تمام میشه و رژیم سرنگون میشه که امروز به این حال در بیاید..
+شاید الان اصرار منو روز اول جنگ که گفتم خودتونو دستکم تا سپتامبر آماده کنید بهتر درک کنید..
+در هر صورت پایان این ماجرا سقوط رژیم است، شک نکن خواهشا..
+</div>
+
+## rodast_omiddana — post 71708
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71708_1779381282.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کمپین همچون شاهزاده سرباز ایران هستم
+</div>
+
+## rodast_omiddana — post 71707
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71707_1779381284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود به شما
+ساعت 13 و 50 دقیقه اصفهان اول صدایی شبیه جنگده آمد و بعد شدید صدای پدافند آمد
+</div>
+
+## rodast_omiddana — post 71706
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71706_1779381284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 برای وطن هر کاری لازم باشه میکنم
+</div>
+
+## KiriMohems — post 47859
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47859_1779381284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توئیت حشری وزیر جنگ آمریکا، پیت هگست : "آماده و مسلح"
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252065
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252065_1779381285.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+⚽️سانتی اونا: اوضاع تو لیورپول داره سریع پیش میره و مدیریت ممکنه اشلوت رو اخراج کنه، آندونی ایرائولا سرمربی فعلی بورنموث اصلی‌ترین گزینه‌ی جایگزینی اشلوت هست
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252064
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252064_1779381285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡ فروش فیلترشکن اختصاصی استارلینک، قوی، بدون قطعی و از همه مهمتر بدون ضریب، آیپی ثابت
+
+سرور اقتصادی:
+
+🔴 1 گیگ: 240
+
+🔴 2 گیگ: 450
+
+🔴 5 گیگ: 1.100
+
+🔴 10+1 گیگ: 2.200
+
+🔴 15+1 گیگ: 3.590
+
+🔴 20+2 گیگ: 4.200
+
+استارلینک:
+
+🔴 1 گیگ: 340
+
+🔴 2 گیگ: 660
+
+🔴 5 گیگ: 1.620
+
+🔴 10+1 گیگ: 2.960
+
+🔴 15+1 گیگ: 4.560
+
+🔴 20+2 گیگ: 5.460
+
+
+❗️به ازای هر 10 گیگ خرید، 1 گیگ اشانتیون میگیرید
+
+
+🔰 کانالمون:
+@VpnBadNews
+
+
+🤖 ربات جهت خرید سرور
+@vpnbadnews_bot
+</div>
+
+## IranIntlTV — post 338271
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338271_1779381286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مازیار نوروزی، ورزشکار و فعال مدنی، روز پنجشنبه ۱۸ دی‌ماه در جریان انقلاب ملی در گرگان با گلوله ماموران حکومت کشته شد.
+به گفته نزدیکانش، او جوانی پرنشاط و فعال بود که در زمینه آموزش شنا فعالیت می‌کرد. او تحصیلکرده مقطع کارشناسی ارشد رشته صنایع چوب و کاغذ بود.
+مقام‌های حکومت به خانواده‌اش فشار آوردند تا او را «شهید» معرفی کنند. دوستان مازیار نوروزی گفتند که او در کنار اشتغال و فعالیت اجتماعی به دنبال تشکیل خانواده بود.
+https://iranintl.com/202605219786
+</div>
+
+## IranIntlTV — post 338270
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338270_1779381286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در کاخ سفید گفت جمهوری اسلامی قرار نیست سلاح هسته‌ای داشته باشد و آمریکا اجازه چنین اتفاقی را نمی‌دهد. او هشدار داد در صورت دستیابی ایران به سلاح هسته‌ای، جنگی هسته‌ای در خاورمیانه آغاز خواهد شد که می‌تواند به اروپا و حتی آمریکا کشیده شود، اما تأکید کرد چنین اتفاقی رخ نخواهد داد.
+
+ترامپ درباره اورانیوم غنی‌شده ایران گفت: «ما اورانیوم بسیار غنی‌شده را می‌گیریم. اجازه نمی‌دهیم آن‌ها آن را داشته باشند.» او افزود پس از در اختیار گرفتن این مواد، احتمالا آن را نابود خواهند کرد.
+
+رییس‌جمهور آمریکا همچنین اعلام کرد واشینگتن با دریافت عوارض در تنگه هرمز مخالف است و گفت محاصره دریایی آمریکا «۱۰۰ درصد موثر» بوده و هیچ کشتی‌ای بدون تایید آمریکا به ایران وارد یا از آن خارج نشده است.
+https://iranintl.com/202605215920
+</div>
+
+## IranIntlTV — post 338269
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338269" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | پنجشنبه ۳۱ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338268
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338268_1779381287.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس‌نیوز در گزارشی نوشته است که زندگی مخفیانه مجتبی خامنه‌ای در ماه‌های اخیر، شباهت‌هایی با سال‌های پایانی زندگی اسامه بن‌لادن دارد. او بدون ارتباطات مخابراتی و با اتکا به پیک‌های مورد اعتماد زندگی می‌کند و احتمال می‌رود در سایت‌های مستحکم زیرزمینی نزدیک به تاسیسات سپاه پنهان شده باشد.
+جزییات بیشتر با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338267
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338267_1779381288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال می‌گوید در تجمعات حکومتی تهران پرداختی به حاضران بیشتر شده تا شاید تعداد آن‌ها افزایش یابد. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 338266
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338266_1779381291.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی یزدی‌خواه، نایب‌رییس کمیسیون فرهنگی مجلس، گفت نهادهای بالادستی به این نتیجه رسیدند که بازگشایی اینترنت به صلاح همه نیست.
+او افزود با قطع اینترنت «مردم مشکل عمده‌ای» ندارند و به اقشاری که «احساس کردیم» نیاز به اینترنت بین‌الملل دارند، دسترسی داده شد.
+یزدی‌خواه اضافه کرد: «اگرچه در حالت نه جنگ، نه صلح هستیم، اما خطرات امنیتی، شخصیت‌ها و کشور را تهدید می‌کند و به این دلایل تصمیم بر این نیست که دسترسی همگانی داده شود.»
+https://iranintl.com/202605212799
+</div>
+
+## IranIntlTV — post 338265
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338265_1779381291.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی‌که مقامات آمریکایی نسبت به امضای توافق با جمهوری اسلامی خوش‌بینی هستند، آسوشیتدپرس نوشته احمد وحیدی، فرمانده سپاه پاسداران، به بازیگر اصلی در شکل‌دهی به موضع سخت جمهوری اسلامی در مذاکرات برای پایان جنگ بدل شده است.
+جزییات بیشتر با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338264
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338264_1779381293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی در شبکه اجتماعی ایکس با اشاره به تداوم قطعی اینترنت در ایران نوشت: «بیش از ۸۲ روز است حکومت جمهوری اسلامی ارتباط ایرانیان را با جهان قطع کرده تا روایت ساختگی خود را جایگزین صدای آنان کند.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی افزود: «وظیفه ما ایرانیان خارج از کشور این است که حقیقت را به جهان برسانیم و صدای هم‌میهنانی باشیم که دچار خاموشی اجباری شده‌اند.»
+https://iranintl.com/202605213200
+</div>
+
+## IranIntlTV — post 338263
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338263_1779381293.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو گفت اجرای سیستم اخذ عوارض در تنگه هرمز از سوی جمهوری اسلامی، دستیابی به توافق دیپلماتیک را غیرممکن می‌کند.
+
+او افزود: «در مذاکرات مقداری پیشرفت داشته‌ایم، اما روشن است با سیستمی روبه‌رو هستیم که خود تا حدی دچار شکاف است؛ یعنی ساختار حاکم در ایران.» روبیو همچنین گفت قرار است دیدارهایی انجام شود و به گفته او، پاکستانی‌ها قرار است پنج‌شنبه به تهران سفر کنند.
+
+وزیر خارجه آمریکا تاکید کرد ترجیح رییس‌جمهور رسیدن به «یک توافق خوب» است و واشینگتن هر کاری برای تحقق آن انجام خواهد داد، هرچند تضمینی برای دستیابی به توافق وجود ندارد.
+
+روبیو افزود اگر توافقی حاصل نشود، ترامپ گزینه‌های دیگری نیز در اختیار دارد، اما همچنان دیپلماسی را گزینه مطلوب می‌داند. او گفت: «نشانه‌های مثبتی وجود دارد، اما نمی‌خواهیم بیش از حد خوش‌بین باشیم. باید دید در روزهای آینده چه رخ می‌دهد.»
+https://iranintl.com/202605213235
+</div>
+
+## IranIntlTV — post 338262
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338262_1779381294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ مقاله‌ای از نیویورک‌پست را بازنشر کرده که در آن، طرحی سه‌مرحله‌ای برای افزایش فشار بر جمهوری اسلامی مطرح شده است. این طرح بر ادامه محاصره دریایی، اسکورت نظامی نفتکش‌ها در خلیج فارس و ایجاد مسیرهای جایگزین انتقال انرژی برای دور زدن تنگه هرمز تمرکز دارد.
+جزییات بیشتر با احمد صمدی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338261
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338261_1779381295.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با برگزاری نشست وزیران خارجه ناتو در سوئد، گروهی از ایرانیان مقابل محل برگزاری این نشست تجمع کردند. تجمع‌کنندگان خواستار توجه کشورهای عضو ناتو به وضعیت حقوق بشر در ایران و پایان دادن به سیاست مماشات با جمهوری اسلامی شدند.
+مهران عباسیان، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338260
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338260_1779381296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها حاکی است سپاه پاسداران استفاده از رمزارزها را به یکی از ابزارهای اصلی خود برای دور زدن تحریم‌های غرب، جابه‌جایی پول و تامین مالی شبکه‌های هم‌پیمانش در منطقه تبدیل کرده است. سپاه همچنین از طریق این شبکه‌ها، درآمدهای دلاری حاصل از فعالیت‌های مرتبط با تنگه هرمز را مدیریت می‌کند.
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، در «پیوست» به این موضوع می‌پردازد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338259
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338259_1779381298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻باشگاه پرسپولیس اعلام کرد با ابلاغ رسمی دبیرکل فدراسیون فوتبال، مجوز حرفه‌ای این باشگاه برای فصل آینده صادر شده است.
+
+🔹پرسپولیس اعلام کرد این مجوز بر اساس مدارک ارائه‌شده و پس از تطابق با استانداردهای کنفدراسیون فوتبال آسیا صادر شده و نشان‌دهنده رعایت الزامات ساختاری، مالی، حقوقی، زیرساختی و مدیریتی این باشگاه است.
+
+🔹ساعاتی پیش از این نیز باشگاه استقلال از دریافت مجوز حرفه‌ای خود خبر داده بود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338258
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338258_1779381298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال می‌گوید در مترو ماموران لباس شخصی او را متوقف کرده شروع به تفتیش و پرس و جو از او کردند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 338257
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338257_1779381300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار فاکس نیوز به نقل از یک منبع آگاه از روند مذاکرات خبر داد که کاخ سفید گزارش خبرگزاری رویترز مبنی بر این‌که مجتبی خامنه‌ای دستور داده اورانیوم با غنای بالا در ایران باقی بماند را رد کرده و آن را نادرست دانسته است.
+پیش‌تر رویترز به نقل از دو منبع ارشد در حکومت ایران گزارش داد مجتبی خامنه‌ای، رهبر جمهوری اسلامی، دستور داده ذخایر اورانیوم با غنای بالا نباید از ایران خارج شود.
+به گفته این منابع، این دستور موضع تهران را در برابر یکی از اصلی‌ترین خواسته‌های آمریکا در مذاکرات برای پایان دادن به جنگ آمریکا و اسرائیل علیه جمهوری اسلامی سخت‌تر کرده است.
+مقام‌های اسرائیلی نیز به رویترز گفته‌اند دونالد ترامپ به اسرائیل اطمینان داده هر توافق احتمالی باید شامل خروج ذخایر اورانیوم غنی‌شده از ایران باشد.
+https://iranintl.com/202605215077
+</div>
+
+## IranIntlTV — post 338256
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338256_1779381300.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنجشنبه ۳۱ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 338255
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338255_1779381301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نشست وزیران خارجه کشورهای عضو ناتو در سوئد آغاز شد. جنگ اوکراین، امنیت اروپا، تنش‌های خاورمیانه و امنیت انتقال انرژی در تنگه هرمز از محورهای اصلی این اجلاس عنوان شده است.
+مهران عباسیان، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338254
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338254_1779381303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آلمان فرد مظنون به همکاری با جمهوری اسلامی را به اتهام برنامه‌ریزی برای ترور چهره‌های یهودی و یک نماینده سابق حامی اسرائیل تحت پیگرد قرار داد.
+
+مظنون این پرونده، شهروندی دانمارکی است که ژوئن سال گذشته در دانمارک بازداشت شد.
+
+یکی از همدستان او، شهروند اهل افغانستان است که در ماه نوامبر در دانمارک بازداشت شد.
+https://iranintl.com/202605212861
+</div>
+
+## IranIntlTV — post 338253
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338253_1779381303.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻به گزارش خبرگزاری جمهوری اسلامی، ایرنا، عدم صدور ویزا، مانع از حضور ملی‌پوشان شمشیربازی ایران در رقابت‌های کاپ جهانی شد.
+
+🔹سابریست‌های ایران که برای حضور در این رقابت‌ها، یک اردوی تمرینی سنگین و فشرده‌ی ۴۵ روزه را در کشور ایتالیا پشت سر گذاشته‌اند، به دلیل صادر نشدن ویزا از سوی دولت مصر، شانس حضور در این تورنمنت را از دست دادند.
+
+🔹ملی‌پوشان شمشیربازی ایران به‌زودی ایتالیا را به مقصد تهران ترک خواهند کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338252
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338252_1779381304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طبق اطلاعات رسیده به ایران‌اینترنشنال، جاویدنام مصطفی سلامی شامگاه ۱۹ دی‌ماه ۱۴۰۴ حوالی ساعت ۸ شب در فردیس کرج هدف شلیک نیروهای حکومتی قرار گرفت و در برابر همسر، فرزند و اعضای خانواده‌اش از ناحیه قفسه سینه مجروح شد.
+
+براساس روایت خانواده، نزدیکانش ابتدا مصطفی را به درمانگاه رساندند و سپس با آمبولانس به بیمارستان منتقل کردند. ماموران هنگام انتقال او با حمله به همراهان مانع حضورشان در محل شدند. پس از رسیدن به بیمارستان، پیکر مصطفی نزدیک دو ساعت ناپدید شد؛ سپس به خانواده اطلاع دادند که گلوله ریه او را سوراخ کرده و این جاویدنام بر اثر شدت جراحات، تنگی نفس و خونریزی شدید جان باخته است.
+</div>
+
+## Persian_Trend_Official — post 14617
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14617_1779381305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 العربیه مدعی دستیابی به پیش‌نویس نهایی توافق ایران و آمریکا شد
+
+💢بر اساس این گزارش، مفاد اصلی پیش‌نویس شامل موارد زیر است:
+
+▪️ آتش‌بس کامل، فوری و بدون قید و شرط در تمام جبهه‌های زمینی، دریایی و هوایی
+
+▪️ تعهد متقابل ایران و آمریکا به عدم هدف قرار دادن تأسیسات نظامی، غیرنظامی و اقتصادی یکدیگر
+
+▪️ توقف عملیات نظامی، حملات سایبری و جنگ رسانه‌ای تحریک‌آمیز از سوی دو طرف
+
+▪️ تأکید بر احترام به حاکمیت کشورها، تمامیت ارضی و عدم دخالت در امور داخلی
+
+▪️ تضمین آزادی کشتیرانی در خلیج فارس، تنگه هرمز و دریای عمان
+
+▪️ تشکیل کمیته مشترک برای نظارت بر اجرای توافق و حل اختلافات احتمالی
+
+▪️ آغاز مذاکرات درباره مسائل باقی‌مانده حداکثر ظرف ۷ روز
+
+▪️ لغو تدریجی تحریم‌های آمریکا علیه ایران در برابر پایبندی تهران به مفاد توافق
+
+▪️ تأکید دو طرف بر اینکه توافق در چارچوب قوانین بین‌المللی و منشور سازمان ملل تنظیم شده است
+
+🔻تاکنون هیچ مقام رسمی در ایران یا آمریکا صحت این پیش‌نویس را تأیید نکرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناو حمله آبی خاکی USS Makin Island (LHD-8) با یک اسکادران کامل از جنگنده‌های F-35B، چهارشنبه بندر نیروی دریایی سن دیگو را به مقصد منطقه هند-آرام ترک کرد.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢مارکو روبیو 🔹اجرای سیستم اخذ عوارض در تنگه هرمز از سوی جمهوری اسلامی، دستیابی به توافق دیپلماتیک را غیرممکن می‌کند. 🔹او افزود: «در مذاکرات مقداری پیشرفت داشته‌ایم، اما روشن است با سیستمی روبه‌رو هستیم که خود تا حدی دچار شکاف است؛ یعنی ساختار حاکم در ایران.»…
+</div>
+
+## Persian_Trend_Official — post 14613
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14613_1779381306.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹مارکو روبیو: وضعیت پیرامون توافق ایران ممکن است در روزهای آینده روشن‌تر شود 🔻مارکو روبیو، وزیر امور خارجه آمریکا، اعلام کرد که نمایندگان پاکستان روز پنجشنبه به عنوان بخشی از تلاش‌ها برای پایان دادن مسالمت‌آمیز به مناقشه آمریکا و اسرائیل با ایران، به تهران…
+</div>
+
+## Persian_Trend_Official — post 14612
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14612_1779381306.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹مارکو روبیو: وضعیت پیرامون توافق ایران ممکن است در روزهای آینده روشن‌تر شود
+
+🔻مارکو روبیو، وزیر امور خارجه آمریکا، اعلام کرد که نمایندگان پاکستان روز پنجشنبه به عنوان بخشی از تلاش‌ها برای پایان دادن مسالمت‌آمیز به مناقشه آمریکا و اسرائیل با ایران، به تهران سفر خواهند کرد.
+
+🔻وی همچنین افزود که اگر توافق خوبی با تهران حاصل نشود، ایالات متحده گزینه‌های دیگری را در مورد ایران حفظ می‌کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رهبر جمهوری اسلامی دستور داده ذخایر اورانیوم از کشور خارج نشود 💢خبرگزاری رویترز به نقل از منابع ایرانی گزارش داد رهبر جمهوری اسلامی دستور داده ذخایر اورانیوم غنی‌شده نزدیک به سطح تسلیحاتی، از کشور خارج نشود. 🫆:Tony 📌 @persian_trend_official پرشین ترند…
+</div>
+
+## Persian_Trend_Official — post 14610
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14610_1779381307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خسارت ارتش آمریکا در عملیات خشم حماسی 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر خارجه پاکستان:
+
+🔹 وی با تاکید بر نقش میانجی‌گرانه اسلام‌آباد اعلام کرد این کشور تمام تلاش خود را برای دستیابی به توافق میان ایران و آمریکا به کار می‌گیرد
+
+🔹محمد اسحاق دار هدف از این اقدامات را گرد هم آوردن دو طرف برای صلح دانست.
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14607
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14607_1779381307.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر خارجه آمریکا: 🔻بیایید ببینیم آیا امکان توافق با ایران وجود دارد یا خیر، و نشانه‌های خوبی نیز دیده می‌شود. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14606
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14606_1779381308.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزیر خارجه آمریکا:
+
+🔻بیایید ببینیم آیا امکان توافق با ایران وجود دارد یا خیر، و نشانه‌های خوبی نیز دیده می‌شود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14605
+
+
+
+
+## Persian_Trend_Official — post 14604
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14604_1779381308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خسارت ارتش آمریکا در عملیات خشم حماسی
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14603
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14603_1779381309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 بلومبرگ: ایران و عمان درباره ایجاد نظام دائمی عوارض در تنگه هرمز مذاکره می‌کنند
+
+💢بلومبرگ گزارش داد ایران در حال گفت‌وگو با عمان درباره ایجاد نوعی نظام دائمی دریافت عوارض برای عبور کشتی‌ها از تنگه هرمز است.
+
+🔻بر اساس این گزارش:
+
+▪️ هدف این طرح، رسمی‌کردن کنترل ایران بر تردد دریایی در تنگه هرمز عنوان شده است
+▪️ مذاکرات میان تهران و مسقط درباره سازوکار اجرایی و حقوقی این سیستم ادامه دارد
+▪️ این اقدام می‌تواند هزینه عبور نفتکش‌ها و کشتی‌های تجاری را افزایش دهد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14602
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14602_1779381309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه هوش مصنوعی عملیات اف 5 در کویت به روایت جمهوری اسلامی !
+
+پ.ن:
+قبلا میگفتن یک اف 5 بوده اما الان دوتا نشون دادن !
+طبعتا اگر اف 5 ها با بمب اتم هم پایگاه آمریکایی رو میزدن نباید انقدر تخریب میشد !😄
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️نیروی دریایی سپاه: ۳۱ فروند کشتی با هماهنگی سپاه از تنگهٔ هرمز عبور کردند
+
+💢روابط عمومی نیروی دریایی سپاه: طی شبانه روز گذشته ۳۱ فروند کشتی اعم از نفتکش، کانتینر بر و سایر کشتی های تجاری با هماهنگی و تامین امنیت نیروی دریایی سپاه از تنگهٔ هرمز عبور کردند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14600
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14600_1779381311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آژانس بین‌المللی انرژی: بازار نفت ممکن است وارد «منطقه قرمز» شود
+
+💢رئیس آژانس بین‌المللی انرژی (IEA) هشدار داد بحران تنگه هرمز می‌تواند بازار جهانی نفت را در ماه‌های ژوئیه و اوت وارد «منطقه قرمز» کند.
+
+«فاتح بیرول» اعلام کرد:
+▪️ کاهش صادرات نفت خاورمیانه و افت ذخایر استراتژیک همزمان با اوج تقاضای تابستانی، فشار شدیدی بر بازار وارد کرده است
+▪️ راه‌حل اصلی، بازگشایی کامل تنگه هرمز است
+▪️ پیش از آغاز جنگ ایران، حدود یک‌پنجم نفت و گاز جهان از این مسیر عبور می‌کرد
+💢او همچنین افزود:
+▪️ آژانس بین‌المللی انرژی در ماه مارس با آزادسازی ۴۰۰ میلیون بشکه نفت از ذخایر استراتژیک اعضا موافقت کرده بود
+▪️ اما این ذخایر به‌تدریج در حال کاهش است
+▪️ در صورت نیاز، آژانس آماده هماهنگی برای آزادسازی ذخایر بیشتر خواهد بود
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 انگلیس کاردار اسرائیل را احضار کرد
+
+💢 دلیل؛ رفتار اهانت آمیز وزیر امنیت ملی اسرائیل با بازداشت‌شدگان ناوگان صمود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14598
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14598_1779381311.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️علی یزدی‌خواه، نایب‌رییس کمیسیون فرهنگی مجلس، گفت در شرایط فعلی تصمیمی برای بازگشایی اینترنت جهانی وجود ندارد و محدودیت‌ها با «ملاحظات امنیتی» ادامه خواهد داشت.
+
+💢یزدی‌خواه قطع اینترنت جهانی را به مصوبات شورای عالی امنیت ملی نسبت داد و گفت این تصمیم به‌دلیل «مسائل امنیتی، امنیت کشور و حفظ جان افراد» گرفته شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14597
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14597_1779381312.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وزارت دفاع روسیه فیلم تمرینات نیروهای هسته‌ای خود را منتشر کرد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 17:23
 ---
 
@@ -1138,8 +1910,6 @@ https://iranintl.com/202605217523
 📌 @persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
