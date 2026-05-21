@@ -7,6 +7,886 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 14:21
+---
+
+## ChizBergerz — post 46616
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46616_1779360682.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت رسمی اسرائیل به فارسی: اگه 40 میلیون طرفدار جمهوری‌اسلامی هستن، چرا صورتاشونو میپوشونن؟
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46615
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46615_1779360683.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو شهر اشدود اسرائیل پرچم شیر و خورشید ایران رو به اهتزاز در آوردن و کنار پرچم سایر کشورها گذاشتنش
+👑
+🇮🇱
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71686
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71686_1779360684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 حامد فرد عزیز دیدم ویدیوهای فیک را علیه من لایک میکنی در حالیکه ما بزرگتری میکنیم و زمانیکه با سفارش 3پا این ترانه را خوندی رو نمیکنیم..
+این ویدیو هم یه کوچولو برای هشدار هست، دفعه دیگه چیزهای رو میکنم از جات بلند نشی..
+راستی بچه های زندان یادشون من کسانیکه ادای گنگها را در می آوردن انگشت میکردم، ادامه بدید تا ببینید چی میشه.
+با سپاس از توجه شما..
+</div>
+
+## rodast_omiddana — post 71685
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71685_1779360687.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یعنی تو «دانسته» همین استوری که کاملا فیکه رو گذاشتی ؟
+بعد علی کریمی « نادانسته» منو پروموت کرده؟
+
+پانزده ساله میبینید با ویدیو فیک علیه من به جایی نرسیدید ولی جالبه همچنان ادامه میدهید..
+</div>
+
+## rodast_omiddana — post 71684
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71684_1779360687.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 ترجمه:
+"بسیار ریدم تو خودم"
+
+مَردَک میگیم کنسرت نزار میگی تله امنیتی برات گذاشتن😅
+</div>
+
+## rodast_omiddana — post 71683
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 طبیعتا موج جدیدی از حملات به من آغاز شده، در ارتباط با من هر چی میخوای بدونی در این برنامه که در کانال یوتیوبم پین شده موجوده..
+بعدشم وقتی 40 هزار جوان دست گل وطن کشته شدن و هر روز دست به خودک*شی میزنند، چه اهمیتی داره در مورد من چی میگن، مهم بذر سخن که چه بخوان چه نخوان دارم کارمو انجام میدم..
+لینک برنامه:
+https://www.youtube.com/watch?v=Hntn40BJ1jQ
+</div>
+
+## rodast_omiddana — post 71682
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71682_1779360688.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨سلام اقای دانا
+
+ساعت 13:28 زمین لرزه شدید بندرعباس _قشم اومد
+
+جوری ک صدای انفجار شدید همراه داشت
+دو سه دفعه در 5 دقیقه
+</div>
+
+## rodast_omiddana — post 71681
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71681_1779360688.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ناگهان توقف جنگ توسط ترامپ
+بلوف برای حمله این هفته یا جنگ افتاد برای دوماه دیگه؟
+</div>
+
+## rodast_omiddana — post 71680
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 یادش بخیر فواد ایزدی از گشتن دنبال ابراهیم رئیسی هم دست آوردسازی میکرد
+لینک یوتیوب:
+https://www.youtube.com/watch?v=5LBKIbUM538
+</div>
+
+## rodast_omiddana — post 71679
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 دوستان یکی دوساعت دیگه میام، یکم کار دارم هنوز نرسیدم پای سیستم بیام♥️
+</div>
+
+## KiriMohems — post 47853
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴هوش مصنوعی سوپر اپلیکیشن بله قابلیت کصخل کردن کاربران خودش رو داره:
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47852
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47852_1779360690.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخرین وضعیت مذاکرات زناگرفته‌ی ایران و آمریکا:
+
+پیشنهاد آمریکا:
+پایان جنگ در همه جبهه‌ها
+رفع محاصره تنگه هرمز توسط آمریکا + باز شدن تنگه توسط ایران با شرایط و تعرفه دلخواه ایران
+آزادسازی ۲۵٪ اموال بلوکه‌شده (حدود ۲۵ میلیارد دلار)
+معافیت فروش نفت ایران برای ۳۰ روز
+فاز اصلی هسته‌ای (که باید یکجا امضا شود):خروج ۴۰۰ کیلو اورانیوم از ایران (ترجیحاً به کشور ثالث)
+پذیرش غنی‌سازی حداکثر ۳.۶۷٪ (بعید است آمریکا در نهایت قبول کند)
+تعطیلی مراکز هسته‌ای (به جز راکتور تهران با کاربرد پزشکی)
+
+موضع ایران:
+ایران قبول ندارد همه چیز یکجا امضا شود. می‌گوید ابتدا همه فازهای پیشنهادی آمریکا ۳۰ روز اجرا و راستی‌آزمایی شود (تا ایران بتواند نفت بفروشد و اعتماد کند)، بعد وارد فاز هسته‌ای شود.
+
+
+‼️نقاط اصلی اختلاف و بن‌بست:
+هسته‌ای (بزرگ‌ترین اختلاف):
+ایران ۴۰۰ کیلو اورانیوم را نمی‌دهد، غنی‌سازی را می‌خواهد و تعلیق طولانی‌مدت (۲۰ سال) را رد می‌کند، آمریکا و اسرائیل روی خروج اورانیوم اصرار دارند
+فازبندی توافق:
+ایران می‌خواهد مرحله‌ای، آمریکا می‌خواهد یکجا و جامع!
+آمریکا به متون و محورهای ارسالی متعهد نیست و احتمالاً تحریم‌ها را فقط تعلیق موقت می‌کند، نه لغو
+حتی در صورت توافق، تضمینی علیه ترورهای اسرائیل وجود ندارد.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47851
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47851_1779360691.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r31🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## KiriMohems — post 47850
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴منبع پاکستانی به الجزیره: کیرخر اصلی که به مذاکرات آمریکا و ایران کوبیده ، همین اورانیوم غنی‌شده‌‌ست.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47849
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47849_1779360692.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو : اگر ما نبودیم و تخمای ما خیس نمیشد ، آمریکا اصلا به وجود نمیومد
+ما ریختیم توش و شما رو آوردیم تو این دنیا و هر وقت بخوایم میتونیم ببریمتون
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47848
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47848_1779360694.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴میزان , خبر از اعدام رامین زله و کریم معروف‌پور، به اتهامات عضویت در‌گروهک‌های تجزیه‌طلب خبر داد.
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47847
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47847_1779360694.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پشت صحنه‌ی تبلیغات لگو با حضور سلاطین : رونالدو ، مسی ، امباپه و وینی که نشون میده تمامی دوستان وشرکا تو این تیزر حضور داشتن
+
+#Helsinki
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 47846
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فرمانده ارتش پاکستان، میانجی مذاکرات، امروز به تهران سفر میکنه که #قطعا_به_كيرتونه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47845
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47845_1779360696.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰 نیویورک تایمز:
+ایران شق کرده که در صورت ازسرگیری حملات آمریکا، جنگ رو فراتر از کون خاورمیانه گسترش میده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47844
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای میدل ایست آی:
+
+به ترامپ هشدار داده شده آغاز جنگ در ایام حج، آمریکا رو در جهان اسلام بیناموص می‌کند و به همین دلیل حمله به ایران به تعویق افتاده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252057
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252057_1779360697.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قاب کمتر دیده شده
+مسی در برابر مربی های این فصل رئال👀
+
+@SportBadTweet | رست بیف
+</div>
+
+## SportBaadNews — post 252056
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252056_1779360697.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گارناچو و بانو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252055
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252055_1779360698.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+■ بدترین حس وقتیه که میخوای سریع وارد سایت شی، بازی شروع شده، ولی VPN وصل نمیشه یا سایت نصفه لود میشه. 
+😑
+
+- دیگه لازم نیست برای هر بار ورود به سایت VPN عوض کنی یا منتظر لود شدن بمونی؛
+
+
+📌در ربات تلگرام وینکوبت هم بازی‌ها و کازینو اجرا میشن، هم پیش‌بینی و واریز و برداشت مستقیم از داخل همون ربات انجام میشه:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌کانال رسمی وینکوبت: 
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 252054
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تنها صحبت‌های ترامپ که شاهکار و ارزش داره چندین بار ببینیش @iMamlekat
+</div>
+
+## SportBaadNews — post 252053
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252053_1779360699.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| لوئیس انریکه درمورد آرسنال: بدون توپ، اونا بهترین تیم دنیان و بهترین تیم دفاعی هستن، با توپم میتونن گل‌های زیادی بزنن، این یه ترکیب فوق‌العاده واسه اوناست و منطقیه که تو فینال باهاشون روبرو بشیم، منتظر یه فینال عالی به تمام معنا هستیم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252052
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252052_1779360699.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔙
+🏆| 18 سال پیش تو چنین روزی کریستیانو رونالدو به همراه منچستریونایتد اولین چمپیونزلیگ کریر خودش رو برد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252051
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252051_1779360700.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+⚽️ کریس رویس: اشلوت اخراج شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252050
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252050_1779360701.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| رافینیا: پیشنهاد از تیم آبی و تیم قرمز لندن داشتم، ولی بهترین تصمیم کل حرفه‌م، امضا کردن قرارداد با بارسلونا بود.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252049
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252049_1779360701.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆
+🏆
+🏆| سانچو اگه از شانس بدش تو سال 2023/24 با دورتموند به رئال مادرید بر نمیخوردن الان تونسته بود تو سه سال متوالی هر سه جام معتبر اروپایی رو کسب کنه:
+
+⚽️
+🏆
+❌| 2023/24 چمپیونزلیگ
+
+⚽️
+🏆
+✅| 2024/25 کنفرانس لیگ
+
+⚽️
+🏆
+✅| 2025/26 لیگ اروپا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252048
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252048_1779360702.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🇪🇺 مِستر چمپیونزلیگ و مِستر اروپا لیگ
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252046
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252046_1779360703.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🏆 فوووووووری آاس: برنامه‌ هایی هست که تعداد تیم‌ های جام جهانی 2030 رو به 66 تا تیم افزایش بدن 😐😐😐😐😐😐😐😐
+
+
+🔴 این پیشنهاد رو اولین بار چند ماه پیش کنمبول (فدراسیون فوتبال آمریکای جنوبی) مطرح کرد، و حالا به لطف فدراسیون‌های مختلف، دوباره جون گرفته و با انرژی بیشتری داره دنبال میشه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252045
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252045_1779360703.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هر آرزویی هم همیشه خوب نیست آقای رودریگو...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252044
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252044_1779360704.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇫🇷
+⚽️ | عثمان دمبله: مهم‌ترین چیز اینه که لیگ قهرمانان رو ببریم و یه جام جهانی خیلی عالی داشته باشیم!
+توپ طلای دوم؟
+
+🟡
+🥇 خب درسته که وقتی یه بار توپ طلا رو میبری، دلت می‌خواد باز هم ببری...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252043
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252043_1779360705.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ این پنجمین قهرمانی اونای امری به عنوان سرمربی تو لیگ اروپا بود 🔥🔥
+🏆 2013/14 با سویا
+🏆 2014/15 با سویا
+🏆 2015/16 با سویا
+🏆 2021/21 با ویارئال
+🏆 2025/26 با استون ویلا
+</div>
+
+## SportBaadNews — post 252042
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252042_1779360706.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏴󠁧󠁢󠁥󠁮󠁧󠁿
+⚽️| آرسنال اولین باشگاه تو تاریخه که بدون گرفتن حتی یه کارت قرمز یا دادن یه پنالتی به حریف تو طول فصل، قهرمان پریمیرلیگ شده.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338226
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338226_1779360707.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فداحسین مالکی، عضو کمیسیون امنیت ملی مجلس، با تمجید از اقدامات نیروهای مسلح جمهوری اسلامی در جریان جنگ گفت سران واشینگتن تصور می‌کردند در ایران نیز پیروز خواهند شد، اما «در این میدان به معنای واقعی کلمه میخکوب شدند».
+
+او گفت: «سران واشینگتن که پس از وقایع ونزوئلا دچار غرور و سرمستی سیاسی شده بودند، تصور می‌کردند در حمله به ایران نیز پیروز خواهند بود؛ اما در این میدان به معنای واقعی کلمه میخکوب شدند.»
+
+مالکی همچنین درباره احتمال توافق با آمریکا با میانجی‌گری پاکستان گفت پاکستانی‌ها «حسن نیت» دارند و برای انجام این میانجی‌گری تلاش می‌کنند.
+
+او افزود: «احتمال می‌دهم رفاقتی که عاصم منیر با ترامپ دارد، او را وادار کند شروط را بپذیرد؛ از جمله این‌که وارد تنگه هرمز نشود، وارد غنی‌سازی نشود، خسارت ما را بدهد و پول‌های بلوکه‌شده را آزاد کند.»
+https://iranintl.com/202605216184
+</div>
+
+## IranIntlTV — post 338225
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338225_1779360708.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنجشنبه ۳۱ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 338224
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338224_1779360709.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی ارسالی به ایران اینترنشنال نشان‌ می‌دهد که ۳۱ اردیبهشت در حوالی روستای سَلَخ شهرستان قشم استان هرمزگان، صف بنزین در کنار جاده ادامه پیدا کرده است. به گفته ساکنان منطقه، مردم این روستا با کمبود سوخت روبرو شده‌اند.
+</div>
+
+## IranIntlTV — post 338223
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338223_1779360711.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس ویدیو و گزارش‌های رسیده به ایران اینترنشنال شماری از دانش‌آموزان و خانواده‌های آنان در شهرکرد، صبح پنجشنبه ٢١ اردیبهشت برای اعتراض به حضوری شدن امتحانات جلوی ساختمان استانداری چهارمحال و بختیاری تجمع کرده و شعار سردادند.
+</div>
+
+## IranIntlTV — post 338222
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338222_1779360713.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻زهرا زارعی، دونده استان کرمان، در مسابقات دوومیدانی جایزه بزرگ بندر ترکمن، رکورد ملی ماده ۴۰۰ متر زنان ایران را پس از ۱۴ سال شکست. او با ثبت زمان ۵۱.۹۷ ثانیه، رکورد این ماده را حدود یک ثانیه بهبود داد.
+
+🔹رکورد ملی ۴۰۰ متر زنان ایران پیش از این با زمان ۵۲.۹۵ ثانیه در اختیار مریم طوسی بود که اردیبهشت ۱۳۹۱ در مسابقات جایزه بزرگ آسیا در تایلند ثبت شده بود.
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338221
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338221_1779360714.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نگرانی‌ها درباره تداوم موج اعدام‌ها در ایران افزایش یافته است. هم‌زمان با اعلام قوه قضاییه درباره اعدام دو زندانی سیاسی، سازمان حقوق بشر ایران نیز از اعدام مخفیانه دو تبعه عراقی در زندان مرکزی کرج خبر داد و نسبت به روند رو به افزایش اجرای احکام اعدام هشدار داد.
+گفت‌وگو با شراره عزیزی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338220
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338220_1779360716.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اسرائیل هیوم گزارش داد نشست کاخ سفید درباره پرونده جمهوری اسلامی با اختلاف‌نظر میان مقام‌های ارشد آمریکا همراه بوده است. به‌گفته این روزنامه، دونالد ترامپ بر ادامه مذاکرات تاکید کرده است. در مقابل، مارکو روبیو، وزیر امور خارجه، و پیت هگست، وزیر جنگ، معتقدند بدون تهدید به حمله و افزایش فشار اقتصادی، از تهران نمی‌شود امتیاز گرفت.
+جزییات بیشتر با حسین آقایی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338219
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338219_1779360718.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+غلامرضا تاجگردون، رییس کمیسیون برنامه و بودجه مجلس، گفت دولت امروز به نقطه‌ای رسیده که باید «قرارگاه‌های مردمی تامین منابع مالی پایدار» را شکل دهد.
+
+او اضافه کرد: «این یعنی بانک مرکزی باید یک پشتوانه مردمی دیگر برای تامین منابع داشته باشد؛ چه از جانب افرادی که در داخل کشور منابع دارند و چه ایرانیان خارج از کشور که امروز می‌توانند به اقتصاد کشورشان کمک کنند.»
+https://iranintl.com/202605219231
+</div>
+
+## IranIntlTV — post 338218
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338218_1779360719.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انور قرقاش، مشاور دیپلماتیک رییس امارات متحده عربی، با انتقاد از رفتار جمهوری اسلامی در منطقه گفت کشورهای خلیج فارس طی دهه‌های طولانی به «زورگویی ایران» عادت کرده‌اند و این رفتار به بخشی از صحنه سیاسی در خلیج فارس تبدیل شده است.
+
+او گفت اعتبار جمهوری اسلامی میان «سخنان تهاجمی» و «بیانیه‌های توخالی دوستی» از بین رفته است.
+
+قرقاش افزود: «امروز، پس از تجاوز آشکار ایران، این حکومت می‌کوشد واقعیتی تازه را تثبیت کند؛ واقعیتی که از یک شکست نظامی روشن زاده شده است. اما تلاش‌ها برای کنترل تنگه هرمز یا تعرض به حاکمیت دریایی امارات، چیزی جز خیال‌پردازی نیست.»
+
+مشاور دیپلماتیک رییس امارات همچنین تاکید کرد هر کشوری که خواهان همزیستی با محیط عربی پیرامون خود است، باید بداند که اعتماد از بین رفته است.
+
+او افزود بازسازی این اعتماد با شعار ممکن نیست، بلکه تنها با «زبان مسئولانه، پاسداشت حاکمیت و پایبندی واقعی به اصول حسن همجواری» امکان‌پذیر است.
+https://iranintl.com/202605217797
+</div>
+
+## IranIntlTV — post 338217
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338217_1779360719.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مخاطب با ارسال ویدیویی به ایران اینترنشنال گفت که قیمت یک بسته چیپس ساده محصول یکی از برندهای شناخته‌شده تولید مواد خوراکی به بیش از نیم میلیون تومان افزایش یافته است. صدای این شهروند با هوش مصنوعی تغییر داده شده است.
+</div>
+
+## IranIntlTV — post 338216
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338216_1779360721.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ژنرال کنت ویلزباخ، رییس ستاد نیروی هوایی ایالات متحده، گفت پهپادهای ام‌کیو-۹ ریپر ابزار عملیاتی کلیدی این نیرو در جنگ علیه جمهوری اسلامی بوده‌اند. او تاکید کرد ام‌کیو-۹ «ارزشمندترین بازیگر» این جنگ بود.
+جزییات بیشتر با احمد صمدی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338215
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338215_1779360723.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز در گزارشی به نقل از عمر محمد، کارشناس مبارزه با تروریسم، نوشت سبک زندگی مجتبی خامنه‌ای به سطحی از ناپدید شدن رسیده که اسامه بن لادن سال‌ها در ایبت‌آباد تجربه می‌کرد؛ زندگی بدون ارتباط مخابراتی و با اتکا به پیک‌های مورد اعتماد.
+
+گفت‌وگو با محمد جواد اکبرین، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338214
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338214_1779360725.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که تنها ۲۱ روز تا آغاز جام جهانی باقی مانده، نایب رییس فدراسیون فوتبال ایران اعلام کرد اعضای تیم برای دریافت ویزای آمریکا به سفارت این کشور در ترکیه مراجعه می‌کنند.
+گفت‌وگو با رها پوربخش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338213
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338213_1779360727.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال، صبح پنج‌شنبه ۳۱ اردیبهشت، برای طی مراحل اداری دریافت ویزای آمریکا به سفارت این کشور در آنکارا رفت.
+
+🔹فدراسیون فوتبال در فاصله حدود ۲۰ روز تا آغاز جام جهانی، با بحران ویزا دست‌به‌گریبان است. امیر قلعه‌نویی هنوز نمی‌داند کدام بازیکنان ویزا دریافت خواهند کرد و چه نفراتی را در آمریکا در اختیار خواهد داشت.
+
+🔹احتمال دارد برای برخی اعضای کاروان ایران، به دلیل سوابق فعالیت یا ارتباط با سپاه پاسداران، ویزا صادر نشود.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338212
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338212_1779360727.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد که شامگاه ۲۹ اردیبهشت در بندر کُنگ، یکی از شهرهای تابعه شهرستان بندر لنگه در استان هرمزگان، صف طولانی بنزین تشکیل شده است.
+
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، اعلام کرد در پی محاصره دریایی آمریکا، صادرات نفت ایران متوقف شده و کشور روزانه با کمبود ۵۰ میلیون لیتر بنزین روبه‌رو است، اما دلاری برای واردات آن وجود ندارد. ساعتی پس از انتشار سخنان پزشکیان، رسانه‌های دولتی از جمله ایرنا اقدام به حذف این اظهارات کردند.
+</div>
+
+## IranIntlTV — post 338211
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338211_1779360729.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری میزان، رسانه قوه قضاییه جمهوری اسلامی، از اعدام رامین زله و کریم معروف‌پور به اتهام «عضویت در گروه‌های تروریستی»، «تشکیل گروه با هدف بر هم زدن امنیت کشور» و «قیام مسلحانه» خبر داد.
+هم‌زمان، سازمان حقوق بشر ایران از اعدام مخفیانه دو شهروند عراقی به نام‌های علی نادر العبیدی و فاضل شیخ کریم در ۱۷ فروردین، در زندان مرکزی کرج خبر داد.
+
+گفت‌وگو با رضا اکوانیان، روزنامه‌نگار و فعال حقوق بشر
+@iranintltv
+</div>
+
+## IranIntlTV — post 338210
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338210_1779360731.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، گفت: «وضعیت موجود میان جمهوری اسلامی و ایالات متحده تا وقتی که تکلیف منافع آمریکا، به‌صورت استراتژیک، مشخص نشود ادامه خواهد داشت.» او افزود در چنین وضعیتی، «سایه جنگ نه‌تنها بر جمهوری اسلامی، بلکه بر سر ایران باقی خواهد ماند».
+@iranintltv
+</div>
+
+## IranIntlTV — post 338209
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338209_1779360733.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻انتشار گزارش‌هایی درباره احتمال ممنوعیت ورود پرچم شیر و خورشید به ورزشگاه‌های میزبان جام جهانی، موجی از واکنش‌ها را میان ایرانیان و فعالان سیاسی ایجاد کرده است. در تازه‌ترین اقدام، یک نهاد مدنی برای مقابله با این تصمیم احتمالی، در مراجع قضایی آمریکا شکایت ثبت کرده است.
+
+🔹اندیشکده «آوای آزادی» شکایتی را علیه فدراسیون بین‌المللی فوتبال، فیفا، در دادگاه فدرال حوزه مرکزی ایالت کالیفرنیا ثبت کرده است. هدف از این اقدام حقوقی این است که از ممانعت فیفا برای ورود پرچم شیر و خورشید به ورزشگاه‌های جام جهانی جلوگیری کند.
+
+🔹این اقدام پس از آن صورت گرفت که نشریه اتلتیک در گزارشی نوشت فیفا تحت فشار و به درخواست فدراسیون فوتبال جمهوری اسلامی، قصد دارد مانع ورود پرچم شیر و خورشید به استادیوم‌های محل برگزاری مسابقات شود.
+
+🔹یکی از دغدغه‌های اصلی مقام‌های جمهوری اسلامی، احتمال شکل‌گیری فضای اعتراضی و سر دادن شعارهای ضدحکومتی در جریان این مسابقات است.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338208
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338208_1779360734.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده به ایران‌اینترنشنال نشان‌دهنده استقرار خودروی زرهی نوپو (نیروی ویژه پاسدار ولایت) در تهران است که به عنوان یکی از واحدهای تابع یگان ویژه وظایفی چون سرکوب معترضان در پایتخت را برعهده دارد.
+</div>
+
+## IranIntlTV — post 338207
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338207_1779360736.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه سی‌ان‌ان به نقل از منابع آگاه از ارزیابی‌های اطلاعاتی آمریکا گزارش داد جمهوری اسلامی در جریان آتش‌بس شش‌هفته‌ای بخشی از تولید پهپادهای خود را از سر گرفته است.
+
+بر اساس این گزارش، این موضوع نشانه‌ای از آن است که تهران با سرعت در حال بازسازی بخشی از توانمندی‌های نظامی خود است که در حملات آمریکا و اسرائیل آسیب دیده بود.
+
+چهار منبع به سی‌ان‌ان گفتند اطلاعات آمریکا نشان می‌دهد ارتش جمهوری اسلامی بسیار سریع‌تر از برآوردهای اولیه در حال بازسازی و احیای توان خود است. این بازسازی شامل جایگزینی سایت‌های موشکی، پرتابگرها و ظرفیت تولید سامانه‌های تسلیحاتی کلیدی است که در جریان درگیری آسیب دیده یا نابود شده‌اند.
+
+به گفته منابع آگاه از این ارزیابی‌ها، این روند به این معناست که در صورت ازسرگیری کارزار بمباران از سوی دونالد ترامپ، رییس‌جمهوری آمریکا، تهران همچنان تهدیدی جدی برای متحدان منطقه‌ای آمریکا خواهد بود.
+
+یک مقام آمریکایی به سی‌ان‌ان گفت برخی برآوردهای اطلاعاتی نشان می‌دهد حکومت ایران ممکن است بتواند توان حمله پهپادی خود را ظرف شش ماه به‌طور کامل بازسازی کند.
+https://iranintl.com/202605219929
+</div>
+
+## Persian_Trend_Official — post 14577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رهبر جمهوری اسلامی دستور داده ذخایر اورانیوم از کشور خارج نشود
+
+💢خبرگزاری رویترز به نقل از منابع ایرانی گزارش داد رهبر جمهوری اسلامی دستور داده ذخایر اورانیوم غنی‌شده نزدیک به سطح تسلیحاتی، از کشور خارج نشود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14576
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14576_1779360737.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢انور قرقاش، مشاور محمد بن زاید
+
+💢ما طی دهه‌های طولانی به قلدری و زورگویی ایران عادت کرده‌ایم، تا جایی که بخشی از صحنه سیاسی خلیج فارس شده است. اعتبارشان بین گفتارهای تهاجمی و بیانیه‌های دوستی توخالی از بین رفته است.
+
+💢امروز، پس از تجاوز وحشیانه ایران، رژیم تلاش می‌کند واقعیت جدیدی را تحکیم کند که از یک شکست نظامی آشکار متولد شده. اما تلاش برای کنترل تنگه هرمز یا تعدی به حاکمیت دریایی امارات، چیزی جز رویاهای پریشان و واهی نیست.
+
+💢هر کس که بخواهد با محیط عربی خود همزیستی کند، باید بداند که اعتماد از بین رفته و بازگرداندن آن با شعارها ممکن نیست، بلکه با زبان مسئولانه، احترام به حاکمیت و تعهد واقعی به اصول همسایگی خوب انجام می‌شود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14575
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14575_1779360737.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️بندرعباس لرزید
+
+💢دقایقی پیش زمین لرزه ای به قدرت ۴.۶ ریشتر بندرعباس را لرزاند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سخنگوی وزارت خارجه ایران: در حال بررسی پاسخ جدید آمریکا هستیم
+
+💢اسماعیل بقایی، سخنگوی وزارت خارجه ایران، اعلام کرد تهران در حال بررسی آخرین پاسخ واشینگتن به چارچوب پیشنهادی آتش‌بس است؛ چارچوبی که پس از چند دور تبادل پیام با میانجیگری پاکستان ارائه شده است.
+
+بر اساس گزارش‌ها:
+
+▪️ پیام‌ها میان تهران و واشینگتن از طریق پاکستان ادامه دارد
+▪️ ایران هنوز تصمیم نهایی درباره پیشنهاد آمریکا نگرفته است
+▪️ مذاکرات بر محور پایان جنگ، کاهش تنش و مسائل مربوط به تنگه هرمز متمرکز است
+
+💢بقایی همچنین گفته تصمیم نهایی پس از تکمیل بررسی‌های داخلی ایران اتخاذ خواهد شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14573
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14573_1779360738.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ژاپن به ساخت هواپیمای مافوق صوت خود نزدیک شده است. آژانس فضایی ژاپن (JAXA) به همراه دانشگاه‌های واسدا، توکیو و کیئو آزمایش‌های زمینی موتور رمجت (Ramjet) برای وسیله پروازی مافوق صوتی که قادر به پرواز با سرعتی پنج برابر سرعت صوت است را انجام دادند.
+
+آزمایش‌ها در مرکز فضایی کاکودا انجام شد. در تونل باد، دانشمندان پرواز مافوق صوت را شبیه‌سازی کردند و عملکرد موتور رمجت، سیستم‌های کنترل و محافظ حرارتی هواپیما را بررسی کردند. در سرعت ۵ ماخ (تقریباً حدود ۶۱۰۰ کیلومتر بر ساعت) دمای هوای اطراف وسیله می‌تواند به حدود ۱۰۰۰ درجه سانتی‌گراد برسد، اما سیستم محافظ حرارتی توانست شرایط تقریباً نرمالی را برای عملکرد الکترونیک داخل سازه حفظ کند.
+
+این پروژه به منظور ساخت یک سکوی آزمایشی مافوق صوت طراحی شده است. مرحله بعدی باید آزمایش‌های پروازی کامل با نصب وسیله آزمایشی روی یک راکت ژئوفیزیکی باشد. هدف اصلی برنامه ایجاد فناوری‌هایی برای هواپیماها و فضاپیماهای مافوق صوت آینده است.
+
+در JAXA معتقدند که در آینده این فناوری‌ها امکان کاهش زمان پرواز بین ژاپن و آمریکا از طریق اقیانوس آرام را به حدود دو ساعت فراهم می‌کنند. علاوه بر این، تحقیقات می‌توانند پایه‌ای برای ساخت وسایلی باشند که قادر به صعود تا ارتفاع حدود ۱۰۰ کیلومتر هستند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14572
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14572_1779360738.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢سخنگوی وزارت خارجه روسیه: مسکو آماده کمک به اجرای توافقات احتمالی میان ایران و آمریکا است
+
+💢ماریا زاخارووا، سخنگوی وزارت امور خارجه روسیه گفت، روسیه کاملاً آماده است کمک‌های لازم را به تهران و واشنگتن برای اجرای تصمیماتی که ممکن است در جریان مذاکرات میان آن‌ها حاصل شود، ارائه دهد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14571
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14571_1779360739.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 لو رفتن موقعیت توسط نیروهای خودی و گیر افتادن ۴۸ ساعته و خفه شدن نیروهای سپاه پاسداران داخل تونل موشکی
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14570
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14570_1779360741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به بهانه امنیت اینترنت 80 میلیون ایرانی رو قطع میکنن !
+اونوقت با پاکستانی ها دیدار میکنن !
+بعد مه ترورش کردن میگن وحیدی رو از طریق اینترنت رد زنی کردن !!!
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14569
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بازارهای خلیج فارس با امید به توافق جمهوری اسلامی و آمریکا رشد کردند
+
+خبرگزاری رویترز گزارش داد بازارهای سهام خلیج فارس در آغاز معاملات پنج‌شنبه ۳۱ اردیبهشت، تحت تاثیر امیدها به نزدیک شدن آمریکا و جمهوری اسلامی به توافقی برای پایان جنگ خاورمیانه و همچنین افزایش قیمت نفت، رشد کردند.
+
+بر اساس این گزارش، سرمایه‌گذاران پس از سخنان دونالد ترامپ درباره قرار داشتن مذاکرات با جمهوری اسلامی در مراحل پایانی، نشانه‌های پیشرفت در گفت‌وگوها را دنبال می‌کنند.
+
+ترامپ هم‌زمان هشدار داده اگر جمهوری اسلامی با توافق موافقت نکند، حملات بیشتری انجام خواهد شد.
+
+شاخص بورس دبی یک درصد، شاخص ابوظبی ۰/۲ درصد و شاخص قطر ۰/۶ درصد افزایش یافتند. در مقابل، شاخص بورس عربستان سعودی اندکی کاهش یافت. قیمت نفت برنت نیز با رشد بیش از یک درصدی به ۱۰۶ دلار و ۲۹ سنت در هر بشکه رسید.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 10:39
 ---
 
