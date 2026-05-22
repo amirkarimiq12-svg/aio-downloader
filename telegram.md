@@ -7,6 +7,272 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 01:27
+---
+
+## rodast_omiddana — post 71792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 برنامه زنده
+*بازی جدید مذاکرات و توافق، برای حج و پیدا کردن مجتبی است
+*نگران نباشید حمله انجام میشود!
+لینک یوتیوب:
+https://www.youtube.com/watch?v=AWEqyobaSCQ
+</div>
+
+## KiriMohems — post 47901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تسنیم : نیروهای مسلح در صورت «حماقت دشمن» سناریوی تازه ای برای آمریکا و متحدانش آماده کردند.
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47900
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47900_1779487042.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: از اینکه با آدم‌های خیلی خیلی موفق ناهار بخورم، کلم کیری میشه ؛
+
+چون همش میخوان از موفقیت هاشون گنده گوزی کنند هی منم منم کنن خب منم میتونم بگم کسخل جان من رئیس‌جمهور شدم
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47899
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47899_1779487044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فردا امتحان ریاضی دارم برم بشینم پای صحبتای ترامپ از درس فاصله بگیرم
+همون موقع ترامپ:
+
+باور کنین من یه نابغه‌م، من تونستم این معادله رو حل کنم.
+(203 × 9 ÷ 2 + 1324 − 1292) × 19‌‌
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47898
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47898_1779487044.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ بلونده :
+
+من باهوش‌ترین آدمی هستم که قراره تو زندگیت باهاش ملاقات کنی.
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47897
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47897_1779487045.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ بازم کسخلش کش اومده وسط سخنرانی :
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 گواردیولا: تنها پشیمونی‌ای که توی دوران حضورم در سیتی دارم این بود که به جو هارت فرصت ندادم تا خودشو ثابت کنه @SportBaadNews
+</div>
+
+## SportBaadNews — post 252238
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252238_1779487046.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 گواردیولا: تنها پشیمونی‌ای که توی دوران حضورم در سیتی دارم این بود که به جو هارت فرصت ندادم تا خودشو ثابت کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252237
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252237_1779487047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 خوان گارسیا بعنوان بهترین بازیکن فصلِ لالیگا از نگاه رسانه‌ی اتلتیک انتخاب شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252236
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252236_1779487047.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 رشفورد با تیکه به منچستر استوری گذاشته از "فلیک، توخل، امری، بارسلونا، استون ویلا" تشکر کرده و گفته ممنونم که بهم اعتماد کردین وقتی همه چیز سخت بود
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338498
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338498_1779487048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در یک سخنرانی در سوفرن نیویورک گفت: «با عملیات خشم حماسی، رزمندگان ما اطمینان حاصل خواهند کرد که جمهوری اسلامی به عنوان بزرگ‌ترین حامی «تروریسم» دولتی در جهان، هرگز به سلاح هسته‌ای دست نخواهد یافت و خودشان هم این را می‌دانند.»
+ترامپ گفت: حکومت ایران به عنوان بزرگ‌ترین حامی تروریسم دولتی، به سراسر جهان پول می‌فرستد تا مشکل ایجاد کند.
+
+https://iranintl.com/202605221757
+</div>
+
+## IranIntlTV — post 338497
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338497_1779487048.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، به نقل از یک منبع نظامی گزارش داد نیروهای مسلح جمهوری اسلامی «به‌طور کامل» تحولات را زیر نظر دارند و در صورت آنچه «حماقت دشمن» و هرگونه بهانه‌جویی از سوی آمریکا و متحدانش خوانده شده، سناریوهای تازه‌ای آماده کرده‌اند.
+
+به گفته این منبع، در صورت اقدام نظامی احتمالی آمریکا، «نسخه سوم مبارزه جمهوری اسلامی» اجرا خواهد شد؛ نسخه‌ای که به ادعای او در حوزه تجهیزات جدید، اهداف نوین، تاکتیک‌ها و راهبردهای جنگی نمود خواهد داشت و حتی می‌تواند جبهه‌های جدیدی در سطح فرامنطقه‌ای ایجاد کند.
+
+این منبع نظامی همچنین مدعی شد آمریکا در صورت «زیاده‌خواهی و اقدام نظامی»، «تنبیه بزرگ سوم» را در کمتر از یک سال تجربه خواهد کرد؛ تنبیهی که به گفته او «به شکلی خاص‌تر و جدیدتر» خواهد بود.
+https://iranintl.com/202605226156
+</div>
+
+## IranIntlTV — post 338496
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338496_1779487049.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی صوتی به ایران اینترنشنال از فشار شدید در ایران و بلاتکلیفی و استرس به دلیل اظهارات دونالد ترامپ درباره امکان پایان جنگ و آتش‌بس می‌گوید. صدای او برای حفظ امنیتش با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## IranIntlTV — post 338495
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338495_1779487051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده، در سخنرانی خود در نیویورک درباره جنگ ایران اعلام کرد: «این ماجرا به‌زودی پایان خواهد یافت.»
+
+او همچنین گفت که ما جمهوری اسلامی را متوقف کرده‌ایم؛ آن‌ها هرگز به سلاح هسته‌ای دست نخواهند یافت.
+https://iranintl.com/202605220706
+</div>
+
+## IranIntlTV — post 338494
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338494_1779487051.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از دو مقام آمریکایی اعلام کرد که ترامپ صبح جمعه نشستی با اعضای ارشد تیم امنیت ملی خود درباره جنگ ایران برگزار کرد.
+اکسیوس نوشت به گفته منابعی که مستقیما با ترامپ گفت‌وگو کردند، او در حال بررسی حملات جدید است، مگر اینکه پیشرفتی در مذاکرات در آخرین لحظه حاصل شود.
+https://iranintl.com/202605229907
+</div>
+
+## Persian_Trend_Official — post 14693
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14693_1779487051.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 هیئت قطری تهران را ترک کرد
+
+💢گزارش‌ها حاکی است هیئت قطری پس از رایزنی‌های دیپلماتیک، تهران را ترک کرده است.
+
+💢این سفر در حالی انجام شد که قطر در کنار پاکستان و چند کشور منطقه، در تلاش برای میانجیگری میان ایران و آمریکا جهت دستیابی به توافقی برای پایان جنگ و ادامه مذاکرات هسته‌ای بود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14692
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14692_1779487052.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 ترامپ
+
+💢باور کنید من توانستم این معادله را حل‌ کنم
+!
+‌‌(203 × 9 ÷2+ 1324 − 1292) × 19
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14691
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14691_1779487053.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ایران بخشی از حریم هوایی غرب کشور را تا دوشنبه بست
+
+💢گزارش‌ها حاکی است ایران بخشی از حریم هوایی غرب کشور را برای پروازهای شبانه از غروب تا طلوع خورشید تا روز دوشنبه بسته است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14689
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14689_1779487053.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔥هم اکنون بندر نووروسییسک، روسیه مورد حمله موشکی پهپادی اوکراینی ها قرارگرفت،
+
+
+👩‍💻☆Phantom☆
+
+
+🆔 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14687
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14687_1779487055.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🔥❤️
+
+توضیح عکس:
+یک مرد آمریکایی موقع طوفان فلوریدا از داخلش خونه‌ش این عکس رو گرفته، چند تن فشار رو این درب و شیشه‌ها تحمل کردن!!!
+
+این یعنی کارخانه شیشه، قاب، گسکت، نصاب، استراکچر، ریل و... همه کارشون رو به نحو احسن انجام دادند.
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 00:17
 ---
 
