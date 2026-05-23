@@ -7,6 +7,509 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 11:26
+---
+
+## KiriMohems — post 47912
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ساعت ۲۴ امروز آخرین مهلت ثبت‌نام‌ تو کنکو ر کصشعر‌ ۱۴۰۵
+
+مهلت ثبت‌نام‌ در آزمون‌ سراسری‌ ‌و همچنین آزمون اختصاصی پذیرش دانشجو – معلم در دانشگاه‌های فرهنگیان و تربیت‌دبیر شهید رجائی سال‌ ۱۴۰۵ امروز ته میگیره و بپا که ته تون رو نماله
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47911
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وسط این همه بگایی و تهدید های جنگ ، بازار بورس امریکا هم برای ۹۰ ساعت بسته شد
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47910
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47910_1779523002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دن اسکاوینو، دستیار ارشد ترامپ، یه ویدئو از بمب‌افکن‌های B-2 رو بدون هیچ توضیحی توی توییتر پین کرده. ایشون پیش‌تر و یک‌روز قبل از جنگ ۴۰ روزه هم به همین شکل ویدئویی از جنگنده‌های آمریکایی منتشر کرده بود!
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قضیه ناموسی شد
+
+محمدباقر السعدی کون موجی فرمانده ارشد گردان‌های حزب‌الله عراق، قصد داشت به ایوانکا ترامپ، دختر رئیس‌جمهور آمریکا برای انتقام ترور قاسم سلیمانی حمله کند.
+
+او نقشه خانه ایوانکا در فلوریدا را در اختیار داشت. السعدی اخیراً در ترکیه بازداشت شده و در آمریکا علیه او کیفرخواست صادر شده است
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آزمون‌های های تخمی پایان نیمسال دوم سال تحصیلی ۱۴۰۴_۱۴۰۵ دانشگاه پیام‌نور از روز شنبه ۱۶ خرداد به صورت مجازی برگزار میشه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47907
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خب بکیرمان
+
+بازار بورس آمریکا برای 90 ساعت آینده بسته شد
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47906
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47906_1779523003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ به هیترش
+“برو خونه پیش مامانت!”
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47905
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47905_1779523004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: ما اینقدر نفت از ونزوئلا استخراج کرده‌ایم که هزینه جنگ را حدود ۲۵ برابر پرداخت کرده‌ایم.
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47904
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47904_1779523006.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران با صدور اطلاعیه‌ای، پرواز در بخش غربی حریم هوایی خود را تا صبح دوشنبه ممنوع اعلام کرد
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47903
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#صبحانه_عن_گیزشی
+
+و روزی فرا برسد
+که من برای تو
+بنویسم :
+شادمانی قمبل کرد و غم کیر شد
+موفقیت هایی برای تو آرزو میکنم
+تا یک امت و جماعت را
+انگشت به کون نگه داری
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252255
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252255_1779523007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خبر هایی منتشر شده که میگن آمریکا ویزای مهدی طارمی، احسان حاج‌صفی و شجاع خلیل‌زاده رو بدلیل گذراندن سربازی در سپاه صادر نمیکنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252254
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا نمیدونم طواف درست بود یا تواف
+دیگه خودتون منظور رو بگیرید
+</div>
+
+## SportBaadNews — post 252252
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رونالدو برداشته پست بنزما درحال تواف تو مکه رو ری‌پست کرده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استر اکسپوزیتو بعد از اینکه روی فرش قرمز کن حسابی درخشید، با یه کادوی فوق‌العاده که انگار کیلیان امباپه بهش داده، همه رو غافلگیر کرده داستان درباره یه گردنبند لوکس و انحصاری از جواهرات عالی با الماسیه که 1.2 میلیون دلار، یعنی نزدیک به 220 میلیارد تومن ما…
+</div>
+
+## SportBaadNews — post 252243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+استر اکسپوزیتو بعد از اینکه روی فرش قرمز کن حسابی درخشید، با یه کادوی فوق‌العاده که انگار کیلیان امباپه بهش داده، همه رو غافلگیر کرده
+
+داستان درباره یه گردنبند لوکس و انحصاری از جواهرات عالی با الماسیه که 1.2 میلیون دلار، یعنی نزدیک به 220 میلیارد تومن ما ارزش داره!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252242
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252242_1779523007.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| در نزدیکی فینالِ لیگ قهرمانان اروپا، لوئیز انریکه به این شکل با استفاده از یه صفحه نمایش بزرگ تاکتیک‌ هاش رو به بازیکناش القا میکنه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338538
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338538_1779523008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولیویا والز، سخنگوی کاخ سفید، با اشاره به حملات آمریکا و اسرائیل علیه جمهوری اسلامی گفت ایالات متحده «به تمام اهداف نظامی خود در «عملیات خشم حماسی» دست یافته یا از آنها پیشی گرفته است.»
+
+او افزود: «ترامپ همه کارت‌ها را در دست دارد و عاقلانه همه گزینه‌ها را روی میز نگه می‌دارد.»
+https://iranintl.com/202605235460
+</div>
+
+## IranIntlTV — post 338537
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338537_1779523008.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاهدات و تجربه شما از مشکلات حوزه نان، گرانی، کمبود یا شلوغی صفوف نانوایی چیست؟
+
+روی لینک زیر کلیک کنید و پیام‌های خود را از طریق مدیا‌بات برای ما بفرستید.
+
+https://t.me/intlmedia_bot
+
+پیام‌های شما به صورت زیر‌نویس در تلویزیون و همچنین در بخش‌های مختلف‌ خبری منتشر خواهد شد
+</div>
+
+## IranIntlTV — post 338536
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338536_1779523009.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان ساکن استرالیا روز شنبه دوم خرداد در بریزبن تجمع کرده و در حمایت از انقلاب ملی و جاویدنامان آن شعار دادند. یکی از سخنرانان این تجمع مبارزه ایرانیان با جمهوری اسلامی را نجات تمدن انسانی خواند.
+</div>
+
+## IranIntlTV — post 338535
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338535" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | شنبه ۲ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338534
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338534_1779523011.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه دولتی سی‌سی‌تی‌وی گزارش داد شمار جان‌باختگان انفجار گاز در یک معدن زغال‌سنگ در استان شانشی در شمال چین به ۹۰ نفر رسیده است. عملیات جست‌وجو و نجات همچنان ادامه دارد و علت حادثه در دست بررسی است. به گفته مقام‌های محلی، تلاش‌ها برای یافتن احتمالی مفقودان ادامه دارد.
+
+چین از اوایل دهه ۲۰۰۰ با اجرای مقررات سخت‌گیرانه‌تر و ارتقای استانداردهای ایمنی، تلفات معادن زغال‌سنگ را که اغلب بر اثر انفجار گاز یا سیلاب رخ می‌داد، کاهش داده است. با این حال، حادثه لیوشنیو از مرگبارترین حوادث معدنی گزارش‌شده در این کشور در دهه گذشته به شمار می‌رود.
+
+خبرگزاری شینهوا اعلام کرد مدیران شرکت مسئول این معدن بازداشت شده‌اند.
+https://iranintl.com/202605238441
+</div>
+
+## IranIntlTV — post 338533
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338533_1779523012.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی شیرازی، عضو تحریریه ایران‌اینترنشنال، گفت جمهوری اسلامی در حال حاضر دو ابزار برای مقابله در اختیار دارد؛ تنگه هرمز و اورانیوم غنی‌شده‌ای که در اختیارش است. او افزود: «اگر جمهوری اسلامی این دو اهرم را از دست بدهد، عملا همان تسلیم بی‌قید و شرطی رخ خواهد داد که دونالد ترامپ از آن سخن گفته بود.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338532
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338532_1779523013.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال از افزایش قیمت‌ها و لغو شدن مشاغل هنری خبر می‌دهد. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 338531
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338531_1779523015.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید در این شرایط سخت معیشتی، پیامک زده‌اند و فرزندآوری را تشویق می‌کنند.
+پیام این شهروند با هوش مصنوعی بازخوانی شده است.
+</div>
+
+## IranIntlTV — post 338530
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338530_1779523017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا طلایی‌نیک، سخنگوی وزارت دفاع جمهوری اسلامی، گفت دونالد ترامپ، رییس‌جمهوری آمریکا «هیچ چاره‌ای» جز پذیرفتن مطالبات تهران و به رسمیت شناختن «حقوق» جمهوری اسلامی ندارد.
+
+طلایی‌نیک گفت «تمکین نکردن» آمریکا به مطالبات جمهوری اسلامی، به «تحمیل» هزینه‌های بیشتر و «شکست‌های پیاپی» بعدی برای دونالد ترامپ و اسرائیل منجر خواهد شد.
+
+او افزود ترامپ باید ضمن پذیرش پیشنهادهای جمهوری اسلامی، به فکر جلوگیری از «خسارت‌ها و هزینه‌های بیشتر» ادامه جنگ برای مردم آمریکا و جامعه جهانی باشد.
+
+سخنگوی وزارت دفاع جمهوری اسلامی همچنین گفت «بی‌توجهی» ترامپ به منافع ملی آمریکا، «تبعیت از اسرائیل» و رفتارهای «مغرورانه» او، باعث فرو رفتن بیشتر آمریکا در «باتلاق» جنگ خواهد شد.
+https://iranintl.com/202605234414
+</div>
+
+## IranIntlTV — post 338529
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338529_1779523017.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻امیرمهدی علوی، سخنگوی فدراسیون فوتبال، امشب در یک برنامه تلویزیونی مدعی شد که با هماهنگی فیفا سفر تیم ملی فوتبال به آمریکا با پرواز اختصاصی «ایران‌ایر» نهایی شده است: «نشستن هواپیمای اختصاصی ایران‌ایر در محل برگزاری جام جهانی نهایی شده است.»
+
+🔹این در حالی است که ایران‌ایر سال‌هاست از سوی ایالات متحده تحریم شده و هیچ هواپیما یا پروازی متعلق به این شرکت امکان پرواز به آمریکا را ندارد.
+
+🔹ایران‌ایر همچنین از سوی بسیاری از کشورهای اروپایی محروم شده و فدراسیون فوتبال برای سفرهای اروپایی نیز ناچار به استفاده از پروازهای خارجی است.
+
+🔹با این حال، به نظر می‌رسد تلاش مهدی تاج و فدراسیون فوتبال برای استفاده از پرواز ایرانی بیشتر در سفر به آمریکا به مشکلات مالی فدراسیون مرتبط باشد؛ طبق برخی برآوردها، تنها پرواز کاروان تیم ملی به آمریکا بیش از نیم‌میلیون دلار هزینه خواهد داشت.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338528
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338528_1779523018.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی محمدنبی، سرپرست تیم ملی فوتبال، در حاشیه تمرین تیم ملی در پاسخ به یک رسانه بریتانیایی درباره شعار «مرگ بر آمریکا» هواداران حکومت در تجمعات شبانه و همزمان با حضور تیم در این تجمع گفت: «بدرقه بی‌نظیری بود؛ سابقه ندارد برای هیچ تیم ملی مردم جمع شوند و این بدرقه را انجام دهند.»
+
+🔹اعضای تیم ملی فوتبال هفته گذشته، در حالی که هیچ‌کدام ویزای آمریکا را برای شرکت در جام جهانی ۲۰۲۶ نداشتند، در یک مراسم شبانه حکومتی حاضر شدند و پس از آن به ترکیه رفتند تا اردوی آماده‌سازی پیش از مسابقات را برگزار کنند.
+
+🔹سرپرست تیم ملی روز جمعه در گفت‌وگو با آی‌تی‌وی درباره ویزای اعضای تیم ملی گفت: «مطمئنیم که ویزاها صادر می‌شود. در جلساتی که با فیفا داشتیم، این اطمینان را به ما دادند که با توجه به تضمین‌هایی که کشور میزبان برای این مسابقات داده، قطعا ویزای تیم را پس از طی شدن فرایند اداری صادر خواهد کرد.»
+
+🔹تیم ملی روز پنجشنبه برای دریافت ویزا به سفارت‌های آمریکا و کانادا در آنکارا مراجعه کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338527
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338527_1779523018.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌پست گزارش داد یک شهروند عراقی، از فرماندهان کتائب حزب‌الله عراق، گروه‌ تحت حمایت جمهوری اسلامی، قصد داشت ایوانکا ترامپ، دختر رییس‌جمهوری ایالات متحده، را ترور کند.
+
+گفت‌وگو با امید معماریان، تحلیل‌گر سیاسی در موسسه دان
+@iranintltv
+</div>
+
+## IranIntlTV — post 338526
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338526_1779523020.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیام به ایران‌اینترنشنال می‌گوید: «من تمام کار و زندگی‌ام موسیقی است، اما از شروع جنگ تا الان بیشتر کنسرت‌ها و فعالیت‌های مرتبط با آن تعطیل شده. برای آموزش هم کسی مراجعه نمی‌کند و در این چند ماه هیچ درآمدی نداشتم.»
+</div>
+
+## IranIntlTV — post 338525
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338525_1779523021.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جو ویلسون، عضو جمهوری‌خواه مجلس نمایندگان آمریکا، گفت حزب حاکم گرجستان با در اختیار گذاشتن حریم هوایی خود برای پروازهای ترابری راهبردی روسیه، مسیر انتقال تجهیزات نظامی به ایران را هموار کرده است. او افزود این اقدام به معنای «کمک مستقیم به تهران» در جنگ است.
+
+گفت‌وگو با روح‌الله رحیم‌پور، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338524
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338524_1779523023.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دریاچه نمکی در عربستان سعودی پس از بارش‌های بهاری بار دیگر پرآب شده و اکنون به یکی از پربازدیدترین مناظر طبیعی این کشور تبدیل شده است.
+
+گزارش فرزیا ثابتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338523
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338523_1779523025.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوان بین‌المللی دادگستری در یک رای مشورتی تایید کرد حق اعتصاب کارگران تحت پوشش و حمایت مقاوله‌نامه شماره ۸۷ سازمان بین‌المللی کار درباره آزادی انجمن و حمایت از حق تشکل‌یابی قرار دارد.
+روزبه بوالهری، عضو تحریریه ایران‌اینترنشنال، گفت این رای می‌تواند شرایطی فراهم کند تا تشکل‌های کارگری حامی کارگران ایران، از طریق نهادهای بین‌المللی، جمهوری اسلامی را درباره حق تشکل‌یابی کارگران تحت فشار قرار دهند و علیه آن شکایت کنند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338522
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338522_1779523027.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد قائدی، مدرس روابط بین‌الملل، گفت در صورت ازسرگیری حملات آمریکا، این بار بسیار گسترده‌تر و جدی‌تر خواهد بود و نقاطی در تنگه هرمز نیز هدف قرار خواهند گرفت. او درباره اهداف احتمالی اسرائیل در ایران نیز گفت زیرساخت‌هایی مانند صنایع پتروشیمی و چاه‌های نفتی می‌توانند در فهرست اهداف این کشور باشند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338521
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338521_1779523028.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حکم دادگاه تجدیدنظر، کنگره سال ۲۰۲۳ حزب جمهوری‌خواه خلق، بزرگ‌ترین حزب مخالف دولت در ترکیه را باطل و اوزگور اوزل، رهبر این حزب را از سمتش برکنار کرد.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14721
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14721_1779523030.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❗️ یک فروند بالگرد MH-60S متعلق به نیروی دریایی آمریکا با کال‌ساین «RESCU11» در آسمان خلیج عمان رصد شد.
+برخی منابع احتمال می‌دهند این پرواز در ارتباط با یک مأموریت جستجو و نجات انجام شده باشد.
+گفته می‌شود این بالگرد از یکی از ناوهای جنگی مستقر در دریای عمان به پرواز درآمده است.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14720
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14720_1779523030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 دولت سنگال منحل شد.
+
+🔹رئیس جمهور سنگال در شرایط پرتنش این کشور و در پی بالا گرفتن اختلافات با دولت، نخست وزیر متحد و حامی سابق خود را برکنار و دولت را منحل کرد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14719
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14719_1779523030.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرتیپ نامی: ناتوی اسلامی باید به محوریت ایران تشکیل شود.
+
+از حدود ۵۷ کشور اسلامی، بیشترین ظرفیت اقتصادی و جغرافیایی جهان به‌دست می‌آید که قدرت‌آفرین است.
+
+🔹در صورت تحقق این اتحاد، هیچ قدرتی نمی‌تواند به جهان اسلام زور بگوید؛ نمونۀ آن فلسطین است که تاکنون ۷۳ هزار شهید تقدیم کرده است.
+
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14718
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14718_1779523031.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نایب رئیس کمیسیون فرهنگی مجلس ایران می‌گوید که «مسئولان به این نتیجه رسیده‌اند که وصل کردن اینترنت به صلاح همه نیست و اینترنت بین‌المللی در حال حاضر بازگشایی نخواهد شد.»
+
+علی یزدی‌خواه با اشاره به این که قطع اینترنت از دستورات و اختیارات شورای عالی امنیت ملی است، گفت که «به لحاظ مسائل امنیتی، امنیت کشور»، اینترنت جهانی قطع شده است.
+
+او گفت که با وجود قطع اینترنت، «کسب‌وکارها از طریق ارتباطات بانکی، خرید و فروش و سایر خدمات آنلاین همچنان فعال هستند و مردم با مشکل عمده‌ای مواجه نیستند.»
+
+به گفته این نماینده مجلس برخی افرادی که از نظر مسئولان نیاز به دسترسی به اینترنت بین‌الملل داشتند، این امکان به‌صورت محدود برای آن‌ها فراهم شده است.
+
+آقای یزدی خواه افزوده «تقریبا بیش از ۹۰ درصد نیازها و احتیاجات مردم در فضای فعلی برآورده می‌شود و اگر اقشاری هستند که دچار مشکل‌ هستند، قابلیت پیگیری وجود دارد.»
+
+این در حالی است که کارشناسان اقتصادی نسبت به خسارات وارد شده به کسب و کارها در نتیجه قطع اینترنت هشدار داده‌اند.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14716
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14716_1779523032.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دن اسکاوینو معاون رئیس دفتر کاخ سفید و دستیار ترامپ،ویدیویی از بمب‌افکن‌های مخفی‌کار B-2 را بدون هیچ زمینه‌ای منتشر کرد،
+
+فکت مهم:
+آخرین باری که او این پست را منتشر کرد،
+چند ساعت بعد آمریکا و اسرائیل به ایران حمله کردند.
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 09:02
 ---
 
