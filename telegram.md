@@ -7,6 +7,349 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 22:13
+---
+
+## ChizBergerz — post 46717
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46717_1779561816.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینجا وزارت خارجه طالبان نیست، اینجا جلسه هیت امنای شهرداری شهر "بلک بورن" در انگلیسه!!!😐😂
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71831
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71831_1779561817.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وزیر جنگ آمریکا هگست تازه به کاخ سفید رسیده است و جلسه آغاز شده است.
+</div>
+
+## rodast_omiddana — post 71830
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71830_1779561818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در کانال 12 اسرائیل:
+"یا توافقی حاصل خواهد شد یا رژیم ایران برای همیشه نابود می‌شود. هیچ توافقی بدون در نظر گرفتن منافع کشور اسرائیل انجام نخواهد شد و موضوعات هسته‌ای بخش اصلی هرگونه توافق احتمالی خواهد بود.
+فکر نمی‌کنم نتانیاهو نگران باشد. اگر این توافق برای اسرائیل خوب نبود، من هرگز آن را انجام نمی‌دادم."
+</div>
+
+## rodast_omiddana — post 71829
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71829_1779561818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری
+تماس تلفنی فوری بی بی نتانیاهو با ترامپ
+</div>
+
+## rodast_omiddana — post 71828
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71828_1779561818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨الحدث:
+عاصم منیر با فرماندهان سپاه پاسداران دیدار کرده و از مواضع آنها شوکه شده است
+</div>
+
+## rodast_omiddana — post 71827
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71827_1779561818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 الگوی تکراری جنگ 12 روزه و 39 روزه:
+۱. پروازهای بی‌وقفه ترابری و لجستیکی به منطقه
+۲. استقرار گسترده تانکرهای سوخت‌رسان هوایی
+۳. خروج هواپیماهای C-17 از تیررس حملات احتمالی
+۴. آغاز «مذاکرات سازنده»
+۵. نمایش اختلاف میان اسرائیل و آمریکا بر سر جنگ یا مذاکره
+۶. ورود مذاکرات به مراحل جدی‌تر
+۷. ابراز نگرانی اسرائیل از حمله پیش‌دستانه
+۸. صحبت از پیش‌نویس نهایی توافق
+۹. آغاز جنگ
+نگران نباشید هیچ مذاکره ای به نتیجه نمیرسد و صرفا همه اینها نمایش هست..
+</div>
+
+## rodast_omiddana — post 71826
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71826_1779561818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مقامات اسرائیلی به Axios گفتند:
+«نخست‌وزیر نتانیاهو به شدت نگران توافق در حال بحث است و از ترامپ خواسته است که دور دیگری از حملات را آغاز کند».
+</div>
+
+## rodast_omiddana — post 71825
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71825_1779561818.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+▶️
+🔴
+🔴
+🎬 دوستان عزیزم بابت خستگی که در این چند روز داشتم امشب برنامه زنده نخواهم داشت..
+اگر جنگ بشه بلافاصله پخش زنده خواهیم داشت..
+</div>
+
+## KiriMohems — post 47920
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴همزمان که ونس، معاون اول ترامپ رفته کاخ سفید، هگست، وزیر جنگ هم به سرعت داره میره اونجا ، گویا اونجا سفره چیدن و بساط عرق و جنگ رو میخوان راه بندازن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252297
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252297_1779561819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 منابع مختلف دارن خبر میدن که ترامپ همین الان حین جلسه‌ی امنیت ملی با نتانیاهو تماس گرفته
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252296
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252296_1779561819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آکسیوس به نقل از منابع آگاه آمریکایی: ترامپ هنوز تصمیمی در رابطه با ایران نگرفته و قراره بعد از جلسه‌ی امنیت ملیش و مشورت با نتانیاهو تصمیمش رو بگیره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252295
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حواست اینجا باشه کار واجب باهاتون دارم در مورد مذاکرات بازهم تاکید میکنم 
+🔹برای ترامپ صرفا یک توافق برای بازگشایی تنگه هرمز و کنترل قیمت سوخت جت برای جام جهانیه 
+🔹برای ایرانم یک آنتراک و تایم استراحته که تا بتونه قواشو قوی ترکنه چون تغییری تو ریشه اختلافات…
+</div>
+
+## SportBaadNews — post 252294
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252294_1779561819.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سناتور لیندزی گراهام: اگه برای پایان درگیری ها قراره توافقی امضا بشه که موازنه قدرت در منطقه به نفع جمهوری اسلامی برگرده،این سوال پیش میاد که اصلا چرا جنگ از همون اول شروع شد؟
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252293
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252293_1779561820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 باراک راوید خبرنگار ارشد آکسیوس: سناتور لیندزی گراهام به من گفته که رهبران منطقه از ترامپ خواستن تا به ایران حمله کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252292
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252292_1779561820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 منابع عبری به نقل از مقامات ارشد اسرائیلی: ویتکاف برای توافق با ایران به ترامپ فشار میاره، اون بزرگترین مانع ترامپ برای برگشتن به جنگه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252291
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر دفاع سابق اسرائیل: هر توافقی بین جمهوری اسلامی و آمریکا برای ما فاجعه خواهد بود
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252290
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252290_1779561820.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کان اسرائیل: سطح آماده باش در اسرائیل در حال کاهش است. ولی شرایط ممکن است در لحظه عوض شود
+😬
+😬
+😬
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338647
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338647_1779561820.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک مقام آمریکایی گزارش داد: «ترامپ هنوز هیچ تصمیم نهایی در مورد توافق با جمهوری اسلامی نگرفته است.»
+
+اکسیوس نوشت که ترامپ و مشاورانش در مراحل قبلی جنگ نیز چندین بار تصور می‌کردند به توافق نزدیک شده‌اند، اما هیچ‌یک به نتیجه نرسید.
+https://iranintl.com/202605230532
+</div>
+
+## IranIntlTV — post 338646
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338646_1779561821.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی تاج، رییس فدراسیون فوتبال، خبر داد کمپ تیم ملی فوتبال از آریزونای آمریکا به کمپی در شهر تیخوانا مکزیک منتقل شده است.
+
+🔹او به سایت فدراسیون فوتبال گفت: «با این تغییر، مساله ویزا تا اندازه زیادی حل می‌شود. می‌توانیم با پرواز ایران‌ایر به مکزیک برویم و برگشت هم از همان‌جا بیاییم.»
+
+🔹تیخوانا شهری مرزی در شمال غربی مکزیک، در ایالت باخا کالیفرنیا، است و در نزدیکی مرز ایالات متحده و شهر سن‌دیگو قرار دارد.
+
+🔹رسانه‌های ایران امروز گزارش دادند سفارت آمریکا در آنکارا برای تعدادی از بازیکنان تیم ملی، از جمله مهدی طارمی، شجاع خلیل‌زاده و احسان حاج‌صفی، ویزا صادر نکرده است.
+
+🔹از سوی دیگر، فدراسیون فوتبال اصرار دارد با پرواز ایران‌ایر به آمریکا سفر کند؛ تصمیمی که با توجه به تحریم‌های این شرکت هواپیمایی، امکان‌پذیر نیست.
+
+🔹مهدی تاج توضیحی نداد که تکلیف ویزای ورود به آمریکا برای برگزاری مسابقات تیم ملی چه می‌شود.
+
+🔹از سوی دیگر به نظر می‌رسد این تصمیم فدراسیون فوتبال برای دور ماندن تیم ملی از تقابل با ایرانیان مقیم آمریکا باشد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338645
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانش‌آموزان در ایران در مناطق مختلف کشور در اعتراض به وضع موجود آموزشی تجمع کردند. آن‌ها به وضعیت بلاتکلیف آموزشی، فشارهای معیشتی و تصمیم مسئولان درباره امتحانات نهایی اعتراض کردند.
+
+
+
+گفت‌وگو با مهرداد قاسمفر، روزنامه‌نگار و تحلیل‌گر مسائل ایران
+@iranintltv
+</div>
+
+## IranIntlTV — post 338644
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338644_1779561821.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان مقیم آلمان روز شنبه دوم خرداد، علیه اعدام‌های جمهوری اسلامی و در حمایت از شاهزاده رضا پهلوی، در شهر هانوفر تجمع کردند.
+</div>
+
+## IranIntlTV — post 338643
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338643_1779561823.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» می‌گوید علی خامنه‌ای در خاطراتش به‌صراحت از تاثیرپذیری خود از سید قطب و نواب صفوی گفته است؛ افرادی که به گفته او در شکل‌گیری جریان‌های اسلام‌گرای رادیکال نقش داشتند. مهدوی‌آزاد در ادامه می‌گوید بر اساس برخی منابع آمریکایی، مجتبی خامنه‌ای نیز در نگاه سیاسی خود تحت تاثیر اسامه بن‌لادن قرار دارد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338642
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338642_1779561825.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین ثابتی، نماینده مجلس، در تجمع شبانه حامیان حکومت با تاکید بر قطعی بودن وقوع مجدد جنگ نظامی گفت: «ممکن است یک ساعت دیگر باشد، ممکن است یک روز یا یک سال، اما قطعی است. حتی اگر آمریکا تمام شرایط ما را بپذیرد، امضا کند و تسلیم شود، باز هم جنگ خواهیم داشت.»
+https://iranintl.com/202605233406
+</div>
+
+## IranIntlTV — post 338641
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گرچه در ساعات گذشته بحث توافق اولیه یا تمدید آتش‌بس بین جمهوری اسلامی و آمریکا مطرح شده، اما آن‌‌طور که سی‌بی‌اس گزارش داده، ارتش و نهادهای اطلاعاتی آمریکا برنامه حمله احتمالی به ایران را آماده و این برنامه را به دونالد ترامپ هم ارائه کرده‌اند. برنامه‌ای که شامل اهداف مختلفی در داخل ایران می‌شود. براساس گزارش‌ها، بسیاری از مقام‌های ارشد اطلاعاتی و نظامی آمریکا هم برنامه‌های آخر هفته‌ خود را تغییر داده و مرخصی‌های‌شان را لغو کرده‌اند.
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 338640
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338640_1779561826.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور راجر ویکر، رییس کمیته نیروهای مسلح سنای آمریکا، در ایکس نوشت که آتش‌بس ۶۰ روزه با فرض حسن نیت جمهوری اسلامی یک «فاجعه» خواهد بود و دستاوردهای عملیات خشم حماسی را از بین می‌برد.
+ویکر روز گذشته نیز در ایکس نوشت: «باید کاری را که آغاز کرده‌ایم، به پایان برسانیم.»
+https://iranintl.com/202605232378
+</div>
+
+## Persian_Trend_Official — post 14750
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14750_1779561826.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ادعای اکسیوس:
+
+«ترامپ هنوز تصمیم نهایی خود را درباره توافق با ایران اتخاذ نکرده است.»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ادعای الحدث به نقل از یک منبع عالی‌رتبه:
+
+💢تنها ساعات کمی تا اعلام توافق بین آمریکا و ایران فاصله است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14748
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14748_1779561827.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مارکو روبیو می‌گوید ممکن است امروز درباره مذاکرات ایران «خبر» اعلام شود، اما خودش هم هیچ چیز قطعی ندارد. به‌زبان ساده: احتمال پیشرفت هست، ولی تضمینی نیست.
+
+ممکن است امروز، فردا یا چند روز آینده نتیجه‌ای اعلام شود.
+💢هنوز کارها در جریان است «کمی پیشرفت» وجود داشته
+اما موضوع هنوز حل نشده.
+
+
+▪️ایران نباید سلاح هسته‌ای
+داشته باشد.
+
+▪️مسئله غنی‌سازی باید حل شود.
+اورانیوم غنی‌شده (خصوصاً سطح بالا) باید تحویل داده شود.
+
+▪️باید درباره دسترسی و کنترل غنی‌سازی توافق شود.
+
+▪️تنگه‌ها (احتمالاً اشاره به هرمز) باید بدون محدودیت باز بمانند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 21:13
 ---
 
