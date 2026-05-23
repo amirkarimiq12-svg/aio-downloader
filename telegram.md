@@ -7,6 +7,435 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 01:07
+---
+
+## rodast_omiddana — post 71847
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71847_1779572247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانال ۱۲:
+ترامپ در اتاق وضعیت تشکیل جلسه داد
+ترامپ شنبه به طور غیرمنتظره‌ای جی‌دی ونس معاون خود، دن کین، رییس ستاد مشترک ارتش، پیت هگست، وزیر جنگ و کل شورای امنیت ملی را به اتاق وضعیت کاخ سفید فراخواند.
+</div>
+
+## rodast_omiddana — post 71846
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71846_1779572247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سرویسم کردید سر توافق و توییت ترامپ...
+دوست عزیز هیچ توافقی در کار نیست بعدشم توافقم بکنند که از امری هست محال، بازهم رژیم سقوط خواهد کرد..
+منتظر حمله بزرگ آمریکا باشید و به اخبار توجه نکنید اینو امید دانا بهتون میگه..
+تمام
+</div>
+
+## rodast_omiddana — post 71845
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71845_1779572247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وال استریت ژورنال:
+رئیس‌جمهور آمریکا، ترامپ، به دستیاران خود اطلاع داده است که حق از سرگیری بمباران ایران را در صورتی که تهران «از اجرای توافق چارچوبی خودداری کند»، برای خود محفوظ می‌داند.
+</div>
+
+## rodast_omiddana — post 71844
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71844_1779572247.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ۵ سوخت رسان از اسرائیل بلند شدند.
+</div>
+
+## rodast_omiddana — post 71843
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71843_1779572248.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری افشاگری آقای وحید اسماعیلی دوست صمیمی جناب علی کریمی در مورد آغاز دعوا با مرتضی نجفی و باند کاسبان... به این حرفها خوب گوش کنید تا متوجه شوید من امید دانا اصلا در جریان نبودم و نفر آخر به ماجرا ورود کردم.. این سخنان را بشنوید و شرم کنید به من اتهام…
+</div>
+
+## rodast_omiddana — post 71842
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71842_1779572248.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری
+افشاگری آقای وحید اسماعیلی دوست صمیمی جناب علی کریمی در مورد آغاز دعوا با مرتضی نجفی و باند کاسبان...
+به این حرفها خوب گوش کنید تا متوجه شوید من امید دانا اصلا در جریان نبودم و نفر آخر به ماجرا ورود کردم..
+این سخنان را بشنوید و شرم کنید به من اتهام زدید که سلطان کریمی را تحریک کردم و خط دادم...
+</div>
+
+## rodast_omiddana — post 71841
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71841" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_امشب آمریکا حمله میکند؟ بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## rodast_omiddana — post 71840
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/71840" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 امشب آمریکا حمله میکند؟ بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## KiriMohems — post 47928
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47928_1779572252.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨🇺🇸 ترامپ: من در اتاق بیضی کاخ سفید هستم، جایی که همین حالا تماس بسیار خوبی با پادشاه محمد بن سلمان آل سعود، عربستان سعودی، محمد بن زاید آل نهیان، امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی، و وزیر علی الثعادی، قطر، مارشال فیلد سید عاصم منیر احمد شاه، پاکستان، رئیس‌جمهور رجب طیب اردوغان، ترکیه، رئیس‌جمهور عبدالفتاح السیسی، مصر، پادشاه عبدالله دوم، اردن، و پادشاه حمد بن عیسی آل خلیفه، بحرین، در مورد جمهوری اسلامی ایران و تمام موارد مرتبط با یک تفاهم‌نامه مربوط به صلح، برقرار شد. توافق‌نامه‌ای به طور کلی مذاکره شده است، مشروط به نهایی‌سازی بین ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلف دیگر، همان‌طور که در بالا ذکر شد. جداگانه، من با نخست‌وزیر بیبنتانی، اسرائیل، تماسی داشتم که به همان ترتیب بسیار خوب پیش رفت. جنبه‌های نهایی و جزئیات توافق‌نامه در حال حاضر در حال بحث هستند و به زودی اعلام خواهند شد. علاوه بر بسیاری از عناصر دیگر توافق‌نامه، تنگه هرمز باز خواهد شد. از توجه شما به این موضوع سپاسگزارم! رئیس‌جمهور دونالد جی. ترامپ
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252339
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252339_1779572253.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشون رئیس امور اطلاع رسانی دولته، اینترنت مردم بدبختو قطع کردن تو توییتر “حس خوب پدر بودن” پست میکنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252338
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب اینترنت رو وصل کنید این پیروزی رو جشن بگیریم
+</div>
+
+## SportBaadNews — post 252336
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این وسط ترامپ هم مردم ایرانو داد لاکار ، هم نتانیاهو رو. احتمالا با این وضع اونم آبان ماه رای نیاره
+</div>
+
+## SportBaadNews — post 252335
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کونی
+ترامپ کونی
+ترامپ کونی
+</div>
+
+## SportBaadNews — post 252334
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کانالمونو باز کنه یه بمب هسته ای رو بد نیوز خالی میکنه
+</div>
+
+## SportBaadNews — post 252333
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کانالمونو باز کنه یه بمب هسته ای رو بد نیوز خالی میکنه
+</div>
+
+## SportBaadNews — post 252332
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252332_1779572254.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: ترامپ کسشر گفته ما قرار نیست تنگه رو باز کنیم
+😐
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252330
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بوش؟ نهایتا دول احمدی نژاد باشی املاکی مادرقحبه❤️
+</div>
+
+## SportBaadNews — post 252328
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+از تسلیم بی قید و شرط رسید به ضجه زدن واسه تنگه هرمز، چقدر تو حقیری فقط مردمو بدبختتر از قبل کردی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252327
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آخر لازمه بگیم کسننه ترامپ اینهمه اوباما رو مسخره کردی همونکارو در یه شکل دیگه تکرار کردی @SportBaadNews
+</div>
+
+## SportBaadNews — post 252326
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252326_1779572254.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+✅| لالیگای امسال هم رسما و شرعا به اتمام رسید؛ بارسلونا قهرمان، رئال مادرید نایب قهرمان و ویارئال تیم سوم
+
+
+❌ لوانته، خیرونا و رئال اویدو هم به سگوندا دیویژن سقوط کردن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در آخر لازمه بگیم کسننه ترامپ اینهمه اوباما رو مسخره کردی همونکارو در یه شکل دیگه تکرار کردی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252324
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252324_1779572255.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+✅| کیلیان امباپه با 25 گل زده برا دومین سال پیاپی برنده پیچیچی (بهترین گلزن فصل لالیگا) شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252323
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خب اینترنت رو وصل کنید این پیروزی رو جشن بگیریم
+</div>
+
+## SportBaadNews — post 252322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال چهارمی رو هم زد، براهیم با پاس گل پیتارچ
+</div>
+
+## SportBaadNews — post 252321
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252321_1779572256.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ #رسمی | پایان نسل طلایی رئال مادرید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252320
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252320_1779572257.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی کارواخال هم بالاخره تعویض شد و آخرین بازیش با پیراهن رئال مادرید رو انجام داد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252319
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252319_1779572258.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دنی کارواخال هم بالاخره تعویض شد و آخرین بازیش با پیراهن رئال مادرید رو انجام داد
+@SportBaadNews
+</div>
+
+## Persian_Trend_Official — post 14788
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادمین هستم، با اجازه از الیاس عزیز. 📝
+
+این صرفا نظر شخصی من هست. 🙏
+
+به نظر من الان همه دارن از اینکه جام جهانی رویداد خیلی مهمی هست و ترامپ قبل از جام جهانی نمیزنه صحبت می‌کنند و میگن اگرم بزنه بعد از جام جهانی میزنه
+
+و فکر میکنم این دقیقا همون تله‌ای هست که شما هم دارید توش می‌افتید
+
+امنیت ملی آمریکا موضوعی نیست که با یک فستیوال بخواد موضوع مهمی مثل ج.ا رو به تعویق بندازه
+
+به نظرم از الان هم دارن توافق رو بولد میکنن تا به جام جهانی که رسیدیم دیگه هیچکس فکرش رو هم نکنه که بخوان وسط جام جهانی بزنن
+
+و خب دقیقا همونجاست که، بوووم‌ 🗿
+🐭🐁تباه به ملکوت اعلی می‌پیونده 😂
+البته اگر تا الان نپیوسته باشه 😈
+
+گفتم این صرفا نظر شخصی من هست. ❤️🙏
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14787
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14787_1779572259.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## Persian_Trend_Official — post 14786
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس | ادعای ترامپ دربارهٔ بازگشت تنگهٔ هرمز به حالت قبل واقعیت ندارد
+
+💢به‌گزارش فارس؛ برخلاف ادعای لحظات قبل دونالد ترامپ در شبکهٔ اجتماعی «تروث سوشال» مبنی بر بازگشت تنگهٔ هرمز به وضعیت پیشین و آماده‌سازی برای امضای توافق‌نامه، پیگیری‌های خبرنگار فارس نشان می‌دهد که این ادعا نیز با واقعیت‌ها فاصله دارد.
+
+💢براساس آخرین متن ردوبدل‌شده، در صورت توافق احتمالی، تنگهٔ هرمز کماکان تحت مدیریت ایران خواهد بود.
+
+💢اگرچه ایران موافقت کرده اجازه دهد تعداد کشتی‌های عبوری به میزان قبل از جنگ بازگردد، اما این به‌هیچ‌عنوان به معنای «تردد آزاد» به وضعیت قبل از جنگ نیست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی هاشم خبرنگار الجزیره:
+
+طبق گفته منابع من، پیش‌نویس پیشنهادی که قرار است نهایی شود شامل موارد زیر است:
+
+- پایان جنگ در همه جبهه‌ها از جمله لبنان
+
+- آزاد شدن میلیاردها دلار از دارایی‌های مسدود شده ایران
+
+- لغو محاصره دریایی آمریکا و گشایش تنگه هرمز
+
+- خروج نیروهای آمریکایی از مجاورت بلافصل ایران
+
+پس از این، طرفین ۳۰ روز فرصت خواهند داشت تا درباره مسئله هسته‌ای به توافق برسند.
+
+این ۳۰ روز با توافق طرفین قابل تمدید است.
+
+در طول این سی روز، عبور و مرور از طریق تنگه تسهیل خواهد شد.
+
+به گفته ایران، مدیریت تنگه هرمز موضوعی ایرانی-عمانی خواهد بود و در حال مذاکره با مسقط است./انتخاب
+
+
+😄😄😄😄😄 بخدا این ترامپ همرو سرکار گذاشته !
+</div>
+
+## Persian_Trend_Official — post 14783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وضعیت پرواز های نظامی ایالات متحده در آسمان منطقه . 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/persian_trend_official/14778?comment=576703
+
+من فشار بخورم یا نخورم تاثیری داره ؟
+فکر میکنی توافقی هم بشه از فردا دلار میشه 20 تومن و سرمایه گزار خارجی واسه ایران صف میبندن ؟
+داداش من این مسیر رو به قهقراست
+</div>
+
+## Persian_Trend_Official — post 14781
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14781_1779572259.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد تا حس پیروزی بهشون دست نده از سوراخ بیرون نمیان 😄
+</div>
+
+## Persian_Trend_Official — post 14780
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14780_1779572260.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢وضعیت پرواز های نظامی ایالات متحده در آسمان منطقه .
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14779
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی و آمریکا، حتی روی چهارچوب هم تا الان به نقطه مشترک نرسیدن !
+</div>
+
+## Persian_Trend_Official — post 14778
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14778_1779572261.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه ما ایرانی ها یا فکر میکنم توافق شده و بدبخت شدیم یا تو صف پمپ بنزینیم ! هیییچ حد وسطی نداریم ...
+</div>
+
+## Persian_Trend_Official — post 14777
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14777_1779572262.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+- اپستینی (ترامپ): میخوام توافق کنم. 😒
+
++ واکنش کودک کش (نتانیاهو): فعععک نکنم. 🤗
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14776
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14776_1779572263.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+متاسفانه ما ایرانی ها یا فکر میکنم توافق شده و بدبخت شدیم یا تو صف پمپ بنزینیم !
+هیییچ حد وسطی نداریم ...
+</div>
+
+## Persian_Trend_Official — post 14775
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که دقایقی پیش گفت‌وگوی بسیار خوبی با ولیعهد عربستان سعودی، ، رئیس امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید…
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 00:11
 ---
 
