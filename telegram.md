@@ -7,6 +7,213 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 21:13
+---
+
+## SportBaadNews — post 252289
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس: ترامپ علاوه بر کشورای عربی، با نتانیاهو راجب پیش‌نویس توافق ایران قراره صحبت کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252288
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252288_1779558213.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨جی‌دی ونس معاون اول رئیس‌جمهور آمریکا سفرهای خود را نیمه‌تمام گذاشته و به طور اضطراری به کاخ سفید بازگشت @iMamlekat
+</div>
+
+## SportBaadNews — post 252287
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252287_1779558214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 واشنگتن پست: ایران و آمریکا برای اعلام توافق تا یک شنبه عصر برای پایان جنگ در همه جبهه ها به توافق رسیدند! @SportBaadNews
+</div>
+
+## SportBaadNews — post 252286
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252286_1779558214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 واشنگتن پست: ایران و آمریکا برای اعلام توافق تا یک شنبه عصر برای پایان جنگ در همه جبهه ها به توافق رسیدند!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش اینستاگرامی یحیی گل‌محمدی به پست جدید ترامپ:
+</div>
+
+## IranIntlTV — post 338639
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338639_1779558215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت شانس دستیابی به توافق با تهران یا حمله و نابودی، «پنجاه‌پنجاه» است.
+
+رییس‌جمهوری آمریکا همچنین به اکسیوس گفت اواخر امروز برای بررسی آخرین پیشنهاد جمهوری اسلامی با مشاورانش دیدار می‌کند و احتمالا تا فردا درباره از سرگیری جنگ تصمیم خواهد گرفت.
+
+گفت‌وگو با فرشته پزشک، کارشناس روابط بین‌الملل، و جمشید برزگر، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338638
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338638_1779558218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پنتاگون ده‌ها فایل و ویدیو از پدیده‌های ناشناس هوایی منتشر کرده؛ از جمله تصاویری نزدیک ایران که بیش از پاسخ، پرسش می‌سازند: بشقاب‌پرنده یا خطای دید؟
+
+آرین ریسباف گزارش می‌دهد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338637
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338637_1779558220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از لیندسی گراهام، سناتور جمهوری‌خواه نوشت که برخی رهبران منطقه از ترامپ خواسته‌اند برای تضعیف جمهوری اسلامی اقدام نظامی انجام دهد تا توافق بهتری حاصل شود.
+
+گراهام به اکسیوس گفت: «برخی معتقدند در صورت حمله به ایران، این کشور توان آسیب جدی به زیرساخت‌های نفتی خلیج فارس را دارد و امنیت تنگه هرمز قابل تضمین نیست.»
+
+بنا بر این گزارش، برخی دیگر از رهبران منطقه و مشاوران ارشد ترامپ او را به پذیرش توافق فعلی ترغیب کرده‌اند.
+https://iranintl.com/202605238770
+</div>
+
+## IranIntlTV — post 338636
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338636_1779558221.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر قالیباف، اسماعیل بقایی، سخنگوی وزارت امور خارجه، را به‌عنوان سخنگوی هیات مذاکره‌کننده جمهوری اسلامی منصوب کرد. قالیباف پس از جنگ به ریاست این هیات منصوب شده و هفته گذشته نیز به‌عنوان نماینده ویژه جمهوری اسلامی در امور چین معرفی شد. وب‌سایت المانیتور در گزارشی این انتخاب‌ها را نشانه‌ای از تقویت جایگاه سیاسی او دلنست.
+
+گفت‌وگو با ایمان آقایاری، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338635
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338635_1779558223.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان آلمان روز شنبه در شهرهای کاسل و دوسلدورف برای حمایت از انقلاب ملی تجمع کرده و پرفورمنس هنری به یاد جاویدنامان انقلاب ملی برگزار کردند. در شهر کاسل ایرانیان شعار «کینگ رضا پهلوی» سر دادند.
+</div>
+
+## IranIntlTV — post 338634
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338634_1779558227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، به کانال ۱۲ اسرائیل گفت که یا به توافق می‌رسیم یا جمهوری اسلامی را برای همیشه نابود خواهم کرد. او افزود: «هیچ توافقی بدون در نظر گرفتن منافع اسرائیل انجام نخواهد شد و موضوعات هسته‌ای در آن خواهد بود.»
+
+رییس‌جمهوری آمریکا گفت: «فکر نمی‌کنم نتانیاهو نگران باشد. اگر برای اسرائیل خوب نبود، من توافق نمی‌کردم.»
+https://iranintl.com/202605236595
+</div>
+
+## IranIntlTV — post 338633
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338633" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | شنبه ۲ خرداد
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 14747
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14747_1779558228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️یک نظامی ارتش اسراییل توسط حزب الله لبنان کشته شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14746
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14746_1779558229.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لیندزی گراهام: برخی رهبران منطقه از ترامپ خواسته بودند به ایران حمله کند
+
+لیندزی گراهام، سناتور آمریکایی، به آکسیوس گفت برخی رهبران منطقه‌ای از دونالد ترامپ خواسته بودند برای تضعیف حکومت ایران و وادار کردن تهران به پذیرش توافقی با شرایط سخت‌تر، حملات نظامی علیه ایران انجام دهد.
+
+بر اساس این گزارش:
+
+▪️ در مقابل، گروهی دیگر از رهبران منطقه به همراه برخی مشاوران ارشد ترامپ، خواستار پذیرش توافق فعلی با ایران شده‌اند
+▪️ این افراد هشدار داده‌اند در صورت حمله، ایران همچنان توان تهدید تنگه هرمز و زیرساخت‌های اصلی نفتی خلیج فارس را خواهد داشت
+▪️ نگرانی اصلی آن‌ها، اختلال در صادرات انرژی و گسترش جنگ در منطقه بوده است
+♦️گراهام اما گفت:
+▪️ نسبت به این هشدارها تردید دارد
+▪️ اگر ایران در یک حمله گسترده «واقعاً نابود» شود، دیگر نباید توان تهدید هرمز یا منافع حیاتی منطقه را داشته باشد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14745
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14745_1779558229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر جنگ آمریکا: نیروهوایی ما برای اعزام به خاورمیانه آماده‌باش هستند
+
+▪️پیت هگست:
+
+♦️نیروهای ما برای همه‌چیز باید آماده باشند، زیرا دنیا در حال پیچیده‌تر شدن است.
+
+💢فقط به آنچه که سربازان ما در چند ماه گذشته انجام داده‌اند نگاه کنید. ما از آن‌ها خواستیم که از نیروی هوایی واکنش سریع، در هر لحظه، برای اعزام به خاورمیانه آماده باشند.
+
+💢ما از نیروهای ویژه‌مان خواسته‌ایم که مأموریت‌های سخت و بسیار مخفیانه‌ای را در منطقه جنوبی آمریکا انجام دهند؛ به‌عنوان نمونه، یک عملیات کوچک در ونزوئلا
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14744
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14744_1779558232.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای کانال ۱۳ اسرائیل:
+
+اسرائیل اطلاعاتی دریافت کرده که توافق [آمریکا] با ایران ممکن شده است./انتخاب
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 20:11
 ---
 
