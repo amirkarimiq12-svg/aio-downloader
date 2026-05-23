@@ -7,6 +7,518 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 17:56
+---
+
+## ChizBergerz — post 46699
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46699_1779546403.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴#ارسالی_خرم‌آباد
+
+شروع اعتراضات و پرتاب گاز اشک آور توسط سرکوبگران!
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46696
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واقعا اونی که پیج عکس‌های هوش‌مصنوعی بیلی‌ایلیش دستشه خیلی حلال خوره :)))
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 مذاکرات پوچ است منتظر حمله باشید
+لینک یوتیوب:
+https://www.youtube.com/watch?v=evYAcWvUs50
+</div>
+
+## rodast_omiddana — post 71817
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71817_1779546405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫 میدونید چرا 15 ساله منو میزنید و نتیجه نگرفتید چون من مردمی بالا آمدم و الان دومین پادکست سیاسی ایران هستم...
+حالا فکر کن میلیون ها برابر علی کریمی مردمی بالا آمده، بفهمید کسی که ریشه مردمی داره را نمیتوانید تخریب کنید..
+کسی که در سن 50 سالگی پشت پا بزنه به همه چیزی که ساخته، با حملات چهارتا بلاگر تازه به دوران رسیده جوگیر خم به ابرو نمیاره..
+</div>
+
+## rodast_omiddana — post 71816
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71816_1779546408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری
+پست الان ترامپ
+چه اتفاقی قراره بیفته؟
+
+(امروز در مصاحبه با جناب یوسیان گفتم اگر در اپوزسیون به اتحاد نرسیم و کوتوله ها الیت را بزنند چه اتفاقی میفته؟ او گفت آمریکا کل ایران را خودش اداره میکند)
+</div>
+
+## rodast_omiddana — post 71815
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71815_1779546408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨هیت پاکستانی فورا ایران را ترک کردند..
+تیک تاک
+</div>
+
+## rodast_omiddana — post 71814
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوری_خرم آباد لرستان گویا تظاهراتهای اعتراضی برای گرانی و دانش آموزان رخ داده است
+</div>
+
+## SportBaadNews — post 252278
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252278_1779546408.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میشه از ما وپن بخرید ❤️😊 @vpnbadnews_bot
+</div>
+
+## SportBaadNews — post 252277
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میشه از ما وپن بخرید ❤️😊
+
+@vpnbadnews_bot
+</div>
+
+## SportBaadNews — post 252276
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252276_1779546409.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تفاوت هتریک های رونالدو، مسی و یامال
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338604
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338604_1779546410.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻پرویز قلیچ‌خانی، اسطوره فوتبال ایران و تنها فوتبالیست ایرانی که سه بار قهرمان جام ملت‌های آسیا شد روز شنبه دوم خرداد ۱۴۰۵ در ۸۱ سالگی در بیمارستانی در پاریس درگذشت. او در پرسپولیس، تاج و پاس بازی کرد. زنده‌یاد قلیچ‌خانی، پس از انقلاب ۱۳۵۷ به دلیل گرایش‌های سیاسی از ایران خارج شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338603
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338603_1779546411.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه ایالات متحده آمریکا، در جریان سفر به هند، گفت: «جمهوری اسلامی باید اورانیوم غنی‌شده خود را تحویل دهد. موضوع هسته‌ای ایران، فوری است و همچنین تنگه هرمز باید باز بماند.»
+
+روبیو افزود: «فرصتی برای پذیرش توافق از سوی حکومت ایران در نزدیک‌ترین زمان وجود دارد.»
+https://iranintl.com/202605239482
+</div>
+
+## IranIntlTV — post 338602
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338602_1779546411.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعدادی از شرکت‌کنندگان در تجمع برلین با نوشتن اسامی جاویدنامان بر لباس‌های خود، یاد آنها را گرامی داشتند.
+
+یکی از شرکت‌کنندگان در این تجمع در گفت‌وگو با احمد صمدی، خبرنگار ایران‌اینترنشنال، گفت: «صدای زندانیان سیاسی، خانواده‌های جاویدنامان و مردم ایران هستیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338601
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338601_1779546414.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت امور خارجه، درباره شرایط تنگه هرمز در مذاکرات با آمریکا، گفت: «این موضوع ارتباطی به آمریکا ندارد.» بقائی افزود: «تهران و مسقط برای تعریف سازوکار مربوط به این تنگه چند دور گفت‌وگو برگزار کرده‌اند.»
+https://iranintl.com/202605234248
+</div>
+
+## IranIntlTV — post 338600
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338600_1779546415.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم مالمو در سوئد، با شرکت در تجمع اعتراضی از کشورهای اروپایی درخواست کردند تا روابط سیاسی با حکومت جمهوری اسلامی را قطع و سفارت‌های این حکومت را نیز تعطیل کنند. جمعی از این تجمع‌کنندگان در گفت‌وگو با مهران عباسیان، خبرنگار ایران‌اینترنشنال، همبستگی خود را با مردم داخل ایران اعلام کردند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338599
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338599_1779546418.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند ۱۵ ساله با ارسال پیامی به ایران اینترنشنال می‌گوید که به دلیل گرانی‌ها خجالت می‌‌کشد از خانواده‌اش چیزی بخواهد. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 338597
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338597_1779546421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عباس عراقچی، وزیر خارجه جمهوری اسلامی، در پیامی به شیخ نعیم قاسم، دبیرکل حزب‌الله لبنان، گفت: «جمهوری اسلامی دست از حمایت حزب‌الله نخواهد کشید و همچنان از جنبش‌های مطالبه‌گر حق و آزادی پشتیبانی می‌کند. تهران پیوند آتش‌بس لبنان با هر توافق احتمالی را به‌عنوان شرط مطرح کرده است.»
+https://iranintl.com/202605234240
+</div>
+
+## IranIntlTV — post 338596
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338596_1779546421.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻فوتبال ۳۶۰ در گزارشی با انتقاد از رفتار دوگانه مدیران فدراسیون فوتبال نوشت گروهی در فدراسیون در حالی که شعار «مرگ بر آمریکا» سر می‌دهند، «اما در عین شگفتی، چمدان بسته و منتظر ویزای آمریکا برای سفر به این کشور مانده‌اند و به طرق مختلف سعی در گرفتن ویزا داشته‌اند.»
+
+🔹به نوشته این رسانه، «یکی از افراد رده‌بالای این فدراسیون پس از آنکه ۲ بار درخواست ویزای آمریکایش رد شده، برای سومین بار درخواست ویزا داده است.»
+
+🔹فریده شجاعی، یکی از اعضای هیات‌رییسه فدراسیون فوتبال، پیش‌تر گفته بود که «از همه اعضای هیات‌رییسه خواسته شده برای ویزای آمریکا اقدام کنند» و همگی منتظر هستند تا وضعیت ویزا مشخص شود.
+
+🔹هرچند فدراسیون فوتبال در تکذیبیه‌ای، «انتظار اعضای هیات‌رییسه برای ویزای آمریکا» را مستند به «فکت‌های جعلی» دانسته و نوشته است که «اکثریت قریب به اتفاق اعضای هیات‌رییسه فدراسیون هیچ‌گونه برنامه‌ای برای سفر به آمریکا جهت همراهی تیم ملی نداشته و ندارند.»
+
+🔹فوتبال ۳۶۰ همچنین نوشته: «آمریکا که قرار است در شعارها «دشمن» باشد، اما ظاهرا در عمل برای برخی چنین نیست.»
+
+🔹گزارش کامل را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338595
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338595_1779546422.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش منابع محلی که به ایران اینترنشنال رسیده، اکبر محمدی، متولد ۱۴ شهریور ۱۳۶۴ و ساکن محله دهنوی اصفهان، پس از بازداشت و انتقال به زندان دستگرد جان خود را از دست داده است. بر اساس این گزارش، او سوم اردیبهشت‌ماه همراه برادرش بازداشت شد. منابع محلی می‌گویند اکبر در تماس با خانواده از بیماری و محرومیت از رسیدگی پزشکی در زندان خبر داده و گفته بود اجازه مراجعه به بهداری یا دریافت دارو نداشته است. به گفته این منابع، حال او پس از مدتی وخیم شد و بعد از دو هفته به بیمارستان الزهرای اصفهان منتقل شد، اما پس از چند روز به کما رفت و در نهایت بر اثر عفونت شدید ریه جان باخت. منابع محلی می‌گویند اکبر محمدی از پیگیران اخبار اعتراضات و انتشار تصاویر جان‌باختگان محله دهنو بود، و نیروهای بسیجی محله با او درگیر شده و سپس در خانه‌اش بازداشت شد.
+</div>
+
+## IranIntlTV — post 338594
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338594_1779546425.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه گزارش داد جمهوری اسلامی دو پیشنهاد به میانجی پاکستانی ارائه کرده که بر اساس آن، در ازای پرداخت غرامت از سوی آمریکا، تنگه هرمز را باز کند و پیش از امضای هرگونه توافقی، پرونده تحریم‌ها و دارایی‌های مسدود شده مورد بحث قرار گیرد.
+
+دونالد ترامپ، رییس‌جمهوری آمریکا، پیش‌تر گفته بود که حاضر به پرداخت غرامت به تهران نیست.
+https://iranintl.com/202605232546
+</div>
+
+## IranIntlTV — post 338593
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338593_1779546426.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت امور خارجه جمهوری اسلامی، گفت: «ما به توافق خیلی دور و خیلی نزدیک هستیم.» او افزود: «ما تجربه ضد و نقیض گویی طرف آمریکایی را داریم و دیدگاه‌های خود را بارها تغییر داده‌اند.»
+
+سخنگوی وزارت خارجه جمهوری اسلامی درباره سفر عاصم منیر، رییس ستاد کل ارتش پاکستان، به تهران، گفت: «پاکستان به عنوان میانجی نقش مهمی را ایفا کرده و هدف از این سفر ادامه تبادل پیام‌ها بین ایران و آمریکا بود.»
+
+بقائی درباره مذاکرات گفت: «تمرکز ما در این مرحله بر خاتمه جنگ است براساس پیشنهاد ۱۴ بندی تهران که چندین بار رفت و برگشت شده و در خصوص بندهای مختلف آن دیدگاه‌های طرفین تبادل شده است.»
+https://iranintl.com/202605233506
+</div>
+
+## IranIntlTV — post 338592
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338592_1779546426.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک معترض در تجمع ایرانیان مقیم مالمو در سوئد، با اشاره به قطع اینترنت در ایران به مهران عباسیان، خبرنگار ایران‌اینترنشنال، گفت: «وقتی در ایران مردم تیر می‌خورند ما اینجا می‌میریم، این باعث شده متحدتر شویم و هر هفته به اینجا بیاییم تا صدای مردم باشیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338591
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338591_1779546429.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گفت‌وگوی ویژه با لرد موریس گلاسمن، عضو مجلس اعیان بریتانیا
+
+لرد موریس گلاسمن که همواره تلاش‌های زیادی برای قرار گرفتن سپاه پاسداران در فهرست سازمان‌های تروریستی داشته است در این مصاحبه درباره آینده ایران و همچنین سیاست‌های بریتانیا در قبال جنگ ایران و آمریکا می‌گوید.
+
+تماشای نسخه کامل این گفت‌وگو در یوتیوب:
+
+https://youtu.be/GWHQiOMqYpc
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 338590
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338590_1779546431.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام، فرماندهی مرکزی ایالات متحده، اعلام کرد که در شش هفته گذشته، بیش از ۱۵ هزار سرباز، ملوان، تفنگدار دریایی و نیروی هوایی آمریکا مسیر حرکت ۱۰۰ شناور را تغییر داده‌اند، چهار شناور را از کار انداخته‌اند و اجازه عبور به ۲۶ کشتی حامل کمک‌های بشردوستانه داده‌اند.
+
+سنتکام افزود: «بیش از ۲۰۰ هواگرد و ناو جنگی آمریکا از این مأموریت پشتیبانی می‌کنند.»
+
+فرماندهی مرکزی ایالات متحده نوشت: «این محاصره علیه شناورهای متعلق به تمامی کشورها که وارد بنادر و مناطق ساحلی ایران می‌شوند یا از آنها خارج می‌شوند، از جمله تمامی بنادر ایران در خلیج فارس و دریای عمان، اعمال می‌شود.»
+https://iranintl.com/202605232997
+</div>
+
+## IranIntlTV — post 338589
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338589_1779546432.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان مقیم اروپا در شهرهای مختلف ایتالیا، آلمان و سوئد با برگزاری تجمع و راهپیمایی در همبستگی با معترضان داخل ایران، خواستار قطع روابط سیاسی با حکومت جمهوری اسلامی و تعطیلی سفارت‌ها شدند.
+مهران عباسیان و احمد صمدی، خبرنگاران ایران‌اینترنشنال، گزارش می‌دهند
+@iranintltv
+</div>
+
+## IranIntlTV — post 338588
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338588_1779546435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فداحسین مالکی، عضو کمیسیون امنیت ملی و سیاست خارجی مجلس، گفت در صورت ازسرگیری جنگ، چین و روسیه جمهوری اسلامی را تنها نخواهند گذاشت و آمریکا «با یک آرایش دفاعی نوین مواجه خواهد شد.»
+
+او گفت: «تداوم سفرهای دیپلماتیک و رایزنی‌های فشرده میان ایران، چین و روسیه نشان‌دهنده یک واقعیت راهبردی است؛ اینکه اگر آمریکا مرتکب خطای محاسباتی شود و شعله جنگ مجددی را بیفروزد، قطعا با یک آرایش دفاعی نوین مواجه خواهد شد و جمهوری اسلامی در این تقابل هرگز تنها نخواهد بود.»
+
+مالکی افزود در شرایط کنونی که بحران میان جمهوری اسلامی و آمریکا به دلیل روحیه تهاجمی و رفتارهای خارج از عرف دونالد ترامپ، رییس‌جمهوری آمریکا، پیچیده‌تر شده، تهدید امنیت تنگه هرمز عملا معادلات انرژی، تجاری و اقتصادی جهان را با چالشی جدی مواجه کرده است.
+https://iranintl.com/202605238565
+</div>
+
+## IranIntlTV — post 338587
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338587_1779546436.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانواده‌های جان‌باختگان و بسیاری از کاربران شبکه‌های اجتماعی، با انتشار نام، تصاویر و ویدیوهایی از معترضان کشته‌شده در ۱۸ و ۱۹ دی‌ماه، یاد آنان را گرامی داشتند و از ادامه راه آنان گفتند. این کارزار با استقبال گسترده کاربران همراه شد و بسیاری به آن پیوستند.
+
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338586
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338586_1779546439.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عبدالله ناصری، فعال سیاسی، مجتبی خامنه‌ای را چهره‌ای تندروتر و متوهم‌تر از علی خامنه‌ای توصیف کرد. او همچنین درباره زنده بودن رهبر سوم جمهوری اسلامی ابراز تردید کرد.
+
+جزییات بیشتر در گفت‌وگو با علی شیرازی، عضو تحریریه ایران اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338585
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338585" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیمروزی | شنبه ۲ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338584
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338584_1779546442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجت میرزایی، اقتصاددان و مدیر پیشین صندوق‌های بازنشستگی کشور، اعلام کرد با تداوم شرایط کنونی، شمار افراد زیر خط فقر در سال جاری به ۴۰ میلیون نفر خواهد رسید. این اقتصاددان تاکید کرد در سناریوهای بدبینانه، نرخ تورم سال جاری ممکن است سه‌رقمی شود.
+گفت‌وگو با آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14734
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14734_1779546444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢تیراندازی از صداوسیما به میان جمعیت رسید ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14733
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حزب‌الله: عراقچی بر حمایت «تزلزل‌ناپذیر» ایران تأکید کرده است
+
+💢حزب‌الله لبنان اعلام کرد پیامی از عباس عراقچی، وزیر خارجه ایران، دریافت کرده که در آن تهران بر حمایت «قاطع و تزلزل‌ناپذیر» خود از این گروه تأکید کرده است.
+
+♦️بر اساس بیانیه حزب‌الله:
+
+▪️ ایران اعلام کرده حمایت خود از حزب‌الله را ادامه خواهد داد
+
+▪️ تهران خواستار گنجانده‌شدن لبنان در هرگونه توافق آتش‌بس مرتبط با جنگ ایران شده است
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14732
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14732_1779546446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14731
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14731_1779546449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بقائی: تنگه هرمز به آمریکا ربطی ندارد
+
+♦️سخنگوی وزارت خارجه:
+
+🔹تنگه هرمز به آمریکا ربطی ندارد. بین ما و عمان به عنوان کشورهای ساحلی باید سازوکاری تعریف شود. ما با سازمان‌های ذی‌صلاح در گفتگو هستیم. ما آگاه نسبت به اهمیت این آبراه برای جامعه بین‌المللی هستیم.
+
+🔹جامعه بین المللی می‌داند که ناامنی ناشی از اقدام تجاوزکارانه آمریکا و رژیم صهیونیستی است. درک می‌کنند که اقدام مسئولانه ایران و عمان برای ایجاد سازوکاری جهت تردد ایمن کشتی‌ها از این آبراه به نفع جامعه بین‌المللی است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14730
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14730_1779546449.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: تفاهم اولیه میان ایران و پاکستان حاصل شده؛ تهران منتظر پاسخ آمریکاست 💢یک منبع ایرانی به الجزیره گفته است تهران و پاکستان بر سر یک «یادداشت تفاهم» به توافق رسیده‌اند و اکنون ایران در انتظار پاسخ نهایی آمریکا است. ♦️بر اساس این گزارش: ▪️ این تفاهم…
+</div>
+
+## Persian_Trend_Official — post 14729
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14729_1779546450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 الجزیره: تفاهم اولیه میان ایران و پاکستان حاصل شده؛ تهران منتظر پاسخ آمریکاست
+
+💢یک منبع ایرانی به الجزیره گفته است تهران و پاکستان بر سر یک «یادداشت تفاهم» به توافق رسیده‌اند و اکنون ایران در انتظار پاسخ نهایی آمریکا است.
+
+♦️بر اساس این گزارش:
+
+▪️ این تفاهم شامل پایان جنگ، بازگشایی تنگه هرمز و خروج نیروهای آمریکایی از منطقه است
+▪️ موضوع هسته‌ای در این توافق گنجانده نشده و به مذاکرات طولانی‌تری نیاز دارد
+▪️ طبق این طرح، پس از ۳۰ روز از اجرای توافق، گفت‌وگوها درباره پرونده هسته‌ای آغاز خواهد شد
+
+♦️این منبع همچنین تأکید کرده:
+
+▪️ مذاکرات فعلی بیشتر بر توقف درگیری‌ها و کاهش تنش منطقه‌ای متمرکز بوده است
+▪️ نقش پاکستان در میانجیگری میان تهران و واشینگتن همچنان کلیدی است
+▪️ هنوز مشخص نیست آمریکا با تمامی بندهای این تفاهم موافقت خواهد کرد یا نه
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14728
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14728_1779546451.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢فرمانده ارتش پاکستان ایران را ترک کرد
+
+💢عاصم منیر فرمانده ارتش پاکستان پس از دیدار دوم با عراقچی ایران را ترک کرده است/تستیم
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14727
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14727_1779546452.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بن‌گویر از ورود به خاک فرانسه منع شد
+
+💢‏وزیر امور خارجه فرانسه: «ایتمار بن‌گویر» وزیر امنیت داخلی اسرائیل از امروز از ورود به خاک ما منع شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14726
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ادعای منابع دیپلماتیک به العربیه: ایران ۲ پیشنهاد به میانجی پاکستانی ارائه کرده است
+
+💢ایران خواستار بحث درباره پرونده تحریم‌ها و دارایی‌های مسدودشده پیش از امضای هرگونه توافق شده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14725
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی وزارت خارجه:
+
+♦️ما به توافق خیلی دور و خیلی نزدیک هستیم
+
+💢هدف از سفر فرمانده ارتش پاکستان تبادل پیام‌ها میان‌ ایران و آمریکا بود.
+
+طی روزهای گذشته پیرامون مسائلی که اختلاف نظر وجود داشت بحث شد.
+
+💢با مواضع متناقض آمریکا نمی‌توانیم‌ بگوییم که این روند تغییر می‌کند. دیدگاه‌ها نزدیک شده است اما نه به معنای توافق بلکه بتوانیم به یک راه‌حل برسیم.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 16:26
 ---
 
