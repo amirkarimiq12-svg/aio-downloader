@@ -7,6 +7,498 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 02:05
+---
+
+## ChizBergerz — post 46725
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46725_1779575737.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴
+🔴لحظه تیراندازی در نزدیکی کاخ سفید!!!
+
+@ChizNewz
+</div>
+
+## ChizBergerz — post 46724
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏اصلا چرا من باید شخصی به نام “عاصم منیر” رو بشناسم؟ کیرم توی این سونوشت جدی. همین که شخصی به نام “عاصم منیر” رو می‌شناسیم یعنی باید رید توی این سرنوشت.
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71852
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71852_1779575738.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 نیرو ویژه آمریکا در کاخ سفید
+</div>
+
+## rodast_omiddana — post 71851
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71851_1779575740.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨تیراندازی سنگین در نزدیکی کاخ سفید
+صدای ۳۰ گلوله شنیده شده است
+</div>
+
+## rodast_omiddana — post 71850
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71850_1779575741.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 برگام از دست شما مردم..
+نمیفهمید ترامپ داره بازی میکنه و راهی جز حمله نداره؟
+زانو غم بغل کردید؟
+
+بعد من اُسکل انتظار دارم شما مردم بفهمید من برای تغییر پارادایم در رژیم با پرچم شیروخورشید رفتم نفوذ بکنم با دوتا تعریف از خامنه ای جاکش ریشه شعیه را بزنم...
+خدایا شکرت فیزیکی میان این مردم نیستم
+بفهمید ترامپ نمیتونه توافق کنه و همش بازیه...
+</div>
+
+## rodast_omiddana — post 71849
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71849_1779575741.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 در پاسخ به اخباری در مورد توافق کلی بهم پیام دادید و نظرمو خواستید..
+
+اینم نظرم: 
+😋
+😅
+😌
+</div>
+
+## rodast_omiddana — post 71848
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71848_1779575741.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دوستان عزیزم حمله آمریکا قطعی ست..
+توافق و مذاکره ای وجود نداره..
+شما به من اعتماد ندارید؟ دشمنانم نیز در این امور چون بهم اعتماد دارند از حسادت بهم حمله میکنند، از شما دوستان و مخاطبان انتظار بیشتری دارم..
+استرس نگیرید بروید بخوابید...
+</div>
+
+## KiriMohems — post 47930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش کانال ۱۲ اسرائیل:
+ترامپ تسلیم خواسته‌های جمهوری اسلامی شد
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47929
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: ما قرار نیست تنگه رو باز کنیم
+
+
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252375
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252375_1779575742.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط 18 روز تا شروع جام جهانی 2026
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252374
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252374_1779575743.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎ اگه این روزا سایتا سخت لود میشن، ربات تلگرام وینکوبت خیلی کارو راحت کرده:
+👇
+
+
+🤖 @Wincobet_bot
+
+بدون اینکه از تلگرام خارج شی میتونی مستقیم وارد بخش بازی‌ها و کازینو بشی، پیش‌بینی ثبت کنی و حتی واریز و برداشت انجام بدی.
+▪︎حالت Mini App داخل تلگرامه و خیلی سبک‌تر و سریع‌تر باز میشه:
+👇
+
+
+🤖 @Wincobet_bot
+</div>
+
+## SportBaadNews — post 252373
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252373_1779575745.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه‌ی تیراندازی در کاخ سفید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252372
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در نزدیکی کاخ سفید دوباره تیراندازی شده و قصد ترور یکیو داشتن @SportBaadNews
+</div>
+
+## SportBaadNews — post 252371
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در نزدیکی کاخ سفید دوباره تیراندازی شده و قصد ترور یکیو داشتن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252370
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنظرم بخوابیم
+</div>
+
+## SportBaadNews — post 252365
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252365_1779575747.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 المیادین:
+پیش‌نویس شامل آزادسازی 12 میلیارد دلار از دارایی‌های بلوکه‌شده‌ی ایران هست!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252363
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در اخر سیاست مداران دست هم دیگه رو میگیرند و ما مردم بازنده داستانیم💔
+</div>
+
+## SportBaadNews — post 252361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احساس میکنم جام جهانی ترامپ میره جایگاه ایران میشینه با یه پرچم در دست تیم ملی رو تشویق میکنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252360
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی زیدم ولم کرد توافق کردن دلار 180 میلاد حقوق نمیده کیرم تو این زندگی یکی نجات بده منو
+</div>
+
+## SportBaadNews — post 252359
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی زیدم ولم کرد
+توافق کردن
+دلار 180
+میلاد حقوق نمیده
+کیرم تو این زندگی یکی نجات بده منو
+</div>
+
+## SportBaadNews — post 252358
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252358_1779575748.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 همون چیزی که انتظار میرفت؛
+نیویورک تایمز: 25 میلیارد دلار از پولای بلوکه شده‌ی ایران قراره واسشون آزاد بشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252357
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252357_1779575748.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوووووری‌ الحدث:
+ایران و آمریکا به دشمنی طولانی مدتشون پایان دادن!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252356
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تمام شد
+مبارک خیلیا
+</div>
+
+## SportBaadNews — post 252355
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دلار 20 تومن ریخت، دلار 160 تومن
+</div>
+
+## SportBaadNews — post 252353
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیرم تو المیادین
+کیرم تو اکسیوس
+کیرم تو نیویورک پست
+کیرم تو والستریت ژورنال
+کیرم تو اسیشیتدپرس
+کیرم تو ان بی سی نیوز
+کیرم تو سی بی اس نیوز
+کیرم تو کانال ۱ تا ۱۰۰ اسرائیل
+کیرم تو الجزیره
+کیرم تو الحدث
+کیرم تو واشنگتن پست
+کیرم تو رویترز
+کیرم تو العربیه
+</div>
+
+## SportBaadNews — post 252352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم امتحانام ولی الان بحث بحث وطنه
+</div>
+
+## SportBaadNews — post 252351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حرفی نمی‌مونه داداشم
+
+فقط این که
+۸۰ روز از زندگی مردم بی گناه رو سخره گرفتن
+زندگی رو برا همه سخت کردن گرونی های بی حد و مرز
+و از دست دادن اون همه گل که پر پر شدن
+</div>
+
+## SportBaadNews — post 252350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هنوز هم جایزه 50 میلیون دلاری برای کشتن ترامپ سرجاشه؟
+</div>
+
+## SportBaadNews — post 252349
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالم بده اگه توافق کنن چی؟
+اگه امتحانا حضوری بشه چی ؟؟؟؟
+</div>
+
+## IranIntlTV — post 338667
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338667_1779575749.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌ها از شنیده شدن ده‌ها صدای تیراندازی در نزدیکی کاخ سفید خبر می‌دهد. به گزارش رسانه‌های آمریکایی، خبرنگاران در داخل کاخ سفید در محل امن مستقر شدند و ماموران سرویس مخفی در چمن شمالی کاخ سفید در حالی دیده می‌شوند که تفنگ در دست دارند.
+https://iranintl.com/202605231953
+</div>
+
+## IranIntlTV — post 338666
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338666_1779575750.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واشینگتن‌پست گزارش داد مقام‌ها و دیپلمات‌های آگاه از مذاکرات میان آمریکا و جمهوری اسلامی ابراز امیدواری کرده‌اند دو طرف پس از بررسی پیش‌نویس تهیه‌شده از سوی پاکستان، طی ۴۸ ساعت آینده تصمیم نهایی خود را اتخاذ کنند.
+
+گفت‌وگو با حسین علیزاده، دیپلمات پیشین
+@iranintltv
+</div>
+
+## IranIntlTV — post 338665
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338665_1779575752.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ از تماس تلفنی خود با رهبران کشورهای منطقه درباره ایران خبر داد. او تاکید کرد بخش زیادی از چارچوب توافق نهایی شده، اما اجرای آن همچنان به توافق نهایی میان واشینگتن، تهران و برخی کشورهای دخیل در مذاکرات بستگی دارد.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338664
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338664" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: تهدید پزشکیان به استعفا
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338663
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338663_1779575755.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در راس جمهوری اسلامی اختلاف بر سر توافق با آمریکا یا رفتن به سمت جنگ شدت گرفته است. مسعود پزشکیان در نامه‌ای به مجتبی خامنه‌ای نوشته توان تاب‌آوری نظام رو به پایان است و در صورت ادامه شرایط موجود تهدید به استعفا کرده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338662
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338662_1779575757.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه، گزارش داد بر اساس پیگیری‌های خبرنگار این رسانه، اظهارات جدید ترامپ مبنی بر بازگشت تنگه هرمز به وضعیت پیشین و آماده‌سازی برای امضای توافق‌نامه «با واقعیت‌ها فاصله دارد».
+فارس افزود: براساس آخرین متن ردوبدل‌شده بین آمریکا و جمهوری اسلامی، در صورت توافق احتمالی، تنگه هرمز کماکان تحت مدیریت حکومت ایران خواهد بود.
+طبق این گزارش، اگرچه جمهوری اسلامی موافقت کرده است که اجازه دهد تعداد کشتی‌های عبوری به میزان قبل از جنگ بازگردد، اما این به‌هیچ‌عنوان به معنای «تردد آزاد» مانند وضعیت پیش از جنگ نیست.
+خبرگزاری فارس تاکید کرد: «مدیریت تنگه، تعیین مسیر، زمان، نحوه عبور و صدور مجوز، کماکان در انحصار و با تدبیر جمهوری اسلامی خواهد بود. بنابراین ادعای ترامپ در این خصوص ناقص و فاقد انطباق با واقعیت است.»
+این گزارش افزود مقام‌های آمریکایی در پیام‌های متعدد به تهران گفته‌اند که توییت‌های ترامپ عمدتاً جنبه تبلیغاتی و مصرف رسانه‌ای در داخل آمریکا دارد و توصیه کرده‌اند که به این اظهارات توجهی نشود.
+
+https://iranintl.com/202605233399
+</div>
+
+## IranIntlTV — post 338661
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338661_1779575758.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ گفته روز یکشنبه درباره توافق یا جنگ با جمهوری اسلامی تصمیم می‌گیرد و احتمال توافق را ۵۰-۵۰ دانسته، اکنون نگاه‌ها به تصمیم اوست. آخرین پیشنهاد جمهوری اسلامی از طریق عاصم منیر، فرمانده ارتش پاکستان، به آمریکا منتقل شده و او پس از دیدار با مقام‌های تهران از انتقال نظرات نهایی جمهوری اسلامی به آمریکا خبر داده است.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14799
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14799_1779575760.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14798
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14798_1779575761.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14797
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14797_1779575762.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14796
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14796_1779575764.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر 🤍
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است. بر اساس گزارش اولیه: ▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند ▪️ هنوز جزئیاتی درباره…
+</div>
+
+## Persian_Trend_Official — post 14794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری | گزارش تیراندازی در اطراف کاخ سفید
+
+شبکه CBS گزارش داده صدای تیراندازی در اطراف کاخ سفید شنیده شده است.
+
+بر اساس گزارش اولیه:
+
+▪️ سرویس مخفی آمریکا از خبرنگاران حاضر در ورودی کاخ سفید خواسته فوراً به اتاق توجیه خبری منتقل شوند
+▪️ هنوز جزئیاتی درباره عامل تیراندازی یا محل دقیق حادثه منتشر نشده است
+▪️ وضعیت امنیتی در اطراف کاخ سفید به‌شدت تشدید شده است
+
+◼️تاکنون هیچ مقام آمریکایی درباره ماهیت حادثه یا احتمال تهدید علیه مقامات ارشد اظهار نظر رسمی نکرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14793
+
+
+
+
+## Persian_Trend_Official — post 14792
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14792_1779575766.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️درگذشت دیپلمات جمهوری آذربایجان در سانحه رانندگی در اتوبان جلفا-تبریز
+
+💢وزارت امور خارجه جمهوری آذربایجان در فضای مجازی از درگذشت دیپلمات خود در شهر تبریز بر اثر تصادف خبر داد.
+
+💢رامیل رضا اوغلو عمرانوف، کنسول جمهوری آذربایجان در جمهوری اسلامی ایران در شهر تبریز حین انجام فعالیت خدماتی در حوالی شهر مرند در اتوبان جلفا-تبریز بر اثر تصادف خودرویی که با آن در حال رانندگی بود جان خود را از دست داد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14791
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل نابود شده فقط یک تکون لازمه جولان تصرف بشه ...
+</div>
+
+## Persian_Trend_Official — post 14790
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14790_1779575766.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل نابود شده
+فقط یک تکون لازمه جولان تصرف بشه ...
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 01:07
 ---
 
