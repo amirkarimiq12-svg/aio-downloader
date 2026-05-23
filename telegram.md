@@ -7,6 +7,418 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 00:11
+---
+
+## ChizBergerz — post 46723
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46723_1779568862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خانمی که خونش نزدیک بیت رهخری بوده: من از پشت بوم داخل بیت رو نگاه کردم، بیت رسما با خاک یکسان و به پودر تبدیل شده! به احتمال زیاد علی خامنه‌ای تیکه تیکه شده!🔥
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46722
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46722_1779568863.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## ChizBergerz — post 46721
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46721_1779568865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون کوه رو انقدر دفن نکردید تبدیل به کود شده دیگه😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46720
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46720_1779568865.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاپاله‌خانوم تو فرودگاه داشت علامت پیروزی نشون میداد ولی وقتی دوربین اومد سمتش از هوش رفت و یهو یادش افتاد که شکنجه شده و گردنش شکسته :)))))
+
+چپ یعنی سرطان بشریت.
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71839
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_امشب آمریکا حمله میکند؟ بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## rodast_omiddana — post 71838
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_امشب آمریکا حمله میکند؟ بهروز یوسیان افسر سابق اطلاعات اسرائیل
+</div>
+
+## rodast_omiddana — post 71837
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71837_1779568866.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨
+🚨 ترامپ:
+"من در دفتر بیضی شکل کاخ سفید هستم جایی که ما به تازگی تماس بسیار خوبی با رئیس‌جمهور محمد بن سلمان آل سعود از عربستان سعودی، محمد بن زاید آل نهیان از امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید عاصم منیر احمد شاه از پاکستان، رئیس‌جمهور رجب طیب اردوغان از ترکیه، رئیس‌جمهور عبدالفتاح السیسی از مصر، پادشاه عبدالله دوم از اردن و پادشاه حمد بن عیسی آل خلیفه از بحرین، درباره جمهوری اسلامی ایران و همه موارد مربوط به یادداشت تفاهم مربوط به صلح داشتیم. توافقنامه‌ای تا حد زیادی مذاکره شده است که منوط به نهایی شدن بین ایالات متحده آمریکا، جمهوری اسلامی ایران و کشورهای مختلف دیگر ذکر شده است. به طور جداگانه، من تماسی با نخست‌وزیر بیبی نتانیاهو از اسرائیل داشتم که به همان صورت بسیار خوب پیش رفت. جنبه‌ها و جزئیات نهایی توافق در حال حاضر در حال بحث است و به زودی اعلام خواهد شد. علاوه بر بسیاری از عناصر دیگر توافق، تنگه هرمز باز خواهد شد. از توجه شما به این موضوع سپاسگزارم!"
+
+نگران نباشید هیچ توافقی در کار نخواهد بود و ترامپ داره دروغ میگه...
+</div>
+
+## rodast_omiddana — post 71836
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71836_1779568867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 توییت دوباره اتاق جنگ اسرائیل: ⌛️ (زمان تمومه)
+</div>
+
+## rodast_omiddana — post 71835
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71835_1779568867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک جلسه امنیتی ملی توسط ترامپ در کاخ سفید شروع شده است.
+</div>
+
+## rodast_omiddana — post 71834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 موقعیت اپوزسیون در میز تصمیم آمریکا و اسرائیل؟
+گفتگو با بهروز یوسیان افسر سابق اطلاعات اسرائیل
+لینک یوتیوب:
+https://www.youtube.com/watch?v=k-JMddLlyNQ
+</div>
+
+## rodast_omiddana — post 71833
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71833_1779568867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فاکس نیوز:
+هنوز هیچ توافقی بین رژیم جمهوری اسلامی و آمریکا صورت نگرفته است.
+</div>
+
+## SportBaadNews — post 252317
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252317_1779568867.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨
+🚨 ترامپ اعلام کرد که پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده و در حال نهایی شدن است و به زودی اعلام خواهد شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252316
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252316_1779568868.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨
+🚨 ترامپ اعلام کرد که پیش‌نویس تفاهم‌نامه‌ای با ایران تا حد زیادی مذاکره شده و در حال نهایی شدن است و به زودی اعلام خواهد شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252315
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252315_1779568868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داوید آلابا در میان تشویق هواداران رئال مادرید تو آخرین بازیش تعویض شد
+</div>
+
+## SportBaadNews — post 252314
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252314_1779568869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بارسا هم یکی زد، لواندوفسکی تو بازی آخرش: WATCH
+</div>
+
+## SportBaadNews — post 252313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داوید آلابا در میان تشویق هواداران رئال مادرید تو آخرین بازیش تعویض شد
+</div>
+
+## SportBaadNews — post 252311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| عجب شبی بود، تو بازی های آخرشون با رئال و بارسا یکیشون یه پاس گل شاهکار میده و اون یکی هم گل میزنه؛ چه بازی های خداحافظی... 💔❤️‍🩹
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بارسا هم یکی زد، لواندوفسکی تو بازی آخرش: WATCH
+</div>
+
+## SportBaadNews — post 252309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال سومی رو زد، امباپه: WATCH
+</div>
+
+## SportBaadNews — post 252308
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252308_1779568870.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آمار هری کین تو 5 فصل گذشته؛ آمار این فصلش دود از سرتون بلند میکنه
+💀
+💀
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252307
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252307_1779568870.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🥇
+🟡 | 56 بازی با بایرن مونیخ تو این فصل؛ 61 گل، 8 پاس گل، تاثیر مستقیم روی 69 گل
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252306
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252306_1779568871.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ این وسط بایرن مونیخ برای 21امین بار در تاریخش قهرمان جام حذفی آلمان یا همون دی‌اف‌بی پوکال شد، تبریک به هواداران این تیم
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252305
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252305_1779568872.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جود بلینگهام به آمار 151 تاثیر مستقیم روی گل تو 22 سالگی به عنوان یه هافبک رسید 🔥🔥
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338660
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338660_1779568873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس جمهوری ایالات متحده در شبکه تروث سوشال نوشت: «یک توافق میان ایالات متحده آمریکا، جمهوری اسلامی تنظیم شده و اکنون در انتظار نهایی شدن است. جنبه‌ها و جزییات نهایی توافق در دست بررسی است و به‌زودی اعلام خواهد شد.»
+
+دونالد ترامپ افزود: «علاوه بر بسیاری از بندهای دیگر توافق، تنگه هرمز نیز بازگشایی خواهد شد.»
+https://iranintl.com/202605230612
+</div>
+
+## IranIntlTV — post 338659
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338659_1779568874.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی در دیدار با جاش گاتهایمر، عضو حزب دموکرات در مجلس نمایندگان آمریکا، بر اهمیت حمایت دوحزبی کنگره ایالات متحده از مردم ایران تاکید کرد و گفت: ایرانیان نه‌تنها برای آزادی خود، بلکه برای پایان دادن به تروریسم جمهوری اسلامی علیه جهان مبارزه می‌کنند.
+https://iranintl.com/202605235303
+</div>
+
+## IranIntlTV — post 338658
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338658_1779568875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل گزارش داد که ترامپ در روز شنبه به طور غیرمنتظره‌ای جی‌دی ونس، دن کین، رییس ستاد مشترک ارتش، پیت هگست، وزیر جنگ و کل شورای امنیت ملی را به اتاق وضعیت کاخ سفید فراخواند.
+
+پیش‌تر ترامپ با رهبران کشورهای منطقه درباره مذاکرات با جمهوری اسلامی گفت‌وگو کرده بود.
+https://iranintl.com/202605233431
+</div>
+
+## IranIntlTV — post 338657
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338657_1779568875.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد سرافراز، عضو شورای عالی فضای مجازی، گفت: «تجهیزات مربوط به قطع دائمی اینترنت از چین خریداری و وارد شده است.» او افزود: «اپراتورهای عضو شورای عالی فضای مجازی در پشت‌پرده تصویب طرح اینترنت پرو نقش دارند و ذی‌نفعان قطع اینترنت در بازار فروش فیلترشکن و اینترنت ویژه فعال هستند.»
+https://iranintl.com/202605235937
+</div>
+
+## Persian_Trend_Official — post 14774
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14774_1779568876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد تا حس پیروزی بهشون دست نده از سوراخ بیرون نمیان 😄
+</div>
+
+## Persian_Trend_Official — post 14773
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14773_1779568877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من اکنون در دفتر بیضی کاخ سفید هستم؛ جایی که دقایقی پیش گفت‌وگوی بسیار خوبی با ولیعهد عربستان سعودی، ، رئیس امارات متحده عربی، امیر تمیم بن حمد بن خلیفه آل ثانی، نخست‌وزیر محمد بن عبدالرحمن بن جاسم بن جابر آل ثانی و وزیر علی الثوادی از قطر، فیلد مارشال سید عاصم منیر احمد شاه از پاکستان، رئیس‌جمهور رجب طیب اردوغان از ترکیه، رئیس‌جمهور عبدالفتاح السیسی از مصر، ملک عبدالله دوم از اردن و ملک حمد بن عیسی آل خلیفه از بحرین داشتیم؛ گفت‌وگویی درباره جمهوری اسلامی ایران و تمام مسائل مرتبط با یک یادداشت تفاهم در خصوص صلح.
+یک توافق تا حد زیادی میان ایالات متحده آمریکا، جمهوری اسلامی ایران و دیگر کشورهای ذکرشده مذاکره و تنظیم شده و اکنون تنها نهایی‌سازی آن باقی مانده است.
+به‌صورت جداگانه، گفت‌وگویی نیز با نخست‌وزیر اسرائیل، بی بی نتانیاهو، داشتم که آن هم بسیار خوب پیش رفت.
+در حال حاضر، جنبه‌ها و جزئیات نهایی توافق در حال بررسی است و به‌زودی اعلام خواهد شد.
+علاوه بر بسیاری از بندهای دیگر این توافق، تنگه هرمز نیز بازگشایی خواهد شد.
+از توجه شما به این موضوع سپاسگزارم!
+</div>
+
+## Persian_Trend_Official — post 14772
+
+
+
+
+## Persian_Trend_Official — post 14771
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14771_1779568878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️جهت مرور وقایع گذشته ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هیچ چیزی از رسانه خودم پاک نمیکنم
+زمانی که باور کردی جنگ نمیشه اتفاقا بهترین فرصته جنگ بشه
+بمونه به یادگار
+</div>
+
+## Persian_Trend_Official — post 14769
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14769_1779568880.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا نتانیاهو هست محور مقاومت عمو ندارد !
+</div>
+
+## Persian_Trend_Official — post 14768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه شواهد نشون میده برخلاف وانمود رسانه ها جنگ بسیار به ما نزدیکه
+</div>
+
+## Persian_Trend_Official — post 14767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت صفر نزدیک است
+</div>
+
+## Persian_Trend_Official — post 14766
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14766_1779568880.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستش امشب اصلا حال جسمی خوبی ندارم اما این رو بهتون بگم بهم اعتماد داشته باشید به نظر من دور بعدی جنگ در راهه این خبر هایی که در مورد توافق گفته میشه احمقانست توافقی وجود نداره همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی…
+</div>
+
+## Persian_Trend_Official — post 14765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «راستش امشب اصلا حال جسمی خوبی ندارم اما این رو بهتون بگم بهم اعتماد داشته باشید به نظر من دور بعدی جنگ در راهه این خبر هایی که در مورد توافق گفته میشه احمقانست توافقی وجود نداره همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی…»
+</div>
+
+## Persian_Trend_Official — post 14764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ اعضای ارشد تیم امنیت ملی آمریکا را به اتاق وضعیت کاخ سفید فراخواند
+
+💢گزارش‌ها حاکی است دونالد ترامپ معاون رئیس‌جمهور «جی‌دی ونس»، وزیر جنگ «پیت هگست»، رئیس ستاد مشترک ارتش ژنرال «دن کین» و تمامی اعضای شورای امنیت ملی آمریکا را به اتاق وضعیت (Situation Room) کاخ سفید فراخوانده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14763
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14763_1779568881.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستش امشب اصلا حال جسمی خوبی ندارم
+اما این رو بهتون بگم
+بهم اعتماد داشته باشید
+به نظر من دور بعدی جنگ در راهه
+این خبر هایی که در مورد توافق گفته میشه احمقانست
+
+توافقی وجود نداره
+
+همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی جمهوری اسلامی با تیم فعلی امریکا و اسرائیل وجود نداره !
+</div>
+
+## Persian_Trend_Official — post 14762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢کانال اسرائیلی کان:
+
+💢«ساعت‌های حساس: در اسرائیل منتظرند ببینند آیا تلاش‌های دیپلماتیک فشرده، به ویژه از سوی پاکستان و قطر، به امضای یادداشت تفاهم بین ایران و ایالات متحده منجر خواهد شد یا نه.
+
+💢این در حالی است که نخست‌وزیر بنیامین نتانیاهو به سمت ازسرگیری جنگ و حملات علیه ایران فشار آورده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 23:20
 ---
 
