@@ -7,6 +7,485 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 23:20
+---
+
+## ChizBergerz — post 46719
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46719_1779565842.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نتانیاهو: اگه این سیرک رسانه‌ایتون تمومه ما بزنیم :)
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46718
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46718_1779565843.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مادر مهدیس نظری آخرین ویدیوی ثبت‌شده از دخترش رو پیش از کشته‌شدن در مدرسه‌ی میناب منتشر کرد💔🖤
+
++ ریدم تو جسد نجست خامنه‌ای جنایتکار که این فرشته‌ها رو سپر انسانی ایدولوژی کثیفت کردی!
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71832
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71832_1779565845.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😎 
+😓 اون پسره لباس مشکیه که وسط وایستاده به همه اتهام جاسوسی میزنه حالا یکی به دوستش گیر داده که اون جاسوسه و عکسشم کنار آخوند گذاشته...
+یعنی رسما این نئو پادشاهی خواهان (چاپلوسان) فضای سیاسی رو به گند کشیدن..
+</div>
+
+## KiriMohems — post 47927
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر پرمیوم هستید مرام بزارید چنل رو بوست
+https://t.me/boost/KiriMohems
+
+اگر پرمیوم نیستید فدای تخمای نازتون مهم نیست یه ری اکت کافیه❤️
+</div>
+
+## KiriMohems — post 47926
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47926_1779565848.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت اکانت منسوب به اتاق جنگ اسرائیل
+
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 لیندسی گراهام: تو منطقه بعضی از قدرت‌ها ترامپ رو تحت فشار میذارن که جنگ با ایران رو از سر بگیره (امارات و کویت و بحرین و عربستان احتمالا) و بعضیا اون رو تحت فشار گذاشتن تا توافق صلح فعلی رو قبول کنه (قطر و عمان و پاکستان).
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47924
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47924_1779565849.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید | آکسیوس: طبق گفته یه مقام آمریکایی که تو جریان مذاکرات بوده؛ آمریکا و ایران خیلی به توافق نزدیک شدن و فقط سر نوشتن و مدل بیانِ چند تا بند هنوز یه‌سری ریزه‌کاری مونده. #professor @KiriMohems
+</div>
+
+## KiriMohems — post 47923
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47923_1779565849.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید | آکسیوس:
+طبق گفته یه مقام آمریکایی که تو جریان مذاکرات بوده؛
+
+آمریکا و ایران خیلی به توافق نزدیک شدن و فقط سر نوشتن و مدل بیانِ چند تا بند هنوز یه‌سری ریزه‌کاری مونده.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47922
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47922_1779565850.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :r2🅰
+
+🪙https://t.me/+kpFvLD9kaeJhYTI0
+</div>
+
+## KiriMohems — post 47921
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۲ اسرائیل: ترامپ و نتانیاهو امشب راجب ایران بصورت تلفنی باهم لاس میزنند .
+
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252304
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252304_1779565851.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال دومی رو زد، بلینگهام با پاس گل پیتارچ: WATCH
+</div>
+
+## SportBaadNews — post 252303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال یکی خورد
+</div>
+
+## SportBaadNews — post 252302
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئال دومی رو زد، بلینگهام با پاس گل پیتارچ: WATCH
+</div>
+
+## SportBaadNews — post 252301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیفو امشب هواداران رئال مادرید برای دنی کارواخال @SportBaadNews
+</div>
+
+## SportBaadNews — post 252300
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252300_1779565852.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسمی: کارواخال از رئال مادرید خداحافظی کرد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252299
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252299_1779565853.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیم زنان بارسلونا لیون رو برد و قهرمان چمپیونزلیگ شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252298
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+■ بدترین حس وقتیه که میخوای سریع وارد سایت شی، بازی شروع شده، ولی VPN وصل نمیشه یا سایت نصفه لود میشه. 
+😑
+
+- دیگه لازم نیست برای هر بار ورود به سایت VPN عوض کنی یا منتظر لود شدن بمونی؛
+
+📌در ربات تلگرام وینکوبت هم بازی‌ها و کازینو اجرا میشن، هم پیش‌بینی و واریز و برداشت مستقیم از داخل همون ربات انجام میشه:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+</div>
+
+## IranIntlTV — post 338656
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338656" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: تاثیرات بن لادن بر سبک زندگی مجتبی خامنه‌ای
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338655
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338655_1779565854.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاثیرات بن لادن بر سبک زندگی مجتبی خامنه‌ای
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/oPPdjYWeEIE
+@iranintltv
+</div>
+
+## IranIntlTV — post 338654
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338654_1779565857.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاثیرات بن لادن بر سبک زندگی مجتبی خامنه‌ای
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/oPPdjYWeEIE
+@iranintltv
+</div>
+
+## IranIntlTV — post 338653
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338653_1779565860.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد کل نیروهای مسلح جمهوری اسلامی در بیانیه‌ای نوشت: «این مسیر پرفروغ و نورانی ادامه خواهد یافت و مسلمانان و آزادی‌خواهان جهان، طعم شیرین نجات از شر شیاطین عالم، به ویژه آمریکا و اسرائیل را خواهند چشید و به فتوحات بیشتری نائل خواهند شد.»
+https://iranintl.com/202605233697
+</div>
+
+## IranIntlTV — post 338652
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338652_1779565862.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد بیژن کاظمی، زندانی سیاسی محبوس در زندان اوین، با حکم شعبه ۱۵ دادگاه انقلاب تهران در مجموع به ۳۷ سال و شش ماه حبس محکوم شد.
+
+بیژن کاظمی، زندانی سیاسی پس از کشته شدن محمد مقیسه و علی رازینی، دو قاضی دیوان عالی کشور در ۳۰ دی‌ماه ۱۴۰۳، در شهرستان کوهدشت بازداشت شده بود.
+https://iranintl.com/202605234393
+</div>
+
+## IranIntlTV — post 338651
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338651_1779565862.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در برنامه‌ای زنده در صداوسیما، زنی که ادعا می‌شود همسایه بیت علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، بوده در پاسخ به مجری که از او می‌پرسد چه اتفاقی برای «بیت رهبری» افتاده است، می‌گوید: «اگر از پشت‌بام نگاه کنی، تلی از خاک می‌بینی. منطقه [خامنه‌ای] خیلی سرسبز بود، اما حالا به بیابانی بی‌درخت تبدیل شده و فقط خاک است. درختی هم نیست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338650
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338650" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: ترامپ: شانس توافق با جمهوری اسلامی یا نابودی کامل آن‌ها پنجاه-پنجاه است
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338649
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338649_1779565864.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، گفت: «تا آخرین لحظه دست از عملیات برنداشتیم. با موشک‌ها و پهپادها برابر دشمن که مجهز به تسلیحات پیشرفته است، مقاومت کردیم.» او گفت: «با نابودی کامل اسرائیل منطقه جای آرام‌تری خواهد بود.»
+https://iranintl.com/202605236138
+</div>
+
+## IranIntlTV — post 338648
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338648_1779565865.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، در گفت‌وگو با اکسیوس اعلام کرد در دیدار با تیم مذاکره‌کننده، آخرین پیشنهاد جمهوری اسلامی را بررسی خواهد کرد. ترامپ گفته است احتمال دارد روز یکشنبه درباره ازسرگیری جنگ تصمیم‌گیریa کند و شانس توافق یا بازگشت به درگیری را «۵۰-۵۰» می‌داند.
+گفت‌وگو با امید معماریان، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ در حال برگزاری نشست امنیت ملی درباره ایران است
+
+💢گزارش‌ها حاکی است دونالد ترامپ هم‌اکنون در کاخ سفید ریاست یک نشست امنیت ملی را برعهده دارد؛ نشستی که همزمان با پیشرفت مذاکرات ایران و آمریکا و احتمال توافق بر سر «یادداشت تفاهم» برگزار می‌شود.
+
+بر اساس گزارش رسانه‌های آمریکایی:
+
+▪️ این نشست با حضور مقام‌های ارشد امنیتی، اطلاعاتی و نظامی آمریکا برگزار شده است
+▪️ محور اصلی گفت‌وگوها، بررسی پیش‌نویس توافق و تصمیم‌گیری درباره ادامه مسیر مذاکرات یا بازگشت به گزینه نظامی است
+▪️ ترامپ طی ساعات اخیر گفته بود «مذاکرات بسیار به توافق نزدیک شده‌اند» و پیش‌نویس توافق را مطالعه کرده است.
+
+همزمان:
+
+▪️ میانجیگران منطقه‌ای از جمله پاکستان، قطر و عربستان همچنان در تماس با دو طرف هستند
+▪️ گزارش‌ها از آماده بودن یک «یادداشت تفاهم» برای پایان جنگ و آغاز مذاکرات گسترده‌تر خبر می‌دهند
+▪️ با وجود فضای مثبت، اختلافات درباره برنامه هسته‌ای ایران و تحریم‌ها همچنان پابرجاست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14760
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14760_1779565868.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان باک ماشین ها رو پر کنید و کمربند هاتون رو سفت ببندید. 👽👾
+
+📝 Nick
+</div>
+
+## Persian_Trend_Official — post 14759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر جنگ بشه میام اگر نشه فعلا همون خبر های دیشب هست
+</div>
+
+## Persian_Trend_Official — post 14758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان امشب کسالت دارم نمیتونم لایو اجرا کنم
+عذرخواهی میکنم
+</div>
+
+## Persian_Trend_Official — post 14757
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14757_1779565868.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢همزمان با اخبار توافق، جمهوری اسلامی مقر گروه کومله در اربیل عراق را زیر ضرب حملات موشکی و پهپادی برده است.
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 فرانس پرس:
+
+💢تماس مکرون با ترامپ و رهبران عرب خلیج‌فارس در حمایت از راه‌حل دیپلماتیک با ایران
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ادعای رویترز درباره چارچوب سه مرحله‌ای برای مذاکرات آمریکا و ایران
+
+💢یک چارچوب سه مرحله‌ای برای مذاکرات آمریکا و ایران پیشنهاد شده است:
+
+♦️پایان رسمی جنگ،
+
+♦️حل و فصل بن‌بست تنگه هرمز
+
+♦️باز کردن پنجره مذاکره ۳۰ روزه برای توافقی گسترده‌تر. امکان تمدید نیز وجود دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 العربیه: تنها چند ساعت تا اعلام توافق میان ایران و آمریکا باقی مانده است
+
+💢خبرگزاری العربیه به نقل از یک منبع ارشد گزارش داد تنها «چند ساعت» تا اعلام رسمی توافق میان تهران و واشینگتن باقی مانده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14753
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14753_1779565870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی خضریان، عضو کمیسیون امنیت ملی مجلس
+
+💢در هر توافقی ایران حتما باید غرامت جنگ را دریافت کند.
+
+▪️شرایط تنگه هرمز به قبل از جنگ برنخواهد گشت این دستاورد و مطالبه رهبری است .
+
+▪️مطالبه ملت ایران است که از مدیریت تنگه هرمز عقب‌نشینی نشود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14752
+
+
+
+
+## Persian_Trend_Official — post 14751
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14751_1779565873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فاکس‌نیوز: تماس بسیار مثبت بود و پیشرفت خوبی در مذاکرات حاصل شده است
+
+«تماس سران عرب و ترامپ بسیار مثبت بود. پیشرفت خوبی در حال انجام است.
+
+بر اساس این گزارش:
+
+▪️ رهبران منطقه از روند پیشرفت مذاکرات حمایت کرده‌اند
+▪️ این منابع از «دستاورد دیپلماتیک» ترامپ در مذاکرات تمجید کرده‌اند
+▪️ فضای کلی گفت‌وگوها نسبت به روزهای گذشته مثبت‌تر ارزیابی می‌شود
+
+💢این گزارش در حالی منتشر می‌شود که:
+
+▪️ میانجیگری پاکستان، قطر، عربستان و چند کشور منطقه ادامه دارد
+▪️ بحث بر سر تمدید آتش‌بس و آغاز مذاکرات گسترده‌تر هسته‌ای همچنان در جریان است
+▪️همزمان آمریکا هنوز گزینه نظامی را کاملاً کنار نگذاشته است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 22:13
 ---
 
