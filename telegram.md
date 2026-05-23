@@ -7,6 +7,272 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 16:26
+---
+
+## ChizBergerz — post 46695
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46695_1779540965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نمیدونم این کیه و چکاره‌س و این چه برنامه‌ایه ولی پیش‌بینیش از روزهای آینده شنیدنیه:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46694
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46694_1779540967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با این وضعیتی که من تو تهران میبینم؛ اگه باشگاه های ورزشی تو ایران مختلط بشه جمعیت ورزشکارا چند برابر‌ میشه!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46693
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46693_1779540969.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ امشب #شانست رو امتحان کن: 
+⚠️ همین الان عضو شو و 500 هزارتومان جایزه بگیر و بازی های l اروپایی رو #رایگان پیشبینی کن(بدون نیاز به واریز
+🤩) 
+😮 تنها سایتی که با عضویت بدون واریز 500,000 تومان شارژ بی قیدو شرط میده #وینرو هست
+💰 
+👑 #معتبرترین سایت ایرانی 
+⬇️…
+</div>
+
+## ChizBergerz — post 46692
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46692_1779540970.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ امشب #شانست رو امتحان کن:
+
+
+⚠️ همین الان عضو شو و 500 هزارتومان جایزه بگیر و بازی های l اروپایی رو #رایگان پیشبینی کن(بدون نیاز به واریز
+🤩)
+
+
+😮 تنها سایتی که با عضویت بدون واریز 500,000 تومان شارژ بی قیدو شرط میده #وینرو هست
+💰
+
+
+👑 #معتبرترین سایت ایرانی 
+⬇️
+
+🌐 Winro.io
+
+🌐 Winro.io
+
+📱کانال اخبار و هدایا a2 
+🎁
+
+📱 @winro_io
+</div>
+
+## ChizBergerz — post 46691
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46691_1779540971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاید اولش با خودتون بگین آخی چه دختر ناز و مهربونی؛ ولی ایشون دوس پسرشو بخاطر اینکه حاضر نشد باهاش سکس کنه به قتل رسونده!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46690
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46690_1779540972.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکم زیبایی ببینیم بلکه کمی از این وضعیت کیری دور شیم...
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46689
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46689_1779540973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توی تجمعات شبانه حکومتی‌ها عروسی گرفتن و تفنگ دادن عروس جنده تا تیراندازی کنه!
+
++ یک مشت تروریست جنده سروکار داریم!
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71813
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71813_1779540974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آکسیوس
+ترامپ مصمم برای حمله به رژیم جمهوری اسلامی
+ترامپ در شش هفته گذشته چندین بار نزدیک به از سرگیری اقدام نظامی علیه ایران شده است اما در نهایت خودداری کرده است.
+منابع آشنا با تفکر ترامپ می‌گویند او اکنون به نظر می‌رسد تمایل بیشتری به پیشبرد اقدام نظامی دارد مگر اینکه مذاکرات به یک پیشرفت غیرمنتظره منجر شود.
+</div>
+
+## rodast_omiddana — post 71812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 ماجرای حمله کاسبان سیاسی به علی کریمی چیست و چرا من امید دانا ورود کردم؟
+لینک یوتیوب:
+https://www.youtube.com/watch?v=LgMcAw48Nkw
+</div>
+
+## rodast_omiddana — post 71811
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71811_1779540974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨اسرائیل‌هیوم:
+آمریکا و اسرائیل در حال بررسی این پرسش هستند که حذف مجتبی خامنه‌ای می‌تواند حکومت ایران را بی‌ثبات کند یا برعکس، به شکل‌گیری ساختاری رادیکال‌تر و توافقی شکننده مشابه برجام منجر شود
+</div>
+
+## KiriMohems — post 47918
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تجمع اعتراضی دانش آموزان در شهرهای شهرکرد ، خرم آباد ، یاسوج و بروجرد مقابل آموزش و پرورش تخمی شهر #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47917
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تجمع اعتراضی دانش آموزان در شهرهای شهرکرد ، خرم آباد ، یاسوج و بروجرد مقابل آموزش و پرورش تخمی شهر
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252268
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻روزنامه اعتماد: مجلس این هفته به این نتیجه میرسه که قطعی اینترنت کار بدیه و اون رو مصوب میکنه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338581
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338581_1779540974.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع دانش‌آموزان در شهرکرد، بروجرد، دورود، خرم‌آباد، بروجرد و یاسوج در اعتراض به بلاتکلیفی تحصیلی و امتحانات حضوری ادامه یافت. ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد ماموران با گاز اشک‌آور به دانش‌آموزان معترض حمله کردند.
+گفت‌وگو با آسیه امینی، تحلیل‌گر مسائل اجتماعی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338580
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338580_1779540976.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش تنش‌ها و احتمال ازسرگیری درگیری‌ها، حبیب‌الله سیاری، معاون هماهنگ‌کننده ارتش جمهوری اسلامی، گفت نیروهای مسلح برای مقابله با هرگونه تهدید آمادگی دارند و منتظر فرمان مجتبی خامنه‌ای هستند.
+
+او گفت: «نیروهای مسلح در پاسداری از تمامیت ارضی و استقلال کشور، مهیای خلق بیت‌المقدس‌هایی دیگر در برابر هر فتنه و جنگ تحمیلی هستند و این را دنیا بداند که هویت ما با ایثار و وطن‌پرستی گره خورده است.»
+https://iranintl.com/202605234510
+</div>
+
+## IranIntlTV — post 338579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت شما از زندگی در آتش‌بس- شنبه ۲ خرداد ۱۴۰۵
+
+🔹 امروز شنبه ۲ خرداد، ما دانش‌آموزان مقابل آموزش‌وپرورش استان آذربایجان غربی در ارومیه تجمع کردیم برای غیرحضوری شدن امتحانات.
+🔹 من تمام دوره‌های درسم را از تلگرام دانلود می‌کردم. دروس تخصصی را از یوتیوب تماشا می‌کردم. چند دوره هم از اینستاگرام خریده بودم و حالا کنکور دارم و باید با هیچی درس بخونم. به امید آزادی.
+🔹 از رفسنجان، بعد از چند وقت قطع بودن امروز ۲ خرداد وصل شدم. خواستم بگم مردم امیدتونو از دست ندین، نور بر تاریکی پیروز است.
+🔹 حتی اینترنت پرو که با ۱۰ برابر قیمت اینترنت قبلی فروخته می‌شود هم با اشکال و ناپایدار وصل می‌شود. کلاً با روح و روان آدم بازی می‌کنن.
+🔹 یوتیوبرم، فقط ماهی ۳ میلیون باید هزینه فیلترشکن کنم که بتونم ویدیو آپلود کنم.
+🔹 من یه دختر ۱۵ ساله هستم و هیچی از نوجوونیم نفهمیدم. فکر و ذکرم شده قیمت دلار و نگرانی برای آینده‌ام. انقدر همه‌چی گرون شده که شخصاً خجالت می‌کشم از خانوادم چیزی بخوام. به امید روزهای بهتر،
+</div>
+
+## IranIntlTV — post 338578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مجروحان انقلاب ملی ایرانیان با ارسال فایلی صوتی به ایران اینترنشنال، ماجرای زخمی و شکنجه شدنش به دست نیروهای امنیتی و لباس‌شخصی در ۱۸ دی‌ماه ۱۴۰۴ را روایت کرد. صدای او با هوش مصنوعی تغییر یافته است.
+</div>
+
+## IranIntlTV — post 338577
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338577_1779540977.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی رسیده نشان می‌دهد دانش‌آموزان بروجرد در تجمع روز شنبه برای اعتراض به حضوری شدن امتحانات، فریاد «مجازی مجازی» سر دادند.
+</div>
+
+## IranIntlTV — post 338576
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338576_1779540979.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مولوی عبدالحمید، امام‌جمعه اهل سنت زاهدان، گرانی و تورم را بی‌حد و مرز و مردم را گرسنه توصیف کرد. او دولت را فاقد اختیار و نقش موثر برای تصمیم‌گیری در سیاست‌های داخلی و خارجی دانست.
+
+گفت‌وگو با مهدی نخل‌احمدی، روزنامه‌نگار و فعال سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338575
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338575_1779540981.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دانش‌آموزان در خرم‌آباد، بروجرد و نقاطی از کهگیلویه و بویراحمد تجمع کردند و علیه مسوولان شعار دادند.
+
+گفت‌وگو با محسن مهیمنی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338573
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338573_1779540983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا درباره فعالیت‌های مشکوک دریایی در خلیج عدن هشدار داد. بر اساس این هشدار، چندین مورد نزدیک شدن قایق‌های کوچک به شناورها گزارش شده و در یکی از موارد نیز یک قایق بزرگ با دو موتور بیرونی مشاهده شده که حامل نردبان و سلاح بوده است.
+
+گفت‌وگو با تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14724
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14724_1779540985.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یارو میگه تمام نیازهای جامعه در شبکه داخلی برآورده میشه و نیازی به اینترنت نیست.‌ بعد توی توییتر داره اینو میگه. 😐
+
+‏همون‌طور که آپارات جای یوتیوب رو نگرفت، بله هم جای واتساپ رو نخواهد گرفت. (تلگرام رو نگفتم که بهش توهین نشه)
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 15:24
 ---
 
