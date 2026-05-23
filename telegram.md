@@ -7,6 +7,551 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 19:09
+---
+
+## ChizBergerz — post 46710
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46710_1779550774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯شانستو #رایگان امتحان کن 
+⚠️ 
+🤔 میدونستی توی #وینرو میتونی رایگان شرط ببندی؟ 
+👍تنها کاری که باید بکنی اینه که عضو سایتش بشید و 
+🤩
+🤩
+🤩 هزارتومان جایزه بگیرید بدون نیاز به واریز 
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی: 
+🌐 Winro.io 
+🌐 Winro.io…
+</div>
+
+## ChizBergerz — post 46709
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46709_1779550774.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯شانستو #رایگان امتحان کن 
+⚠️
+
+
+🤔 میدونستی توی #وینرو میتونی رایگان شرط ببندی؟
+
+
+👍تنها کاری که باید بکنی اینه که عضو سایتش بشید و 
+🤩
+🤩
+🤩 هزارتومان جایزه بگیرید بدون نیاز به واریز
+
+
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g2
+
+📱 @winro_io
+</div>
+
+## ChizBergerz — post 46708
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑آیپی جدید شیر و خورشید؛
+184.86.103.158
+23.77.7.74
+92.123.128.176
+104.109.250.232
+92.123.106.90
+92.123.102.160
+104.103.72.80
+96.16.248.159
+104.89.170.140
+104.126.37.176
+72.246.28.215
+88.221.169.205
+96.16.122.137
+104.103.72.50
+23.72.248.210
+23.73.2.75
+184.51.133.123
+88.221.168.204
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46707
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑آیپی جدید شیر و خورشید؛
+
+92.123.106.90
+92.123.106.43
+92.123.106.11
+92.123.106.42
+5.160.13.85
+78.157.41.60
+37.191.95.70
+37.191.76.110
+80.191.243.226
+5.160.128.142
+92.122.17.124
+23.44.201.149
+23.212.253.227
+23.44.201.185
+23.44.201.17
+23.62.54.24
+23.58.95.144
+104.83.198.44
+92.123.102.153
+184.51.252.134
+23.53.40.147
+184.51.252.176
+2.18.64.212
+172.104.251.198
+2.18.79.101
+23.216.77.181
+92.123.102.89
+23.216.77.80
+96.16.53.132
+23.53.40.139
+23.48.165.70
+2.21.20.143
+23.43.85.155
+23.48.23.184
+23.207.210.83
+23.209.125.169
+23.48.23.172
+2.21.240.22
+23.55.110.82
+23.216.77.35
+23.58.95.138
+23.33.40.149
+23.48.23.146
+23.209.125.145
+92.123.102.130
+23.53.40.121
+23.48.23.11
+23.201.248.171
+23.209.125.27
+23.48.23.176
+23.207.210.86
+23.55.161.151
+92.123.103.89
+2.23.7.34
+23.207.210.80
+23.48.23.165
+23.48.23.173
+23.48.23.156
+23.55.110.74
+173.222.107.202
+23.213.161.140
+23.48.23.134
+23.204.152.160
+2.23.97.120
+185.200.232.49
+185.200.232.50
+185.200.232.42
+185.200.232.41
+184.24.77.42
+184.24.77.32
+184.24.77.5
+184.24.77.7
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑آیپی جدید شیر و خورشید؛
+2.16.19.136
+2.23.168.7
+92.123.106.42
+92.123.106.11
+2.23.168.254
+2.23.168.174
+185.200.232.42
+2.23.168.7
+185.200.232.50
+92.123.106.33
+92.123.106.90
+2.16.53.57
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برم ببینم آیپی‌های جدید و وصل شیروخورشید چی پیدا میکنم...
+</div>
+
+## ChizBergerz — post 46704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش‌مصنوعی همیشه حق میگه😂🔥👌 @ChizBergerz
+</div>
+
+## ChizBergerz — post 46703
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46703_1779550775.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش‌مصنوعی همیشه حق میگه😂🔥👌
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46702
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46702_1779550775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+والا😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46701
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46701_1779550777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت موش‌علی: 😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46700
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46700_1779550778.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این اینفلوئنسر خارجی بعد از گیم اف ترونز و بریکینگ بدو... رفته جزیرهِ اپستین و همه رو مثل سگ‌ کتک زده :)))
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71823
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71823_1779550779.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 امشب آمریکا حمله میکند؟
+بهروز یوسیان افسر سابق اطلاعات اسرائیل
+https://www.youtube.com/watch?v=PfWpBKaP7q4
+</div>
+
+## rodast_omiddana — post 71822
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71822_1779550780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وال استریت ژورنال:
+"ترامپ در جلسه تیم امنیت ملی به مشاوران خود گفت که می‌خواهد زمان بیشتری برای دیپلماسی با ایران در نظر بگیرد."
+
+یعنی ترامپ جان با اعصاب و روان مردم داری بازی میکنیا دهنتو
+</div>
+
+## rodast_omiddana — post 71821
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71821_1779550780.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یعنی با صدها پیام اینجوری مواجهم که نمیتونم منتشر کنم
+</div>
+
+## rodast_omiddana — post 71820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚫اامید جان درود
+از صبح GPS ها تو دبی قطع شده. مث زمان جنگ که قطع بود. احتمالا قراره زد و خورد بشه
+</div>
+
+## rodast_omiddana — post 71819
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71819_1779550780.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 با این خبر به امید خدا امشب احتمال جنگ بالاست..
+</div>
+
+## SportBaadNews — post 252279
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252279_1779550781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منطق توخل
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338618
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338618_1779550781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه، به نقل از یک منبع مطلع نوشت که خبر العربیه درباره اینکه تهران پیشنهاد تعلیق ۱۰ ساله غنی‌سازی اورانیوم بالای ۳.۶ درصد را مطرح کرده، «از اساس کذب است».
+
+تسنیم به نقل از این منبع با تاکید بر «ساختگی» بودن خبر العربیه، نوشت: «اساسا تمرکز پیام‌ها و گفتگوها در وضعیت فعلی صرفا بر روی مساله پایان جنگ است و هیچ جزئیاتی درباره موضوع هسته‌ای مورد بحث قرار نمی‌گیرد.»
+https://iranintl.com/202605236278
+</div>
+
+## IranIntlTV — post 338617
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338617_1779550781.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، رسانه وابسته به سپاه، درباره روند مذاکرات تهران و واشینگتن، با اشاره به اینکه هنوز اختلافات جدی در بعضی از حوزه‌ها مانند تعهد واقعی آمریکا به آزادسازی اموال و موضوع تنگه هرمز وجود دارد، نوشت: «با توجه به زیاده‌خواهی‌های آمریکا، احتمال عدم حل موضوعات بالاست.»
+
+در این گزارش آمده که در صورت حل موارد اختلاف، احتمالا در گام اول یک تفاهم اولیه اعلام شود و سپس مهلت ۳۰ یا ۶۰ روزه برای گفتگو درباره موضوع هسته‌ای (بدون تعهد اولیه جمهوری اسلامی) اعلام شود.
+
+تسنیم نوشت که آمریکایی‌ها در متون پیشین خود تاکید داشتند که تهران در همان گام نخست باید امتیازاتی در بحث هسته‌ای بدهد و موضوع تعطیلی تاسیسات هسته‌ای و تحویل مواد غنی‌شده به آمریکایی‌ها از جمله مباحثی است که مدام در متن‌های آمریکایی‌ها مورد درخواست قرار می‌گرفت اما حکومت ایران اساسا بحث درباره جزئیات هسته‌ای را در این مرحله رد می‌کند.
+
+بر اساس این گزارش تهران بر ضرورت پایان جنگ و تهدید در همه جبهه‌ها از جمله لبنان تاکید دارد. و این موضوع باید مورد پذیرش طرف آمریکایی قرار گیرد اما آمریکایی‌ها در برخی از متن‌های پیشین خود با این موضوعات مخالفت کرده‌اند.
+</div>
+
+## IranIntlTV — post 338616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز شنبه در لندن با حمل پرچم‌های شیروخورشید در حمایت از انقلاب ملی علیه جمهوری اسلامی تجمع کردند.
+</div>
+
+## IranIntlTV — post 338615
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338615_1779550782.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، در دیدار با نارندرا مودی، نخست‌وزیر هند، تاکید کرد ایالات متحده اجازه نخواهد داد جمهوری اسلامی بازار جهانی انرژی را گروگان بگیرد.
+
+گفت‌وگو با تاج‌الدین سروش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338614
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338614_1779550783.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایننشال تایمز گزارش داد که میانجی‌های جنگ ایران معتقدند در حال نزدیک شدن به توافقی هستند که آتش‌بس میان واشینگتن و تهران را به مدت ۶۰ روز تمدید و چارچوبی برای مذاکرات درباره برنامه هسته‌ای جمهوری اسلامی ایجاد کند.
+
+بنا بر این گزارش، افرادی که در جریان این مذاکرات قرار دارند به این رسانه گفتند این توافق شامل بازگشایی تدریجی تنگه هرمز و همچنین تعهد به بررسی رقیق‌سازی یا واگذاری ذخایر اورانیوم با غنای بالا خواهد بود.
+
+فایننشال تایمز افزود که آمریکا همچنین محاصره دریایی بنادر جنوب ایران را کاهش می‌دهد و با کاهش تحریم‌ها و همچنین آزادسازی مرحله‌ای دارایی‌های مسدودشده تهران در خارج از کشور موافقت خواهد کرد.
+https://iranintl.com/202605239287
+</div>
+
+## IranIntlTV — post 338613
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روایت شما از زندگی در آتش‌بس- شنبه ۲ خرداد ۱۴۰۵
+🔹 ترامپ کارمند ما نیست که امر و نهی کنیم، موش علی و فرمانده‌هاش و سرکوبگرهاش رو ذلیل کرد، حالا نوبت ماست اعتصاب کنیم. نه به گوشت و مرغ رو شروع کنیم تا فراخوان بعد.
+🔹 در تهران گرانی بیداد می‌کند. حقوق‌ها را دیر می‌دهند. یک کیلو توت‌فرنگی در تره‌بار ۳۰۰ هزار تومان، در مغازه معمولی ۶۰۰ هزار تومان. دارو در داروخانه کمیاب شده. یک بطری کوچک روغن زیتون یک میلیون و پانصد هزار تومان.
+🔹 دم همه دانش‌آموزان غیور لر گرم که زیر بار حرف زور و ستم نمی‌روند، به‌قول شاهزاده عزیز واقعاً نسل ویکتوری هستید.
+🔹 درود، من یک نوجوان ۱۶ ساله هستم که صندوق‌دار یک فروشگاه هستم. آن‌قدر همه‌چیز گران شده که حتی خودم هم خجالت می‌کشم به مشتری‌ها قیمت بدهم. واقعاً مردم ایران کوه صبر هستند. به امید روزهای خوب ایران.
+</div>
+
+## IranIntlTV — post 338612
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338612_1779550784.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان سوئیس روز شنبه با تجمع مقابل سفارت جمهوری اسلامی خواستار بسته‌شدن آن شدند. آن‌ها همچنین با حمل تصاویر شاهزاده رضا پهلوی و پرچم شیروخورشید از انقلاب ملی حمایت کردند.
+</div>
+
+## IranIntlTV — post 338611
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338611_1779550786.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث گزارش داد جمهوری اسلامی در پیشنهاد جدید خود خواستار آزادسازی دارایی‌های مسدود‌شده خود قبل از مذاکرات هسته‌ای شده است.
+بر اساس این گزارش، تهران خواستار ایجاد یک مکانیسم جبران خسارت جنگ از سوی ایالات متحده و لغو کامل تحریم‌ها در ازای تعهدات هسته‌ای شده است.
+https://iranintl.com/202605238700
+</div>
+
+## IranIntlTV — post 338610
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338610_1779550787.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، اکبر محمدی، شهروند ۴۰ ساله اهل اصفهان، پس از بازداشت و محرومیت از رسیدگی پزشکی در زندان دستگرد اصفهان جان باخت. او که سوم اردیبهشت ماه همراه برادرش بازداشت شده بود، در تماس و در تماس با خانواده از بیماری و جلوگیری از دسترسی به بهداری و دارو خبر داده بود.
+
+جزییات بیشتر با پویا جهاندار، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338609
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338609_1779550788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم اختتامیه جشنواره فیلم کن با اعلام برندگان جوایز اصلی، از جمله نخل طلای بهترین فیلم، به کار خود پایان داد. جایزه «چشم طلایی»، از مهم‌ترین جوایز این جشنواره، به مستند «تمرین‌هایی برای یک انقلاب» ساخته پگاه آهنگرانی اختصاص یافت.
+
+گزارش لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338608
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338608_1779550789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه العربیه گزارش داد عاصم منیر، فرمانده کل ارتش پاکستان، در سفر به تهران حامل پیامی از سوی آمریکا برای جمهوری اسلامی بوده است. همزمان، رسانه‌های داخلی از بررسی یک سند پیشنهادی ۱۴ بندی در این مذاکرات خبر دادند.
+
+گفت‌وگو با حسین آقایی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338607
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338607_1779550791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه به نقل از منابع خود گزارش داد جمهوری اسلامی پیشنهاد بازگشایی تنگه هرمز و تعلیق موقت دریافت عوارض را مطرح کرده است.
+
+همچنین بر اساس این گزارش، تهران پیشنهاد داده غنی‌سازی اورانیوم بالاتر از ۳.۶ درصد را به مدت ۱۰ سال به حالت تعلیق درآورد.
+https://iranintl.com/202605232120
+</div>
+
+## IranIntlTV — post 338606
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338606_1779550792.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای شنبه ۲ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338605
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338605_1779550793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از مجروحان انقلاب ملی ایرانیان با ارسال فایلی صوتی به ایران‌اینترنشنال، ماجرای زخمی و شکنجه شدن خود به دست نیروهای امنیتی و لباس‌شخصی در ۱۸ دی‌ماه ۱۴۰۴ را روایت کرد.
+
+جزییات بیشتر در گفت‌وگو با محسن مهیمنی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14738
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14738_1779550794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️اثبات وجود تناسخ ...
+
+خمینی ، مطهری ، بهشتی زنده شدند ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14737
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فایننشال تایمز: ایران و آمریکا به تمدید ۶۰ روزه آتش‌بس نزدیک شده‌اند
+
+فایننشال تایمز به نقل از منابع میانجی گزارش داد تهران و واشینگتن به دستیابی به توافقی برای تمدید ۶۰ روزه آتش‌بس و فراهم‌کردن زمینه مذاکرات هسته‌ای نزدیک شده‌اند.
+
+بر اساس این گزارش، توافق پیشنهادی شامل موارد زیر است:
+
+▪️ بازگشایی تدریجی تنگه هرمز
+
+▪️ گفت‌وگو درباره رقیق‌سازی یا تحویل ذخایر اورانیوم با غنای بالا
+
+▪️ کاهش محاصره آمریکا علیه بنادر ایران
+
+▪️ کاهش تحریم‌ها و آزادسازی مرحله‌ای دارایی‌های بلوکه‌شده ایران در خارج
+
+♦️اما فایننشال تایمز تأکید کرده:
+
+▪️ یکی از اصلی‌ترین موانع، درخواست ترامپ برای تحویل حدود ۴۴۰ کیلوگرم اورانیوم نزدیک به درجه تسلیحاتی ایران است
+
+▪️ واشینگتن همچنین خواستار برچیدن سه سایت اصلی هسته‌ای ایران شامل نطنز، فردو و اصفهان شده است
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14736
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14736_1779550796.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای الحدث:
+
+💢ایران دو مسیر برای مذاکرات پیشنهاد کرده که با اعلام پایان جنگ و محاصره آغاز می‌شود.
+
+♦️ایران تأکید کرده است که در متن یادداشت تفاهم، به عدم تولید سلاح هسته‌ای متعهد خواهد بود.
+
+♦️ایران خواستار حفظ حق غنی‌سازی در هر توافقی شده است
+
+▪️ایران پیش از مذاکرات هسته‌ای خواستار آزسازی دارایی‌های بلوکه‌شدهٔ خود شده است./انتخاب
+
+پ ن : زهی خیال باطل ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14735
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14735_1779550796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢روبیو
+
+♦️ تنگه هرمز باید بدون هیچ هزینه‌ای باز باشد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 17:56
 ---
 
