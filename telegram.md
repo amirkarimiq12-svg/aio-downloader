@@ -7,6 +7,220 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 00:25
+---
+
+## ChizBergerz — post 46764
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46764_1779656117.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بزودی ماه عسل پسر ترامپ و زنش:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46763
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46763_1779656118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت این روزای مردم ایران:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏گیریم ساعت خوابتم درست کردی
+با بیدار شدنت تو ایران میخای چیکار کنی ؟
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46761
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46761_1779656118.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ختنه کردن ترامپ و صیعه کردن ملانیا رو یادت رفت بنویسی شیشه‌ای.
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71877
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*مذاکرات و توافق برای سرنگونی جمهوری اسلامی است
+*نگران نباشید و به عمو ترامپ اطمینان کنید
+لینک یوتیوب:
+https://www.youtube.com/watch?v=fep299NwzAw
+</div>
+
+## KiriMohems — post 47953
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47953_1779656119.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ : عکس بمب هسته ای گذاشته نوشته از شما بابت توجهتون به این موضوع متشکرم.
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252437
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252437_1779656120.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هفته آخر سری‌آ خیلی عجیب تموم شد؛ کومو بازیش رو 4-1 برد تا بالاتر از یوونتوس و میلان سهمیه چمپیونزلیگ فصل آینده رو بگیره؛ میلان بازیشو باخت و یوونتوس هم با وجود اینکه برده بازیش رو ولی فایده ای براش نداره و این دو تیم فصل دیگه تو لیگ اروپا قراره بازی کنن!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252436
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252436_1779656121.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داغ دل بارسایی هارو دوباره تازه کنیم
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252435
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252435_1779656122.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 فووووووری از نیویورک پست: شانس توافق به شدت کاهش یافته، دیروز دو طرف توافق کرده بودن که خواسته‌های حداکثری‌شون رو کنار بذارن اما با دخالت‌های اسرائیل و نزدیکان ترامپ حالا رئیس جمهور آمریکا لحنشو عوض کرده و میگه تموم اورانیوم رو بدون هیچ پولی باید تحویل بدین
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252434
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252434_1779656122.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 جلال رشیدی کوچی، نماینده سابق مجلس: فکر میکنم ظرف 48 الی 72 ساعت آینده، اینترنت به حالت قبل جنگ برمیگرده — دیگه بخواد خیلی طول بکشه تا آخر هفته اینترنت بین‌الملل وصل میشه.
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338812
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338812_1779656123.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻هدایت ممبینی، دبیرکل فدراسیون فوتبال ایران، در یک برنامه تلویزیونی گفت که آمریکا پس از اعلام فهرست نهایی تیم ملی، ویزاها را صادر می‌کند: «طبق پروتکل مسابقات، باید روز ۱۱ خرداد فهرست نهایی ۲۶ بازیکن تیم ملی اعلام شود.»
+
+🔹او همچنین گفت که آمریکا برای تیم ملی ویزای مولتی صادر خواهد کرد.
+
+🔹ممبینی درباره ابهامات مربوط به صدور ویزا و تغییر کمپ تیم ملی از آمریکا به مکزیک گفت: «چون کمپ ما در کشور مکزیک است، ویزای ما به‌صورت مولتی خواهد بود. این موضوع با کمیته برگزاری مسابقات و وزارت خارجه آمریکا در حال هماهنگی است.»
+
+🔹او گفت: «این‌طور نیست که ابتدا ویزا صادر شود و سپس ما فهرست را بر اساس آن تغییر دهیم. آنها منتظرند فهرست اصلی ما ارائه شود و احتمالاً پس از آن ویزاها صادر خواهد شد.»
+
+🔹دبیرکل فدراسیون درباره وضعیت بازی تدارکاتی با پورتوریکو، که قرار بود چند روز پیش از جام جهانی و در آمریکا برگزار شود، گفت: «بازی با پورتوریکو قطعی شده بود، اما قرارداد ما برای برگزاری در شهر توسان بود. چون دیگر به آنجا نمی‌رویم، در حال مکاتبه هستیم تا بازی را در تیخوانا برگزار کنیم. امیدواریم مشکلی پیش نیاید.»
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338811
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338811_1779656124.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس وابسته به سپاه پاسداران نوشت که دادگاه انقلاب تهران ۴ نفر از «متهمان اصلی» در پرونده شهرک اکباتان را به اتهام «افساد فی‌الارض»، به اعدام محکوم کرده است.
+فارس نوشت متهمان ردیف پنجم تا نهم پرونده شهرک اکباتان به اتهام «اجتماع و تبانی برای ارتکاب جرم علیه امنیت داخلی کشور» و «فعالیت تبلیغی علیه نظام جمهوری اسلامی»، به حبس از یک تا پنج سال و مجازات‌های تکمیلی محکوم شده‌اند.
+قوه قضاییه روز شنبه در اطلاعیه‌ای اعلام کرد رای صادره در پرونده شهرک اکباتان مربوط به دادگاه کیفری بوده و رسیدگی به اتهامات امنیتی مانند «محاربه» و «افساد فی‌الارض» همچنان در دادگاه انقلاب مفتوح است.
+https://iranintl.com/202605244171
+</div>
+
+## IranIntlTV — post 338810
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338810_1779656125.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مهدی تاج، رییس فدراسیون فوتبال، خبر داد کمپ تیم ملی فوتبال از آریزونای آمریکا به کمپی در شهر تیخوانا مکزیک منتقل شده است. به گفته او این تغییر، مشکل ویزای برخی اعضا و همراهان تیم ملی را برطرف می‌کند.
+
+🔹گفتگو با امید معماریان، تحلیل‌گر سیاسی
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338809
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338809_1779656127.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از دو مقام آمریکایی گزارش داد دونالد ترامپ شنبه در یک کنفرانس تلفنی با رهبران چند کشور عربی و دیگر کشورهای مسلمان گفت اگر توافقی برای پایان جنگ ایران حاصل شود، می‌خواهد این کشورها توافق‌های صلح با اسرائیل امضا کنند.
+
+اکسیوس نوشت این اظهارات نشان‌دهنده گام بعدی بزرگی است که ترامپ پس از پایان جنگ در خاورمیانه دنبال می‌کند.
+
+ترامپ در این تماس با رهبران عربستان سعودی، امارات متحده عربی، قطر، پاکستان، ترکیه، مصر، اردن و بحرین درباره توافق در حال شکل‌گیری با جمهوری اسلامی گفت‌وگو کرد.
+https://iranintl.com/202605246245
+</div>
+
+## Persian_Trend_Official — post 14893
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14893" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 6.44 مگابایت
+
+اتاق جنگ یکشنبه 3 خرداد | توافق ایران و آمریکا، خیلی دور خیلی نزدیک !
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14892
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14892_1779656129.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ایالات متحده «به شدیدترین شکل ممکن» اظهارات حزب‌الله مبنی بر «دعوت بی‌ملاحظه برای سرنگونی دولت منتخب دموکراتیک لبنان» را محکوم کرد.
+
+💢مارکو روبیو وزیر امور خارجه آمریکا
+
+💢حزب‌الله درخواست‌های مکرر دولت قانونی لبنان برای توقف حملات و پایبندی به آتش‌بس را نادیده گرفته و در عوض همچنان به مواضع اسرائیل حمله می‌کند و نیروها و سلاح‌ها را به جنوب لبنان منتقل می‌نماید.
+
+
+او گفت: «این یک کارزار عمدی برای بی‌ثبات کردن کشور و حفظ قدرت به بهای آینده مردم لبنان است.»
+
+
+♦️روبیو افزود آمریکا قاطعانه در کنار دولت لبنان ایستاده تا اقتدار خود را بازسازی کند و تأکید کرد: «دورانی که یک گروه تروریستی بتواند یک کشور را در کنترل و گروگان خود نگه دارد رو به پایان است.»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 23:31
 ---
 
