@@ -7,6 +7,246 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 02:12
+---
+
+## KiriMohems — post 47958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 علی قلهکی:
+
+تماس نتانیاهو با ترامپ باعث شده آمریکا تا 400 کیلو اورانیوم رو نگیره دلاری از پول‌های بلوکه شده ایران رو آزاد نکنه و با این وضعیت ایران احتمالا «تفاهم اسلام آباد» رو امضا نمی‌کنه
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47957
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47957_1779662574.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴از فردا موج جدید حشرناکی از گرما وارد کونمون میشه و قراره بپزیم
+
+دوش گرفتن و عطر مشدی یادتون نره.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47956
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47956_1779662576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای بار 10000 م
+اگر پایین پستا با یه همچین تبلیغی مواجه شدید بکیرتون نگیرید تبلیغات تلگرامیه که دزدا انجام میدن و لغو کردنش در اختیار ما نیست
+
+اگر خودمون پستی رو بزاریم تبلیغه و معتبره
+
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 47955
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#کصنمک_تایمز
+
+امسال اگه برق رفت؛
+کنتور رو یک بار خاموش روشن کنید با لوله گاز ترکیب کنید
+اگه نشد آبو باز کنید از کنتور یه سیم مستقیم بکشید به آب بزارید رو حالت گرم ۱۵ دقیقه صبر کنید وصل میشه.
+
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252444
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تعظیممممم کنیدددد 
+😌
+</div>
+
+## SportBaadNews — post 252443
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برونو فرناندز تو بازی امروز پاس گل داد و رکورد بیشترین پاس گل تو یک فصل تاریخ پرمیرلیگ که مشترکا در اختیار دیبروینه و هانری بود رو شکست @SportBadTweet | بچه مورچه
+</div>
+
+## SportBaadNews — post 252442
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252442_1779662576.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یامال و زیدی
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338820
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338820_1779662577.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاه انقلاب تهران چهار نفر از متهمان اصلی پرونده شهرک اکباتان را به اتهام افساد فی‌الارض به اعدام محکوم کرد.
+
+قاضی صلواتی با رد حکم پیشین دادگاه کیفری، بار دیگر احکام اعدام میلاد آرمون، نوید نجاران، مهدی ایمانی و محمدمهدی حسینی را صادر کرد.
+
+گفت‌وگو با نازلی صدقی، حقوقدان
+@iranintltv
+</div>
+
+## IranIntlTV — post 338819
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338819_1779662580.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با شدت گرفتن تورم در بازار خوراکی‌ها، وزیر کشاورزی اعلام کرد تمام محدودیت‌های واردات کالاهای اساسی لغو شده است.
+
+یک عضو مجلس نیز گفت سیاست‌های ارزی دولت موجب افزایش شدید قیمت مواد غذایی شده و کالابرگ پرداختی پاسخگوی این گرانی‌ها نیست.
+
+گفت‌وگو با علی دادپی، اقتصاددان
+@iranintltv
+</div>
+
+## IranIntlTV — post 338818
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338818_1779662583.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «هنوز توافقی بین آمریکا و جمهوری اسلامی شکل نگرفته و نباید قضاوت زودهنگام کرد. حتی در صورت توافق، جمهوری اسلامی با بحران‌ها و شکست‌های متعدد روبه‌رو است که آن را در مسیر سقوط قرار می‌دهد. قطع اینترنت و افزایش بازداشت‌ها و اعدام‌ها نشانه‌ای از نگرانی جدی جمهوری اسلامی در مورد بقای خویش است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338817
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338817_1779662585.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مذاکره‌کنندگان ایرانی آزادسازی فوری ۱۲ میلیارد دلار از دارایی‌های مسدودشده ایران در قطر را پیش‌شرط پیشبرد مذاکرات با آمریکا اعلام کرده‌اند.
+
+یک منبع مطلع به ایران‌اینترنشنال گفت تهران بدون دسترسی تضمین‌شده به این منابع، تفاهم مقدماتی را پیش نخواهد برد.
+
+گفت‌وگو با رضا گوهرزاد، نویسنده و روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 338816
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338816_1779662588.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در کنار قدرت میلیونی مردم به‌عنوان پایه اصلی انقلاب ملی شیر و خورشید، تثبیت رهبری شاهزاده رضا پهلوی دومین دستاورد بزرگ مردم ایران در خیزش دی ماه است. اهمیت این دو دستاورد این است که پس از ۴۸ سال به‌دست آمده‌اند و حفظ و تثبیت آنها باید مبنای هر اقدام جدیدی برای سرنگونی جمهوری اسلامی باشد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338815
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338815_1779662590.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مذاکره‌کنندگان ایرانی آزادسازی فوری ۱۲ میلیارد دلار از دارایی‌های مسدودشده ایران در قطر را پیش‌شرط پیشبرد مذاکرات با آمریکا اعلام کرده‌اند.
+
+یک منبع مطلع با آگاهی مستقیم از روند گفت‌وگوها به ایران‌اینترنشنال گفت تهران اصرار دارد در مرحله اولیه یادداشت تفاهم، دسترسی واقعی و تضمین‌شده به این منابع فراهم شود و بدون آن، تفاهم دیپلماتیک مقدماتی پیش نخواهد رفت.
+
+به گفته این منبع، این مبلغ تنها بخش فوری مورد درخواست ایران برای آغاز نقشه راه دیپلماتیک است و تهران خواهان آزادسازی کامل همه دارایی‌های مسدودشده خود در جهان در چارچوب توافق جامع نهایی است.
+
+هم‌زمان، خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد اختلافات تهران و واشینگتن بر سر یک یا دو بند یادداشت تفاهم احتمالی همچنان باقی است.
+
+تسنیم نوشت ایران خواستار آزادسازی بخشی از دارایی‌های خود در گام نخست و تعیین سازوکاری برای آزادسازی باقی منابع در جریان مذاکرات شده است.
+
+این رسانه افزود آمریکا تلاش کرده آزادسازی دارایی‌ها را به توافق نهایی هسته‌ای مشروط کند و مانع‌تراشی واشینگتن در این زمینه ادامه دارد که احتمال لغو توافق را همچنان زنده نگه داشته است.
+http
+</div>
+
+## Persian_Trend_Official — post 14899
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انفجار در مواضع حشد الشعبی عراق
+
+💢 گزارش‌های اولیه از وقوع یک انفجار نامشخص در استان صلاح‌الدین عراق خبر می‌دهند مواضع تیپ ششم حشد
+الشعبی در تکریت را هدف قرار داده است.
+
+💢بر اساس اطلاعات اولیه، در این حادثه دست‌کم یک نیروی حشد الشعبی کشته و سه نفر دیگر زخمی شده‌اند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14898
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14898_1779662591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سی‌بی‌اس
+
+💢اطلاعات آمریکا گزارش می‌دهد که رهبر عالی جمهوری اسلامی در حال حاضر از یک مکان نامعلوم فعالیت می‌کند و ارتباطات بیرونی او محدود شده و عمدتاً از طریق شبکه‌ای از پیک‌ها (پیام‌رسان‌ها) با او ارتباط برقرار می‌شود.
+
+♦️مقام‌های آمریکایی گفته‌اند این مشکلات ارتباطی در ساختار رهبری ایران باعث کند شدن واکنش‌ها به پیشنهادها و مذاکرات با دولت ترامپ شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14897
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14897_1779662591.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴اواکس E3 ارتش امریکا بر فراز خلیج فارس در حال گشت زنی است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14896
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14896_1779662592.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دکتر مصطفی خوش‌چشم، تحلیلگر مسائل راهبردی:
+
+💢 همین روبیو، کوشنر و ویتکاف از طریق واسطه به ایران پیام داده‌اند که به توییت‌های ترامپ توجهی نکنید.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/vCQOD_eWyqM?feature=share
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 01:16
 ---
 
