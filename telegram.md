@@ -7,6 +7,431 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 23:31
+---
+
+## ChizBergerz — post 46760
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46760_1779652866.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این حیوانِ رذل، رئیس امور اطلاع رسانی دولت خونخوار پزشکیانه؛ تو روزایی که خود حرومزاده‌ش و رفقاش اینترنت رو سه ماه کامل به‌روی مردم ایران بستن، تو پلتفرم خارجی «توئیتر» توئیت می‌ذاره و از حس خوب پدر بودن میگه!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46759
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46759_1779652867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46758
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46758_1779652867.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46757
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوست دارم تمام داراییمو هندونه بخرم و بخورم و بشاشم به نسل ۵۷.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی دم جام‌جهانی میخوای هم از فوتبالی‌ها ویو بگیری هم مخالفای ج.ا رو بکشونی سمتت و هم میخوای جقی‌هارو راضی نگه‌داری:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابرتورم اینجوریه که
+
+خونه‌ت ۱۰ میلیارده
+ماشینت ۳ میلیارد
+یخچالت نیم میلیارد
+ماشین لیاسشویی و ظرفشویی هرکدوم ۲۰۰-۳۰۰ میلیون
+کامپیوترت ۱۰۰ میلیون
+مبل خونه ۷۰ میلیون
+
+ولی حقوقت ماهی ۳۰ میلیون!
+و تو با این حقوق، حتی هزینه تعمیرات اون بالاییها رو هم نمیتونی بدی!
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71876
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 برنامه امشب تا یک ساعت دیگه:
+*مذاکرات و توافق برای سرنگونی جمهوری اسلامی است
+*نگران نباشید و به عمو ترامپ اطمینان کنید
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## KiriMohems — post 47952
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47952_1779652868.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست جدید ترامپ تو تروث:
+
+اگر من با ایران معامله کنم، یه معامله درست و حسابی می‌کنم، نه مثل اون ریدمانی که اوباما کرد و کلی پول نقد بهشون داد برن کص بازی و راه رو برای ساخت سلاح هسته‌ای کاملاً باز گذاشت. معامله ما دقیقاً برعکسه، ولی هنوز هیچ‌کس ندیدنش و نمیدونه چیه. حتی هنوز کامل مذاکره هم نشده. پس به این بازنده‌ها گوش نکنید که دارن درباره چیزی نظر میدن که هیچی ازش بلد نیستن. برخلاف اونایی که قبل از من بودن و باید سال‌ها پیش این مشکل رو حل میکردن، من معامله بد نمی‌کنم!
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47951
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آموزش و پرورش:
+
+کونتونو گشاد نکنید و به شایعات فضای مجازی گوش نکنید؛
+
+تا تیر ماه صبر می‌کنیم و اگه شرایط فراهم باشه، امتحانات نهایی به صورت حضوری برگزار میشن.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47950
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47950_1779652869.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕹 گردونه شانس رایگان وینکوبت فعال شد!
+
+
+🎰 هر ۱۲ ساعت یک‌بار شانس خودتان را امتحان کنید و جوایز نقدی متنوع دریافت کنید.
+
+
+🎁 تا سقف ۱ میلیون تومان جایزه روزانه
+
+✅ فعال برای تمامی کاربران
+
+
+📌برای شرکت در گردونه شانس، وارد ربات وینکوبت شوید:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+📌کانال رسمی وینکوبت:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## KiriMohems — post 47949
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آی ۲۴ نیوز: مقامات آمریکایی می‌گویند ایران تا زمانی که انتقال ذخایر اورانیوم غنی‌شده خود را آغاز نکند، هیچ‌گونه تسهیلاتی و کیر خری در زمینه تحریم‌ها یا آزادسازی وجوه مسدود شده دریافت نخواهد کرد.
+
+
+🔴در عین حال، ایران بر این باور است که آزادسازی وجوه باید بخشی از هر توافق‌نامه چارچوبی باشد.
+
+#Berlin
+@Kirimohems
+</div>
+
+## KiriMohems — post 47948
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47948_1779652869.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 خانمی که همسایه بیت بوده:
+من از پشت بوم داخل بیت رو نگاه میکردم، بیت رسما با خاک یکسان و به پودر تبدیل شده! هیچی ازش نمونده.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام اروپایی به فایتوکس:
+
+امریکا و ایران اصلِ توافق رو قبول دارن، ولی روی تک‌تک بندها با هم اختلاف دارن !
+
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 47946
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47946_1779652870.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت پشم ریزون کی‌یف اوکراین بعد از حملات موشکی روسیه.
+
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252433
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252433_1779652871.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 توییت کمال پنحاسی سخنگوی فارسی زبان ارتش اسرائیل: کس نخارد پشت من جز ناخن انگشت من (اشاره به احتمال حمله‌ی اسرائیل به تنهایی و بدون کمک آمریکا)
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252432
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252432_1779652872.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گل خوشگل و سالنی منچستر تو بازی امروز🔥🔥🔥
+@GoalBad
+</div>
+
+## SportBaadNews — post 252431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌ان‌ان: ایران هیچ پولی یا لغو تحریمی رو در این توافق دریافت نخواهد کرد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252430
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡ وی‌پی‌ان بدنیوز؛ کمترین قیمت بیشترین کیفیت 
+✅ بدون هیچگونه ضریب 
+✅ قابلیت مدیریت و چک کردن حجم 
+✅ مناسب تمامی پلتفرم‌ها 
+✅ پشتیبانی سریع 
+⚡ خرید از طریق بات رسمی: @vpnbadnews_bot
+</div>
+
+## SportBaadNews — post 252429
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252429_1779652873.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡ وی‌پی‌ان بدنیوز؛ کمترین قیمت بیشترین کیفیت
+
+✅ بدون هیچگونه ضریب
+
+✅ قابلیت مدیریت و چک کردن حجم
+
+✅ مناسب تمامی پلتفرم‌ها
+
+✅ پشتیبانی سریع
+
+
+⚡ خرید از طریق بات رسمی: @vpnbadnews_bot
+</div>
+
+## SportBaadNews — post 252427
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252427_1779652873.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بالاخره یه نفر تونست مسیو مجبور کنه انگلیسی حرف بزنه😁
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338808
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338808_1779652875.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از یک مقام آمریکایی گزارش داد توافق میان تهران و واشینگتن هنوز امضا نشده و برای تایید نهایی رهبران دو کشور به چند روز زمان نیاز دارد.
+
+بر اساس این گزارش، توافق احتمالی به برنامه موشکی جمهوری اسلامی و توقف کامل غنی‌سازی اورانیوم نمی‌پردازد.
+
+گفت‌وگو با حسین علیزاده، تحلیل‌گر مسائل بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 338807
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338807_1779652876.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بدر البوسعیدی، وزیر خارجه عمان گفت‌وگوی خود با کاظم غریب‌آبادی، معاون وزیر خارجه جمهوری اسلامی را «خوب» توصیف کرد.
+
+او یکشنبه در شبکه ایکس نوشت: «ما بر اهمیت تعامل دیپلماتیک در همه زمینه‌ها تاکید کردیم. عمان به حمایت از تلاش‌ها برای کاهش تنش، پیشبرد همزیستی مسالمت‌آمیز منطقه‌ای، امنیت و آزادی دریانوردی ادامه خواهد داد.»
+https://iranintl.com/202605241490
+</div>
+
+## IranIntlTV — post 338806
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338806" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: بندهای پنهان توافق ترامپ و جمهوری اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338805
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338805_1779652877.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به گزارش کانال ۱۲ اسرائیل، مقام‌های ارشد اسرائیلی نگران‌اند توافق در حال شکل‌گیری میان آمریکا و ایران ممکن است آزادی عمل اسرائیل علیه حزب‌الله در لبنان را به‌شدت محدود کند.
+
+در این گزارش آمده است توافق پیشنهادی شامل پایان کامل درگیری‌ها در لبنان همزمان با پایان جنگ آمریکا و جمهوری اسلامی خواهد بود؛ موضوعی که باعث شد بنیامین نتانیاهو در تماس تلفنی روز گذشته خود با دونالد ترامپ نگرانی‌هایش را مطرح کند.
+
+بر اساس این گزارش، نتانیاهو بر حفظ آزادی عملیاتی اسرائیل در لبنان تمرکز کرده و یک مقام ارشد اسرائیلی بعدا اعلام کرده است ترامپ موافقت کرده اسرائیل «آزادی عمل خود را در برابر تهدیدها در همه جبهه‌ها، از جمله لبنان، حفظ کند.»
+https://iranintl.com/202605247829
+</div>
+
+## IranIntlTV — post 338804
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338804_1779652878.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور مجتبی خامنه‌ای، تهدید کرد در صورت اقدام علیه تنگه هرمز و ورود به خلیج فارس، «پاسخ سخت» داده می‌شود و با شکستن محاصره دریایی اقدامات تقابلی آغاز خواهد شد. او یکی از گزینه‌های راهبردی جمهوری اسلامی در صورت تداوم این روند را احتمال خروج از پیمان منع گسترش سلاح‌های هسته‌ای عنوان کرد.
+
+گفت‌وگو با عطا محامد، کارشناس روابط بین‌الملل
+@iranintltv
+</div>
+
+## IranIntlTV — post 338803
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338803_1779652879.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از یک مقام آمریکایی گزارش داد آمریکا و جمهوری اسلامی بر سر چارچوبی در حال تفاهم هستند که در آن تنگه هرمز بازگشایی می‌شود و تهران متعهد خواهد شد ذخایر اورانیوم با غنای بالای خود را «نابود» کند.
+
+ارزیابی شهرام خلدی، پژوهش‌گر تاریخ خاورمیانه و روابط بین‌الملل
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14891
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14891_1779652881.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ
+
+🔻نوشته ی روی بمب
+
+💢از توجه شما به این موضوع سپاسگزارم
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14890
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+i24NEWS⭕️
+
+آمریکا آزادسازی پول‌های ایران را به انتقال اورانیوم غنی‌شده گره زده است
+
+▪️ مقام‌های آمریکایی می‌گویند ایران تا زمانی که انتقال ذخایر اورانیوم غنی‌شده را آغاز نکند، هیچ کاهش تحریمی یا دسترسی به دارایی‌های بلوکه‌شده دریافت نخواهد کرد
+▪️ در مقابل، ایران اصرار دارد آزادسازی بخشی از منابع مالی باید جزو توافق اولیه باشد
+▪️ این اختلاف اکنون یکی از اصلی‌ترین موانع توافق میان تهران و واشینگتن محسوب می‌شود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14889
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/vCQOD_eWyqM?feature=share
+</div>
+
+## Persian_Trend_Official — post 14888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/vCQOD_eWyqM?feature=share
+</div>
+
+## Persian_Trend_Official — post 14887
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14887_1779652881.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صیغه کوتاه مدت روزانه و ماهانه در تجمعات خیابانی همچنان برقرار است...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14886
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14886_1779652882.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار نقدی: دشمن اگر خطایی کند، ضربهٔ جبران‌ناپذیری می‌خورد
+
+♦️مشاور عالی فرماندهٔ کل سپاه: ما توانستیم یک بازدارندگی در مقابل دشمن بدست بیاوریم آن هم از این جهت که دشمن متوجه شد که نمی‌تواند مقابل ما به نتیجه مطلوب خود برسد.
+
+♦️یک بعد دیگر بازدارندگی هم این بود که دشمن بداند که اگر بخواهد خطایی کند ضربهٔ جبران‌ناپذیری را خواهد خورد.
+
+♦️امروز این بازدارندگی برای دشمن مشخص شده بگونه‌ای که ۲۸۲ نقطه نظامی آن‌ها منهدم و نیز صدها کشته به دست دشمن باقی مانده است به نحوی که بسیاری از آن‌ها را مخفی کرده‌اند.
+
+♦️روزانه یک هواپیمای ۴۰ تخته بیمارستانی از امارات و یک ۱۰ تخته از کویت مجروحان دشمن را برای درمان به بیمارستان‌های آمریکایی در آلمان منتقل می‌کردند.
+
+⚠️پ ن :تعداد کشته شدگان نظامی امریکا ۱۳ نفر است.
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 22:18
 ---
 
