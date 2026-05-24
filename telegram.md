@@ -7,6 +7,323 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 22:18
+---
+
+## SportBaadNews — post 252426
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252426_1779648520.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+موزیک‌ویدیوی جام‌جهانی با هنرنمایی بانوی دو عالم شکیرا خانوم و حضور بی اهمیتِ بازیکنایی مثل امباپه ،دیویس و مسی منتشر شد😍🫡
+
+@GoalBad
+</div>
+
+## SportBaadNews — post 252425
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252425_1779648523.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پپ گواردیولا: تو سال‌های آینده، اگه منو تو هر جای دنیا پیدا کردی و تو خیابون‌ها دیدی چه اینجا تو منچستر، تو اروپا یا آمریکا٬ اگه طرفدار منچستر سیتی هستی، بیا پیشم و بغلم کن! به اون بغل احتیاج دارم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252424
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252424_1779648524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه تنه به منچسترسیتی اعتبار بخشید!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252423
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبارو کوتاه و مختصر میتونید از این چنلمون دنبال کنید:
+
+@Shortasport
+</div>
+
+## SportBaadNews — post 252422
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252422_1779648525.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرتتا چه عشقی میکنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252421
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اودگارد جامو برد بالا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252420
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252420_1779648527.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اودگارد جامو برد بالا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252419
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252419_1779648528.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پایان غم انگیز
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252418
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252418_1779648529.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕹 گردونه شانس رایگان وینکوبت فعال شد!
+
+
+🎰 هر ۱۲ ساعت یک‌بار شانس خودتان را امتحان کنید و جوایز نقدی متنوع دریافت کنید.
+
+
+🎁 تا سقف ۱ میلیون تومان جایزه روزانه
+
+✅ فعال برای تمامی کاربران
+
+
+📌برای شرکت در گردونه شانس، وارد ربات وینکوبت شوید:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+📌کانال رسمی وینکوبت:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 252417
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ای من قربون این تیم برمممم
+</div>
+
+## IranIntlTV — post 338802
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338802_1779648530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث‌سوشال نوشت اگر با جمهوری اسلامی توافقی انجام دهد، توافقی خوب و درست خواهد بود؛ نه مانند توافق اوباما که مبالغ هنگفتی پول نقد به تهران داد و مسیری آشکار برای دستیابی این کشور به سلاح هسته‌ای فراهم کرد.
+
+او افزود توافق دولتش دقیقا برعکس آن است، اما هنوز کسی آن را ندیده و نمی‌داند شامل چه مواردی است و این توافق هنوز به‌طور کامل نهایی نشده است.
+
+ترامپ گفت به کسانی که درباره موضوعی که اطلاعی از آن ندارند انتقاد می‌کنند گوش ندهید و تاکید کرد برخلاف دولت‌های پیشین، توافق بد انجام نخواهد داد.
+https://iranintl.com/202605243731
+</div>
+
+## IranIntlTV — post 338801
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338801" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: تهران و واشینگتن در آستانه تصمیم نهایی توافق؛ هشدار نتانیاهو:آزادی عمل داریم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338800
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بخش مهمی از تفاهم‌نامه تهران و واشینگتن مربوط به مسائل و امتیازهای اقتصادی است. آمریکا در ازای بازگشایی تنگه هرمز، محاصره بنادر ایران را به تدریج لغو خواهد کرد و معافیت‌های تحریمی برای فروش آزاد نفت ایران صادر می‌شود. اگرچه تهران خواستار آزادسازی فوری منابع مالی و رفع دائمی تحریم‌‌ها بود، اما آزادسازی دارایی‌های بلوکه‌شده و رفع کامل تحریم‌ها به توافق نهایی موکول شده است.
+
+گفت‌وگو با سارا بازوبندی، کارشناس اقتصادی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338799
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تهران و واشینگتن هنوز امضای توافق را اعلام نکرده‌اند. جزئیات توافق احتمالی هم هنوز به طور رسمی اعلام نشده است. گرچه گمانه‌زنی‌ها بر این بود که رسیدن به توافق امروز اعلام خواهد شد، اما کاخ سفید گفته است امضای توافق ممکن است چند روز دیگر انجام شود.
+
+گفت‌وگو با نوید محبی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338798
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338798_1779648531.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی، مشاور نظامی مجتبی خامنه‌ای، در یک سخنرانی در مصلای تهران، با اشاره به اینکه کاری خواهند کرد که «امنیت» کشور برای ۵۰ سال آینده تأمین شود، خطاب به مقام‌های آمریکایی گفت: «در صورت تعرض به تنگه هرمز و ورود به خلیج‌ فارس، محاصره دریایی را خواهیم شکست و پاسخی سخت، دردناک و کم‌نظیر به آمریکا خواهیم داد.»
+
+او در ادامه، آمریکا را به خروج جمهوری اسلامی از معاهده «ان‌پی‌تی» تهدید کرد و گفت دست به خودکشی نزند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338797
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338797_1779648533.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت آموزش‌وپرورش اخبار منتشرشده درباره مجازی شدن امتحانات نهایی را تکذیب و اعلام کرد تاکنون هیچ تصمیمی برای برگزاری مجازی امتحانات نهایی پایه‌های یازدهم و دوازدهم گرفته نشده است.
+
+وزارت آموزش‌وپرورش اعلام کرد تا تیرماه برای فراهم شدن شرایط برگزاری امتحانات نهایی صبر می‌شود و در صورت فراهم شدن امکان برگزاری حضوری، آزمون‌های نهایی مطابق روال معمول به شکل حضوری برگزار خواهد شد.
+
+در روزهای اخیر، دانش‌آموزان در چندین شهر به برگزاری حضوری امتحانات اعتراض کردند.
+https://iranintl.com/202605241771
+</div>
+
+## Persian_Trend_Official — post 14884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت 23 به وقت تهران لایو شروع میشه
+</div>
+
+## Persian_Trend_Official — post 14883
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14883_1779648534.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این رو مبنای شکست و پیروزی جمهوری اسلامی در نظر میگیریم
+
+و هر توافقی رو با این متن مقایسه میکنیم
+از توجه شما به این موضوع متشکرم
+الیاس فرخ
+</div>
+
+## Persian_Trend_Official — post 14882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 روبیو: توافق هسته‌ای با ایران را نمی‌توان «در ۷۲ ساعت روی یک تکه کاغذ» نهایی کرد
+
+♦️مارکو روبیو، وزیر خارجه آمریکا، اعلام کرد توافق احتمالی با ایران از حمایت کشورهای منطقه برخوردار شده است، اما هشدار داد:
+
+▪️ «توافق هسته‌ای را نمی‌شود ظرف ۷۲ ساعت و روی پشت یک دستمال کاغذی نهایی کرد»
+▪️ او گفت مذاکرات پیچیده است و هنوز کار زیادی باقی مانده
+▪️ روبیو همچنین از «پیشرفت قابل‌توجه اما نه نهایی» در گفت‌وگوها خبر داد
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14881
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14881_1779648535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#طنز
+
+بیو ترامپ چند روز دیگه:
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14879
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14879_1779648535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+اگر با ایران توافقی انجام دهم، توافقی خوب و درست خواهد بود؛ نه مثل توافق اوباما که به ایران حجم عظیمی پول نقد داد و مسیر آشکار دستیابی به سلاح هسته‌ای را برایش باز کرد.
+توافق ما دقیقاً برعکس آن است، اما هنوز کسی آن را ندیده و از جزئیاتش خبر ندارد. این توافق حتی هنوز کاملاً نهایی هم نشده است.
+پس به حرف بازنده‌هایی که درباره چیزی که هیچ اطلاعی از آن ندارند انتقاد می‌کنند گوش ندهید.
+برخلاف کسانی که قبل از من بودند و باید سال‌ها پیش این مسئله را حل می‌کردند، من توافق بد انجام نمی‌دهم.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14878
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربی الجديد:
+
+♦️انفجار انتحاری در قطاری در ایالت بلوچستان پاکستان؛ بیش از ۲۰ کشته و بیش از ۵۰ زخمی / انتخاب
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14877
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14877_1779648536.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کانال ۱۳ اسرائیل: نفوذ نتانیاهو بر ترامپ به‌شدت کاهش یافته است
+
+▪️ نتانیاهو در جلسات اخیر گفته توان اسرائیل برای تأثیرگذاری بر ترامپ اکنون بسیار محدود شده است
+▪️ مقام‌های اسرائیلی معتقدند ترامپ به‌سمت توافق موقت با ایران حرکت می‌کند
+▪️ اسرائیل فعلاً تلاش می‌کند فقط بر محتوای توافق اثر بگذارد؛ به‌ویژه درباره لبنان، شمال اسرائیل و خروج اورانیوم غنی‌شده از ایران
+
+همزمان:
+
+▪️ نتانیاهو امشب جلسه جدید کابینه امنیتی محدود برگزار کرده است
+▪️ اسرائیلی‌ها می‌گویند جرد کوشنر و استیو ویتکاف نقش مهمی در منصرف‌کردن ترامپ از گزینه جنگ داشته‌اند
+▪️ با وجود تماس‌های ادامه‌دار میان ترامپ و نتانیاهو، در تل‌آویو این باور در حال تقویت است که تغییر نظر ترامپ بعید شده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14876
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14876_1779648537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 اختلال GPS همچنان ایران و کشورهای عربی خلیج فارس را درگیر کرده است
+
+▪️ طی هفته گذشته سیگنال‌های GPS و ناوبری ماهواره‌ای در بخش‌هایی از ایران، عراق، کویت، امارات و مسیرهای کشتیرانی خلیج فارس با اختلال شدید مواجه شده‌اند
+▪️ گزارش‌ها از افزایش جنگ الکترونیک و اختلال در ناوبری کشتی‌ها و پهپادها خبر می‌دهند
+▪️ برخی کشتی‌ها در تنگه هرمز موقعیت‌های جعلی ثبت کرده‌اند و خطر برخورد دریایی افزایش یافته است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 21:11
 ---
 
