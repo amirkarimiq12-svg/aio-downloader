@@ -7,6 +7,116 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 01:16
+---
+
+## ChizBergerz — post 46766
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46766_1779659163.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی وایرال شده از حمله‌ی طرفدارای حرومزاده جمهوری‌شیطانی به ایرانی‌های مقیم خارج:
+
++ حتی تو کشورای خارجی هم دنبال حمله و کُشتار معترضان ایرانی هستن!
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46765
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46765_1779659167.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیش‌بینی‌های کاملا دقیق و حرفه‌ای نوستراداموس زمانه یعنی استاد خوش‌چشم تحلیلگر صدا و سیما که همشون درست از آب دراومدن!😳
+
++ اینجوریه که هرچی میگه شما برعکسشو در نظر بگیر همون اتفاق میوفته :)))
+@ChizBergerz
+</div>
+
+## KiriMohems — post 47954
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محسن رضایی : یه دست رو کیر و ی دست روی ماشه هستیم
+
+#Berlin
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252441
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252441_1779659169.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 رشفورد در اینستاگرام سیگنال‌هایی از احتمال دائمی شدن قراردادش داد؛
+“فصل 25/26 چه افتخاری، تشنه‌ی چیزای بیشترم💙❤️”
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252440
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال 12 اسرائیل: نتانیاهو در تلاشه تا توافق رو خراب کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252439
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252439_1779659170.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 دیدار خوان گارسیا با لئو مسی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252438
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252438_1779659171.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هفته آخر سری‌آ خیلی عجیب تموم شد؛ کومو بازیش رو 4-1 برد تا بالاتر از یوونتوس و میلان سهمیه چمپیونزلیگ فصل آینده رو بگیره؛ میلان بازیشو باخت و یوونتوس هم با وجود اینکه برده بازیش رو ولی فایده ای براش نداره و این دو تیم فصل دیگه تو لیگ اروپا قراره بازی کنن!…
+</div>
+
+## IranIntlTV — post 338814
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338814_1779659172.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوهای دریافت‌شده نشان می‌دهد جمعی از ایرانیان ساکن آتلانتا در آمریکا، روز یک‌شنبه سوم خرداد، در حمایت از مردم ایران و شاهزاده رضا پهلوی تجمع و راهپیمایی برگزار کردند. آن‌ها علیه اعدام‌های جمهوری اسلامی شعار سر دادند و از دولت آمریکا خواستند با این حکومت هیچ توافقی نکند.
+</div>
+
+## IranIntlTV — post 338813
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338813_1779659175.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «حتی اگر توافقی هم میان ترامپ و جمهوری اسلامی شکل بگیرد که هنوز معلوم نیست شکل بگیرد، مردم ایران از ابتدا تکیه اصلی‌شان به خودشان بوده و طی ۹ سال گذشته پیوسته قیام کرده‌اند. خیزش‌های مردمی بدون اتکا به کمک خارجی آغاز شد و مطالبه حمایت خارجی نیز پس از سرکوب و کشتار حکومت مطرح شد و بدون حمایت خارجی نیز قابل تداوم است.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14894
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14894_1779659177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسِ نتانیاهو با ترامپ کافی بود تا سیاستِ جدید آمریکا به «بدون گرد و غبار (خروجِ ۴۰۰کیلوگرم‌ اورانیوم)، بدونِ دلار (مُنتفی‌شدنِ آزادسازی اموال بلوکه شده ایران)» _No Dust, No Dollars_ بازگردد!
+آمریکا تصمیم گرفته دلاری از اموال بلوکه شده کشور را تا به «خواسته‌هایِ هسته ای آمریکا» تَن ندهیم، آزاد نکند!
+از طرفِ دیگر ایران اخیرا خطِ قرمزِ غنی‌سازی را از ۳.۶۷ ٪ به ۲۰٪ ارتقا داده و ۴۰۰ کیلوگرم اورانیوم هم از ایران خارج نمی‌شود!
+ایران احتمالا با وضعیتِ بلاتکلیفِ «رفع محاصره تنگه توسط آمریکا»، «عدم آزادسازیِ اموال بلوکه شده» و «خواست‌های حداکثریِ هسته‌ای آمریکا»، «تفاهم اسلام آباد» را امضا نکند!
+علی قلهکی
+
+پ.ن : عرض نکردم ؟!
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 00:25
 ---
 
