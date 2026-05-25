@@ -7,6 +7,505 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 19:46
+---
+
+## ChizBergerz — post 46785
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46785_1779725777.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کونمو باهاش پاک میکنم.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46784
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46784_1779725778.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی رندوم اینو تو دایرکت کانال فرستادن😐😐
+این چه سمّیه دیگه؟😐😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دسته جمعی به گا رفتیم مقصرم تو یخچاله...
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46782
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46782_1779725779.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+طرفدارهایی که از پایان سریال The Boys شاکی هستن شروع کردن خودشون پایان بندی‌های مختلف رو با AI می‌سازن و باید بگم همین یک دقیقه‌ای که یکی از طرفدارها ساخته هم کیفیت VFXش و هم هیجانش از کل فصل ۵ بیشتر بود!
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46781
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46781_1779725780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رقص این دختر بچه ایرانی تو جشن پایان سالشون توی مدرسه علوی مشهد در سطح جهانی وایرال شده و تو ۲ روز بیش از ۴۰ میلیون بازدید داشته!🔥
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71910
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71910_1779725781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آقای دانا
+میدان انقلاب جنگ بود انگار ماشین زرهی اومده بود و خون ریخته بود هول و هوش ساعت ۷ و ۲ ۳ دقیقه
+</div>
+
+## rodast_omiddana — post 71909
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71909_1779725781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود
+ساعت ۷ تقریبا داشتیم از میدون انقلاب با ماشین رد می‌شدیم جلومونو گرفتن گفتن مسیر بستس از دور دیدم انگار چند تا جنازه رو زمین بود پرچم عراق هم بغلشون بود فکنم حشدالشعبی ها تو سر هم زده بودن
+</div>
+
+## rodast_omiddana — post 71908
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71908_1779725781.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دوستان زیادی امشب صدای تیراندازی در میدان انقلاب شنیدن..
+گویا نیروهای نیابتی عراقی در میدان انقلاب تهران مستقر بودن و تیراندازی از آن سمت به گوش خیلی ها رسیده است..
+هنوز جزئیات بیشتری نمیدانم..
+</div>
+
+## rodast_omiddana — post 71907
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71907_1779725782.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 فوری:
+وال استریت ژورنال: مذاکرات ایران رو بحث برنامه هسته‌ای و رفع تحریم‌ها به بن بست رسیده.
+</div>
+
+## rodast_omiddana — post 71906
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71906_1779725782.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 قیمت بلیط کنسرت ببخشید تجمع فرهنگی و سیاسی مرتضی نجفی...
+ارزون ترین صندلی 500 کرون...
+قیمتها به 1700 کرون هم میرسه..
+من شخصا کنسرت انریکه در جای خوبی نشستم شد 450 کرون...
+</div>
+
+## rodast_omiddana — post 71905
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71905_1779725782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️ دمتون گرم اصلش همینه
+اینقدر پیام از ایران دریافت کردم که کلی انرژی گرفتم
+من از روز اول پایگاه مردمی داشتم و برای همینه هیچوقت برام مهم نبوده مورد سانسور و ترور شخصیت از سوی عده ای چاپلوس قرار گرفتم..
+مهم همین پایگاه مردمی داخل ایران بود که در قیام ملی مردم پس از دو رسانه ایران اینترنشنال و منوتو بیشترین ویدیو را برای من کمترین ارسال کردند..
+شما مردم داخل انرژی من برای ادامه بودن هستید..
+</div>
+
+## rodast_omiddana — post 71904
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 اعتراض کارشناس ایران اینترنشنال به کسانیکه حامی ترامپ هستن
+لینک یوتیوب:
+https://www.youtube.com/watch?v=oxAwp2IrkeM
+</div>
+
+## KiriMohems — post 47982
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مذاکرات ایران رو بحث برنامه هسته‌ای و رفع تحریم‌ها به بن بست رسیده - WSJ
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47981
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47981_1779725782.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به زودی باید منتظر این شاهکار گوهی باشیم
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252548
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آردا گولر و زیدی تو تعطیلات بعد ما اینجا نشستیم اینترنت وصل شه شاشیدم تو جبر جغرافیایی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252547
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252547_1779725783.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ترامپ: من به صورت الزامی از کشورهای خاورمیانه درخواست کردم که پیمان ابراهیم را سریعا امضا کنند تا «جمهوری اسلامی ایران» را در ازای بخشی از توافق پیمان ابراهیم داشته باشند
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252546
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252546_1779725783.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ وی‌پی‌ان بدنیوز؛ قیمت‌ها شکسته شد 🔝 کاهش قیمت بخاطر استقبال زیاد ✅ بدون هیچگونه ضریب ✅ همراه ساب برای مدیریت حجم ✅ مناسب تمامی پلتفرم‌ها ✅ پشتیبانی سریع و بدون مشکل ✅ بالاترین سرعت ممکن 💰 گیگی 170، بیشترین کیفیت 🤖 خرید از طریق بات رسمی 👇
+</div>
+
+## SportBaadNews — post 252545
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252545_1779725784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ وی‌پی‌ان بدنیوز؛ قیمت‌ها شکسته شد
+🔝 کاهش قیمت بخاطر استقبال زیاد
+
+✅ بدون هیچگونه ضریب
+✅ همراه ساب برای مدیریت حجم
+✅ مناسب تمامی پلتفرم‌ها
+✅ پشتیبانی سریع و بدون مشکل
+✅ بالاترین سرعت ممکن
+
+💰 گیگی 170، بیشترین کیفیت
+
+🤖 خرید از طریق بات رسمی 👇
+</div>
+
+## SportBaadNews — post 252542
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یادی کنیم از وقتی که هری کین تو یه بازی هت‌تریک کرد، بعدش هم همون بازی رفت دروازه‌بان وایساد
+😂
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252541
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252541_1779725784.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭐
+⚽️ | نامزدهای بهترین بازیکن فصل در لالیگا 
+❓- از نظر شما کدوم بازیکن در این فصل لالیگا عملکرد بهتری داشت؟ 1- لامین یامال 
+👍 2- کیلیان امباپه 
+❤‍🔥 @SportBaadNews
+</div>
+
+## SportBaadNews — post 252538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷🏴󠁧󠁢󠁥󠁮󠁧󠁿🇪🇸
+⚽️| ترکیب منتخب از دعوت نشده های برزیل، انگلیس و اسپانیا به جام جهانی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252537
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252537_1779725785.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭐
+⚽️ | نامزدهای بهترین بازیکن فصل در لالیگا
+
+
+❓- از نظر شما کدوم بازیکن در این فصل لالیگا عملکرد بهتری داشت؟
+
+1- لامین یامال 
+👍
+2- کیلیان امباپه 
+❤‍🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252536
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252536_1779725785.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ به فاکس نیوز: واقعا فکر کردید بعد از تمام کارایی که انجام دادم قراره به ایران پول بدم؟ @SportBaadNews
+</div>
+
+## SportBaadNews — post 252535
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252535_1779725786.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 وال استریت ژورنال: مذاکرات به بن‌بست خورده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252534
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252534_1779725786.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ به فاکس نیوز: واقعا فکر کردید بعد از تمام کارایی که انجام دادم قراره به ایران پول بدم؟
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252533
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252533_1779725786.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه شرت بزرگتر میدادید به لئو تا با مسی کوچولو درگیر نباشه
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338941
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338941_1779725788.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدباقر ذوالقدر، دبیر شورای عالی امنیت ملی، در پیامی با اشاره به «میدان نظامی، میدان دیپلماسی و مردم مبعوث‌شده حاضر در خیابان» نوشت: عقب‌نشینی در کار نخواهد بود.
+
+او تاکید کرد: بیش از هر زمان دیگری به وحدت و انسجام نیاز داریم تا آمریکایی‌ها و اسرائیلی‌ها مایوس شوند.
+https://iranintl.com/202605254014
+</div>
+
+## IranIntlTV — post 338940
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338940_1779725788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر جدید ماهواره‌ای نشان می‌دهد ناو هواپیمابر فرانسوی شارل دوگل بسیار نزدیک به خط محاصره دریایی آمریکا و در دریای عرب مستقر شده است. ژان نوئل بارو، وزیر خارجه فرانسه، پیش‌تر اعلام کرده بود ماموریت این ناو هواپیمابر تامین امنیت کشتیرانی در تنگه هرمز است.
+
+گفت‌وگو با محمدرضا شاهید، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 338939
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338939_1779725790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از منابع آگاه گزارش داد جمهوری اسلامی شرط انتقال اورانیوم با غنای بالا به چین را مطرح کرده است.
+
+بر اساس این گزارش، تهران آمادگی دارد اورانیوم با غنای بالای خود را از کشور خارج کند، اما پیش از نهایی شدن هرگونه توافق با واشینگتن، به دنبال دریافت تضمین‌هایی از چین است.
+
+الحدث همچنین اعلام کرد احتمال دارد فرمانده ارتش پاکستان به دوحه سفر کند.
+https://iranintl.com/202605252722
+</div>
+
+## IranIntlTV — post 338938
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338938_1779725790.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یائیر لاپید، رهبر اپوزیسیون اسرائیل، دوشنبه گفت توافق در حال شکل‌گیری میان واشینگتن و تهران هیچ‌یک از اهداف اسرائیل در جنگ را تامین نمی‌کند و بنیامین نتانیاهو را به ناتوانی در اعمال نفوذ برای دستیابی به توافقی بهتر متهم کرد.
+لاپید در جمع خبرنگاران در اورشلیم گفت: این توافق برای اسرائیل، برای منطقه و برای مردم ایران بد است.
+</div>
+
+## IranIntlTV — post 338937
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338937_1779725791.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وب‌سایت سمافور گزارش داد یک سرمایه‌گذاری مشترک میان یک استارتاپ دفاعی آمریکایی و یک شرکت عربستان سعودی در حال ساخت کارخانه‌ای در نزدیکی ریاض برای تولید پهپادهای رزمی مشابه سامانه شاهد جمهوری اسلامی است.
+سمافور افزود این پهپاد با برد ۱۵۰۰ کیلومتر برای تقویت بازدارندگی عربستان سعودی طراحی شده و تولید آن هم برای بازار داخلی و هم صادرات به کشورهای متحد برنامه‌ریزی شده است.
+</div>
+
+## IranIntlTV — post 338936
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338936_1779725791.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال درباره مذاکره آمریکا و جمهوری اسلامی می‌گوید: «ترامپ کاری کرد که در خواب هم نمی‌دیدیم. حالا بدهکار ما شده؟ نجات ما وظیفه او نیست. هموطن، به پا خیز. جمهوری اسلامی را ما باید پایین بیاوریم.»
+</div>
+
+## IranIntlTV — post 338935
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338935_1779725793.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ بار دیگر با اشاره به توافق احتمالی میان تهران و واشینگتن، گفت‌وگوها با جمهوری اسلامی را در حال پیشرفت توصیف کرد. او افزود در گفت‌وگو با رهبران عربستان سعودی، امارات متحده عربی، قطر، پاکستان، ترکیه، مصر، اردن و بحرین تاکید کرده پیوستن به‌موقع به پیمان ابراهیم، شرط اصلی برای تحول تاریخی در خاورمیانه است.
+
+سمیرا قرایی، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 338934
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338934_1779725794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای دوشنبه ۴ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338933
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338933_1779725795.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نجمه موسوی-پیمبری، از نزدیکان پرویز قلیچ‌خانی خبر داده که اسطوره فوتبال ایران پیش‌تر تصمیم گرفته بود پیکرش را به مراکز علمی اهدا کند: «پرویز قلیچ‌خانی، بر اساس باورهای شخصی خود تصمیم گرفته بود پیکرش را به مراکز علمی اهدا کند، به همین خاطر مراسم خاک‌سپاری برگزار نخواهد شد.»
+
+🔹او که با انتشار یک پیام صوتی، این خبر را اعلام کرد، گفت: «پرویز، به دلیل فروتنی و برای جلوگیری از زحمت دیگران، تمایلی به برپایی مراسم یادبود رسمی نداشت. با این حال، دوستداران او می‌توانند، برای بزرگداشت جایگاه مردمیِ پرویز قلیچ‌خانی در هر کجای جهان برنامه‌هایی داوطلبانه برگزار کنند.»
+
+🔹پرویز قلیچ‌خانی، کاپیتان پیشین تیم ملی فوتبال ایران، شنبه دوم خرداد ۱۴۰۵، در ۸۱ سالگی در حومه پاریس درگذشت. او تنها بازیکنی بود که سه بار با تیم ملی، قهرمان جام ملت‌های آسیا شد. قلیچ‌خانی پس از انقلاب به فعالیت سیاسی و روزنامه‌نگاری در خارج از کشور روی آورد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338932
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338932_1779725796.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علیرضا سلیمی، عضو هیات‌رییسه مجلس گفت با توجه به شرایط جدید، از مجتبی خامنه‌ای اجازه خواستیم تا جلسات مجلس را به‌صورت وبیناری با امکان رای‌گیری برگزار کنیم.
+
+او افزود به محض دریافت پاسخ از «رهبری»، هیات‌رییسه تصمیمات لازم را برای آغاز جدی فعالیت‌های عادی مجلس خواهد گرفت.
+https://iranintl.com/202605254256
+</div>
+
+## IranIntlTV — post 338931
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338931_1779725796.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اطلاعات رسیده به ایران‌اینترنشنال جزییات تازه‌ای را از نحوه جاویدنام شدن بابک جعفری در ۱۹ دی‌ماه روایت می‌کند. او که ۳۴ ساله بود، در اصفهان با شلیک گلوله ماموران به کمرش مجروح شد و در درمانگاه جان باخت.
+خانواده جعفری برای جلوگیری از ربوده شدن پیکرش از سوی ماموران حکومت، پیکر او را دو روز در خانه نگه داشتند و سپس به خاک سپردند.
+
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338930
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338930_1779725798.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیام به ایران‌اینترنشنال می‌گوید: «هیچ‌کس به فکر ما نیست. هیچ‌چیز رایگان به دست نمی‌آید؛ حتی نان و آب. آزادی کشور هم رایگان نیست. واقعیت این است که آمریکا به فکر منافع خودش و متحدانش است. ما هم باید به فکر ایران و منافع خودمان باشیم. پایان کار جمهوری اسلامی با ماست.»
+</div>
+
+## Persian_Trend_Official — post 14955
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14955_1779725799.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پست جدید دونالد ترامپ
+
+⚠️ترجمه فارسی در تحریریه پرشین ترند به تصویر اصلی اضافه شده است .
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14953
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14953_1779725800.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیو لو رفته از مذاکرات آمریکا با جمهوری اسلامی 😒
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14952
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14952_1779725800.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 دونالد ترامپ در پیامی مفصل اعلام کرد از کشورهایی که طی آخر هفته با آن‌ها گفت‌وگو داشته، از جمله پاکستان، ترکیه، مصر، اردن، بحرین، امارات، عربستان سعودی و قطر خواسته است هرچه سریع‌تر به توافقنامه‌های ابراهیم بپیوندند.
+</div>
+
+## Persian_Trend_Official — post 14951
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14951_1779725801.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری:
+وال استریت ژورنال: مذاکرات ایران رو بحث برنامه هسته‌ای و رفع تحریم‌ها به بن بست رسیده.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14950
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک منبع سعودی به CNN:
+
+▪️ عربستان تنها در صورتی روابط خود با اسرائیل را عادی‌سازی خواهد کرد که «مسیر غیرقابل بازگشت» برای تشکیل کشور فلسطین وجود داشته باشد
+▪️ ریاض تأکید کرده موضعش «همان موضع همیشگی» است
+▪️ این اظهارات پس از آن مطرح شد که ترامپ از احتمال گسترش شناسایی اسرائیل در منطقه پس از توافق احتمالی با ایران صحبت کرده بود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 17:26
 ---
 
