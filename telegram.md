@@ -7,6 +7,374 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 02:33
+---
+
+## ChizBergerz — post 46807
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداهای امشب چیز خاصی نیست، "تست توافقه" :))))
+</div>
+
+## ChizBergerz — post 46806
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46806_1779750216.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین جواب👌👌
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71945
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71945_1779750217.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 صداوسیما هنوز نمیدونه کجا رو زدن 😏
+</div>
+
+## rodast_omiddana — post 71944
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71944_1779750219.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ارتش آمریکا با هدایت ستاد فرماندهی آسیای مرکزی (سنتکام/CENTCOM) ایالات متحده، طی درگیری های امشب به اهداف زیر حمله کردند:
+1️⃣فرودگاه بین‌المللی بندرعباس.
+2️⃣قسمتی از اسکله باهنر.
+3️⃣تاسیسات نظامی کوه مبارک.
+</div>
+
+## rodast_omiddana — post 71943
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71943_1779750220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 
+🔴کانال 14 اسرائیل: "سلام خامنه‌ای کوچیکه"
+</div>
+
+## rodast_omiddana — post 71942
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71942_1779750220.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 حمله دیروز بوده و ترامپ هم این تصویر را منتشر کرده بود
+</div>
+
+## rodast_omiddana — post 71941
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😎 خبرگزاریهای رژیم میگن دارن به ناو آمریکایی حمله میکنند 😏
+</div>
+
+## KiriMohems — post 47991
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47991_1779750220.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توافق به کیر رفت؟ ترامپ یه عکس گذاشت که داره سپاهیارو میکشه و زد خداحافظ #professor @KiriMohems
+</div>
+
+## KiriMohems — post 47990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ : اورانیوم غنی‌شده (گرد هسته‌ای!) یا فوراً به ایالات متحده تحویل داده خواهد شد تا به کشور بازگردانده شده و نابود شود
+
+یا ترجیحاً، همراه و هماهنگ با جمهوری اسلامی ایران، در محل یا در مکان دیگری که مورد قبول باشد، با حضور کمیسیون انرژی اتمی یا معادل آن، این فرآیند و رویداد نابود شود.
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252616
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252616_1779750221.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 فووووری از سنتکام: نیروهای ایالات متحده امروز حملات دفاعی خود را در جنوب ایران انجام دادند تا از نیروهای ما در برابر تهدیدات ناشی از نیروهای ایرانی محافظت کنند. اهداف شامل سایت های پرتاب موشک و قایق های ایرانی در تلاش برای استقرار مین بودند. فرماندهی مرکزی ایالات متحده همچنان به دفاع از نیروهای ما در حین حرکت ادامه می دهد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252615
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252615_1779750222.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جشن پشم ریزون هواداران دپورتیوو لاکرونیا پس‌ از صعود مجدد به لالیگا بعد از 8 سال
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎با این وضعیت اینترنت، ربات تلگرام وینکوبت خیلی کاربردیه چون براحتی وارد سایت میشی.
+
+▪︎هم ثبت‌نامش سریع انجام میشه، هم کازینو رو داخل خود تلگرام میتونی بازی کنی و عملاً کل سایتو داخل ربات داری.
+▪︎پیش‌بینی، بازی، واریز، برداشت و همه‌چی همونجا انجام میشه و خیلی روون‌تره: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+📌کانال رسمی وینکوبت:
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 252613
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252613_1779750224.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+✅ گاستون آیدل: جای نگرانی نیست، مسی مصدوم نشده فقط خستگی عضلانی داره. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252612
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252612_1779750225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابا کیر تو جنگ خبر رو داشته باش 
+🚨
+⚽️ خولیان آلوارز راضی شده از اتلتیکو جدا بشه و بارسا مقصد اصلیشه | مارکا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252611
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252611_1779750225.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بابا کیر تو جنگ خبر رو داشته باش
+
+
+🚨
+⚽️ خولیان آلوارز راضی شده از اتلتیکو جدا بشه و بارسا مقصد اصلیشه | مارکا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تو شرایطی که ما لنگ چص تومن حقوق میلادیم امروز تو ایران تمام ظرفیت فروش لکسوس LX600 با قیمت 110 میلیارد تومن توی کمتر از 10 دقیقه به پایان رسیده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252608
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوپر اپلیکیشن‌های بله، روبیکا، بلو بانک همزمان از دسترس خارج شدن، اینا یه زیر ساخت ندارن همین چارتا اپلیکیشن داخلیشونو واسه تعداد یوزرای کمش نگه دارن چطوری حرفای قطع کامل اینترنتو باور میکنید
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 339001
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339001_1779750225.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌ها در ایران از ابلاغ دستور مسعود پزشکیان به وزارت ارتباطات برای بازگشایی اینترنت بین‌الملل خبر دادند. ستاد راهبردی و ساماندهی فضای مجازی نیز اعلام کرد بازگشت اینترنت به وضعیت پیش از دی‌ماه ۱۴۰۴ تصویب شده است.
+
+این در حالی است که نت‌بلاکس گزارش داد خاموشی اینترنت وارد هشتادوهفتمین روز خود شده است.
+
+گفت‌وگو با علیرضا منافی، پژوهشگر دسترسی به اینترنت در سازمان اصل ۱۹
+@iranintltv
+</div>
+
+## IranIntlTV — post 339000
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339000_1779750228.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری دانشجو از حمله آمریکا و اسرائیل به جنوب جزیره لارک در سحرگاه گذشته به وقت محلی خبر داد. این گزارش به نقل از منابع محلی نوشت نام‌های سه نفر از کشته‌شدگان عباس اسلامی، قدرت زرنگاری و عبدالرضا گلزاری است، اما تعداد کشته‌شدگان هنوز مشخص نیست.
+https://iranintl.com/202605254753
+</div>
+
+## IranIntlTV — post 338999
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338999_1779750229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز گزارش داد محمدباقر قالیباف و عباس عراقچی برای دیدار با نخست‌وزیر قطر وارد دوحه شده‌اند.
+
+به گزارش رویترز، این دیدار با هدف بررسی گزینه‌های دستیابی به توافق میان تهران و واشینگتن و پایان دادن به تنش‌ها، به‌ویژه درباره تنگه هرمز و اورانیوم با غنای بالا، انجام می‌شود.
+
+گفت‌وگو با میثم مهرانی، تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 338998
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338998_1779750232.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت روسای‌جمهوری پیشین آمریکا خواهان مذاکره بودند و تهران تهدید به اقدام نظامی می‌کرد، اما او جمهوری اسلامی را تهدید کرد و تهران به مذاکره تن داد.
+
+او همچنین تاکید کرد اجازه نخواهد داد ایران به سلاح هسته‌ای دست پیدا کند.
+
+گفت‌وگو با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338997
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338997" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ بازگشت «برنامه» با «تریبون آزاد»
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338996
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338996_1779750235.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت: «اورانیوم غنی‌شده (غبار هسته‌ای!) یا فورا به آمریکا تحویل داده خواهد شد تا در ایالات‌متحده نابود شود، یا ترجیحا با همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی قابل قبول دیگر نابود خواهد شد.»
+ترامپ گفت در صورت نابودی اورانیوم غنی‌شده در مکانی غیر از آمریکا، «کمیسیون انرژی اتمی»، یا نهاد معادل آن، به عنوان شاهد بر این فرایند نظارت خواهد داشت.
+https://iranintl.com/202605259577
+</div>
+
+## IranIntlTV — post 338995
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338995_1779750236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «بسیاری از اختیارات پزشکیان گرفته شده او عملا نقش تعیین‌کننده‌ای در تصمیم‌گیری‌ها ندارد. پزشکیان عملا به تدارکاتچی سپاه تبدیل شده و حتی در جایگاه‌هایی مثل شورای عالی امنیت ملی هم بیشتر به ماشین امضای تصمیمات سپاه مثل جنایت دی‌ماه تبدیل شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338994
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338994_1779750238.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با ادامه انتقاد برخی گروه‌های درون حکومت ایران به شیوه مذاکرات، بعضی نمایندگان مجلس می‌گویند نباید هیچ تعهدی پذیرفته شود که به تضعیف قدرت بازدارندگی منجر گردد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338993
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338993_1779750240.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «خروج قالیباف از مخفیگاه و سفرش به قطر و علنی شدن حضور علی عبداللهی، فرمانده قرارگاه خاتم الانبیا، پس از چند ماه می‌تواند نشانه امان‌نامه غیر رسمی و موقت ترامپ به فرماندهان سپاه برای رسیدن به یک توافق احتمالی باشد. اگر توافق نشود این امان‌نامه می تواند توسط نیروی هوایی اسراییل باطل شود.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️سخنگوی وزارت خارجه قطر:
+
+♦️گزارش‌هایی که مدعی می‌شوند قطر مبلغ ۱۲ میلیارد دلار به ایران «پیشنهاد» کرده تا تضمین‌کننده حصول توافق باشد، کاملاً بی‌اساس است و توسط طرف‌هایی منتشر می‌شود که به دنبال به شکست کشاندن توافق و تضعیف تلاش‌های دیپلماتیک با هدف کاهش تنش و تقویت ثبات در منطقه هستند.
+
+♦️تلاش‌های دیپلماتیک قطر که با هماهنگی شرکای منطقه‌ای انجام می‌شود، آشکار است و این روایت‌سازی‌ها چیزی جز تلاش‌های ناامیدانه‌ای برای خدشه‌دار کردن جایگاه قطر به‌عنوان یک بازیگر بین‌المللی قابل اعتماد در ایجاد صلح نیست./انتخاب
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15022
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15022_1779750242.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15021
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15021_1779750243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نظر می‌رسد دو آتش‌سوزی در جزیره خارگ ایران رخ داده است. ⭕️جزیره خارگ بندری برای صادرات تا ۹۰٪ از محصولات نفتی ایران فراهم می‌کند 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/81sH1UrOPAM?feature=share
+</div>
+
+## Persian_Trend_Official — post 15019
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15019_1779750243.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇱‏۶۱ سال پیش، الی کوهن قهرمان افسانه‌ای  مردم اسرائیل در سوریه اعدام شد.
+
+اطلاعاتی که وی از طریق نفوذ در حکومت سوریه به دست آورد، نقش حیاتی در پیروزی اسرائیل در جنگ شش روزه داشت.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15018
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15018_1779750244.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نظر می‌رسد دو آتش‌سوزی در جزیره خارگ ایران رخ داده است.
+
+⭕️جزیره خارگ بندری برای صادرات تا ۹۰٪ از محصولات نفتی ایران فراهم می‌کند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 01:32
 ---
 
