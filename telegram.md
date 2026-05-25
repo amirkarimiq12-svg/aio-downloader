@@ -7,6 +7,637 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 01:32
+---
+
+## ChizBergerz — post 46805
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46805_1779746522.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاصم منیر وقتی بعد از یکماه مذاکره فشرده بالاخره موفق می‌شه یه توافق بین ایران و آمریکا جوش بده و حالا برگشته پاکستان تا با خیال راحت زنشو بکنه:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46804
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گروهک تروریستی "الجیش الکانفیگ‌فروش" مسئولیت حمله امشب به بندرعباس رو گردن گرفت!
+</div>
+
+## ChizBergerz — post 46803
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46803_1779746523.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکی از نکات جالب اینه که؛
+پهنای باند اینترنت همه کشورهایی که طی یک سال گذشته درگیر جنگ بودن نه تنها روی مردمش قطع نشده؛ بلکه رشد طبیعی و فزاینده داشته؛ البته فقط به جز ایران!
+اونوقت ما از وصل شدن اینترنتی که همه چیزم روش فیلتره ذوق میکنیم، مادرتو گاییدم آخوند!
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46802
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46802_1779746524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هرجا هستی کیرم تو کص مادرت.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46801
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46801_1779746524.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حال و هوای امروز کانفیگ فروشا:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46800
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46800_1779746525.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی این چالش جدیده واقعا خیلی خوبههههه😁 @ChizBergerz
+</div>
+
+## ChizBergerz — post 46799
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46799_1779746527.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حاجی این چالش جدیده واقعا خیلی خوبههههه😁
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46798
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46798_1779746528.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرده بکارت سالم دیگه چه کصشعریه؟!
+
+آنلاین‌شاپ‌های ایرانی دارن مراحل جدید رو آنلاک میکنن: 😳😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46797
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46797_1779746528.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چیزی نیست، صدای توافقه. گزارش‌های کاربران از شنیده شدن صدای ۲ تا ۳ انفجار مهیب در نزدیکی شهر بندرعباس حکایت داره! @ChizNewz
+</div>
+
+## rodast_omiddana — post 71940
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71940_1779746531.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تا این لحظه خبر تایید شده
+فرودگاه بندرعباس انفجار داشتیم
+دو قایق تندرو توسط جنگنده های آمریکا زده شدن و چهار تروریست سپاه پاسداران به هلاکت رسیدن
+مابقی خبرها را نمیشود تایید کرد
+</div>
+
+## rodast_omiddana — post 71939
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71939_1779746531.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دوستان تهران خبر نیست الان میتونم تایید کنم_امید دانا
+</div>
+
+## rodast_omiddana — post 71938
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71938_1779746531.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨من شرقم. دوستم غرب. هیچ کدوم صدای انفجار نشنیدیم
+</div>
+
+## rodast_omiddana — post 71937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 داداش والا ما چیتگریم هیچ خبری نیست همیشه اولین جایی که میزدن چیتگر بود آلان خبری نی
+</div>
+
+## rodast_omiddana — post 71936
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71936_1779746531.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اقای امید دانا ظاهرا
+بازم دشمناتو س.یر کردی و دل هواداران ( ما ها) رو شاد😄❤️
+بنازم ب قدرت تحلیل میدانیت❤️❤️
+پر قدرت برو جلو
+</div>
+
+## rodast_omiddana — post 71935
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71935_1779746532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تا ااین لحظه دو مخاطب گفتن در تهران خبری نیست
+</div>
+
+## rodast_omiddana — post 71934
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71934_1779746532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+اورانیوم غنی‌شده (گرد هسته‌ای!) یا باید فورا به ایالات متحده تحویل داده شود تا به کشور منتقل و نابود گردد، یا ترجیحا با هماهنگی و همکاری جمهوری اسلامی ایران، همان‌جا در محل یا در مکانی دیگر که قابل قبول باشد، نابود شود؛ به‌طوری که کمیسیون انرژی اتمی یا نهاد معادل آن، شاهد این فرایند و رویداد باشد.
+</div>
+
+## rodast_omiddana — post 71933
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71933_1779746532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 امید دمت گرم تهران صدا پدافند میاد
+</div>
+
+## rodast_omiddana — post 71932
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71932_1779746532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨ی ساختمون توی بندرعباس نقطه زنی شده با پهپاد زدن
+</div>
+
+## rodast_omiddana — post 71931
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71931_1779746532.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اقا امید ببخشید زود قضاوتت کردیم
+واقعا حمله کردن
+همین الان صدای انفجار های بزرگی از تهران اومد
+</div>
+
+## rodast_omiddana — post 71930
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71930_1779746533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 امید
+واقعا دمت گرم الان دیگه به تحلیل هات ایمان آوردم
+ممنونم
+عشق منی
+</div>
+
+## rodast_omiddana — post 71929
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71929_1779746533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨اقا امید تهران صدا داره میاد ، درود بشرفت❤️
+</div>
+
+## rodast_omiddana — post 71928
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71928_1779746533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سلام
+آسمون غرب تهران پر از پهباده
+</div>
+
+## rodast_omiddana — post 71927
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71927_1779746533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری_اسامی 4 کشته شده نیروی دریایی 3پا:
+پاسدار کتلت عباس اسلامی
+پاسدار کتلت قدرت زرنگاری
+پاسدار کتلت عبدالرضاگلزاری
+پاسدار کتلت حسین ستوده....
+</div>
+
+## rodast_omiddana — post 71926
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71926_1779746533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فعالیت سوخت رسانا همین الان
+</div>
+
+## rodast_omiddana — post 71925
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71925_1779746533.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 امید پدافند همدانم فعال شده
+</div>
+
+## rodast_omiddana — post 71924
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71924_1779746534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دقایقی قبل پنجم خرداد جنگنده‌ های آمریکایی چند قایق تندرو نیروهای سپاه را در جنوب جزیره لارک مورد هدف قرار دادند.
+نام سه تن از کشته شده ها که تا این لحظه شناسایی شدند:
+عباس اسلامی
+قدرت زرنگاری
+عبدالرضا گلزاری
+</div>
+
+## rodast_omiddana — post 71923
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71923_1779746534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨امید من اصفهانم صدای پدافند شدید میاد
+</div>
+
+## rodast_omiddana — post 71922
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71922_1779746534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 گزارش هایی از انفجار ها در کرمانشاه و اردبیل شنیده شده است
+</div>
+
+## rodast_omiddana — post 71921
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71921_1779746534.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 بندر عباس نیم ساعت پیش
+</div>
+
+## KiriMohems — post 47989
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندر عباس رو زدن #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 47988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴میدل ایست :
+دو قایق تندرو نیروی دریایی سپاه پاسداران توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار ملوان کشته شدند
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشاتی از حمله به شهرکرد و اندیمشک #غیررسمی
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بندر عباس رو زدن
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47985
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا خشتک فوریییییی
+#Helsinki
+</div>
+
+## SportBaadNews — post 252603
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252603_1779746536.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 ترامپ تو تروث:
+اورانیوم غنی‌شده (گرد هسته‌ای!) یا باید فوراً به ایالات متحده تحویل داده شود تا به کشور منتقل و نابود گردد، یا ترجیحاً با هماهنگی و همکاری جمهوری اسلامی ایران، همان‌جا در محل یا در مکانی دیگر که قابل قبول باشد، نابود شود؛ به‌طوری که کمیسیون انرژی اتمی یا نهاد معادل آن، شاهد این فرایند و رویداد باشد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252602
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252602_1779746537.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان بخوابید همون‌طور که دقایقی پیش گفتم ولی پستش پاک شده جنگی در کار نیست منتهی نمیتونم ثابتش کنم؛ دوستانی هم که نهایی دارید به جای اینکه تا یک شب تو تلگرام ولو باشید برید درستونو بخونید که حضوری باید امتحان بدید
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252601
+
+<div align="center">
+  <a href="https://t.me/SportBaadNews/252601" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252600
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبری نیست جنگ نشده
+</div>
+
+## SportBaadNews — post 252581
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252581_1779746538.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 زیرنویس صدا سیما
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرا جنگی شدن
+</div>
+
+## IranIntlTV — post 338992
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338992_1779746539.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در ادامه رایزنی‌ها بر سر توافق احتمالی میان تهران و واشینگتن، هیات جمهوری اسلامی به ریاست محمدباقر قالیباف، رییس مجلس و عباس عراقچی، وزیر امور خارجه جمهوری اسلامی، وارد دوحه شد.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338991
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338991_1779746541.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «علنی شدن رقم ۱۲ میلیارد دلاری پول‌های توقیف‌شده در قطر، بار دیگر این واقعیت را نشان داد که در مبادلات بانکی، فروش غیر رسمی نفت و دور زدن تحریم‌ها بخش زیادی از درآمدهای ملی حیف‌ومیل می‌شود و به‌دلیل پنهانی بودن معاملات، امکان سوءاستفاده و بالا کشیدن درآمدهای نفتی توسط فرماندهان سپاه و باندهای آنها وجود دارد.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15017
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15017_1779746543.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ترامپ:
+
+«اورانیوم غنی‌شده (غبار هسته‌ای!) فوراً به ایالات متحده تحویل داده خواهد شد تا به کشور بازگردانده شده و نابود شود، یا بهتر از آن، با همکاری و هماهنگی با جمهوری اسلامی ایران، در همان محل یا در مکانی قابل قبول دیگر نابود گردد؛ آن هم با حضور و نظارت کمیسیون انرژی اتمی یا نهادی معادل آن به‌عنوان شاهد این فرآیند و رویداد.
+
+از توجه شما به این موضوع سپاسگزارم!»
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15016
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15016_1779746544.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه خبر: منبع صدای انفجار در بندرعباس هنوز مشخص نیست
+</div>
+
+## Persian_Trend_Official — post 15015
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15015_1779746545.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی هاشم، خبرنگار الجزیره: یک منبع ایرانی به من گفت که صدای تیراندازی شدیدی که در نزدیکی بندرعباس شنیده شد، پس از آن رخ داد که سپاه پاسداران یک کشتی را در دریا هدف قرار داد و پس از آن جنگنده‌های آمریکایی به قایق‌های نیروی دریایی سپاه در خلیج فارس حمله کردند.
+
+به گفته این منبع، چندین پرسنل نیروی دریایی سپاه در این حمله کشته شدند.
+
+این منبع گفت: «وضعیت هنوز در حال وخیم شدن است.»
+</div>
+
+## Persian_Trend_Official — post 15014
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15014_1779746545.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم اکنون؛ پرواز هواپیمای سوخت‌رسان آمریکایی بر فراز منطقه.
+</div>
+
+## Persian_Trend_Official — post 15013
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15013_1779746546.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای انفجار از کرمانشاه و اصفهان
+</div>
+
+## Persian_Trend_Official — post 15010
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15010_1779746546.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پدافند در قم
+تاکنون ده ها موشک پرتاب شده
+</div>
+
+## Persian_Trend_Official — post 15008
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15008_1779746548.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹 آماده باش سراسری به یگان های آفندی سپاه و ارتش‼️
+</div>
+
+## Persian_Trend_Official — post 15007
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15007_1779746549.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دود بلند شده از فرودگاه بندرعباس
+</div>
+
+## Persian_Trend_Official — post 15006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(غیر رسمی)دو قایق تندرو نیروی دریایی سپاه توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار نیرو کشته شدند. این خبر تایید یا تکذیب نمی‌شود . 👩‍💻@PhantomDirective 🆔@persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15005
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15005_1779746549.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹صدای انفجار در بابلسر
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15004
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15004_1779746550.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+(غیر رسمی)دو قایق تندرو نیروی دریایی سپاه توسط جنگنده‌های آمریکایی در خلیج فارس هدف قرار گرفتند و چهار نیرو کشته شدند.
+این خبر تایید یا تکذیب نمی‌شود .
+
+👩‍💻@PhantomDirective
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15003
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15003_1779746550.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فعالیت پدافند بندر عباس
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15002
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15002_1779746551.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبر عجیب خبرگزاری تابناک
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15001
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15001_1779746552.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار الجزیره: ایران به آمریکا هشدار داده است که هرگونه حمله اسرائیل به بیروت یا حومه‌های جنوبی آن می‌تواند مذاکرات جاری برای پایان دادن به جنگ را به طور جدی به خطر بیندازد!
+</div>
+
+## Persian_Trend_Official — post 15000
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15000_1779746553.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار الجزیره:
+ایران به آمریکا هشدار داده است
+که هرگونه حمله اسرائیل به بیروت
+یا حومه‌های جنوبی آن می‌تواند
+مذاکرات جاری برای پایان دادن
+به جنگ را به طور جدی
+به خطر بیندازد!
+</div>
+
+## Persian_Trend_Official — post 14999
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14999" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 8.45 مگابایت
+
+اتاق جنگ دوشنبه 4 خرداد | حمله گسترده اسرائیل به لبنان نشانه توافق با تهران ؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سامانه‌های پدافند هوایی ایران در بندرعباس و بندر جاسک فعال شدند
+
+▪️ گزارش‌ها حاکی از فعال‌شدن پدافند هوایی ایران بر فراز Bandar Abbas و Bandar Jask است
+
+▪️ منابع غیررسمی از درگیری پدافند با اهداف هوایی خبر می‌دهند، اما هنوز ماهیت اهداف مشخص نیست
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 00:21
 ---
 
