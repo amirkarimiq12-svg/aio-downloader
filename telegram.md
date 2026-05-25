@@ -7,6 +7,525 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 00:21
+---
+
+## rodast_omiddana — post 71915
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴پخش زنده
+*هیچ پولی به جمهوری اسلامی داده نخواهد شد
+*مذاکرات پازل بزرگ خاورمیانه جدید و پایان رژیم است
+لینک یوتیوب:
+https://www.youtube.com/watch?v=_bBRr8_Rt-E
+</div>
+
+## SportBaadNews — post 252579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هوش مصنوعی پیشرفت کرده😐 چقد طبیعیهههه @SportBadTweet | #تبریز
+</div>
+
+## SportBaadNews — post 252578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرایی هست که میگن سپاه داره عملیات پاکسازی مین تو تنگه هرمز رو انجام میده
+</div>
+
+## SportBaadNews — post 252577
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: صداهای مشابهی در جزایر سیریک و جاسک شنیده شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252576
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252576_1779742309.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای ۴ انفجار در بندرعباس شنیده شده! @SportBaadNews
+</div>
+
+## SportBaadNews — post 252574
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای ۴ انفجار در بندرعباس شنیده شده!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252573
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252573_1779742311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراسم خفن هوادارای منچستر سیتی برای خداحافظی با پپ با استقبال عالیشون تو خیابونای منچستر 
+🔥
+🔥
+🔥
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252572
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252572_1779742314.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+💣
+⚽️ فوووووری از فابریزیو رومانو: منچستریونایتد مذاکرات رو برای تمدید قرارداد برونو فرناندز شروع کرده و شدیداً میخواد این بازیکن رو تو باشگاه نگه داره. این بازیکن یه بند فسخ به ارزش 57 میلیون پوند داره!
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252571
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252571_1779742314.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ برونو فرناندز در جواب روی کین: من با انتقاد مشکلی ندارم. همیشه از هر کسی که انتقاد کرده، پذیرفتم. مردم میتونن نظر خودشونو داشته باشن. اما چیزی که دوست ندارم اینه که مردم دروغ بگن. من از روز اولی که اومدم لیگ برتر، دارم موقعیت‌سازی میکنم، این موضوع هیچوقت…
+</div>
+
+## SportBaadNews — post 252570
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252570_1779742315.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🟠 روی کین در مورد برونو فرناندز: برونو فرناندز یه بازیکن فوق‌العاده‌ست. از اون دست بازیکناییه که من هر هفته پول میدم تا بازیشو از نزدیک ببینم، چون همیشه تلاش می‌کنه یه کاری واسه تیمش بکنه. مردم فکر میکنن من چون ازش بدم میاد ازش انتقاد میکنم، ولی دقیقا برعکسه.…
+</div>
+
+## SportBaadNews — post 252568
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252568_1779742316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🟠 روی کین در مورد برونو فرناندز: برونو فرناندز یه بازیکن فوق‌العاده‌ست. از اون دست بازیکناییه که من هر هفته پول میدم تا بازیشو از نزدیک ببینم، چون همیشه تلاش می‌کنه یه کاری واسه تیمش بکنه. مردم فکر میکنن من چون ازش بدم میاد ازش انتقاد میکنم، ولی دقیقا برعکسه. من از برونو انتقاد میکنم چون خیلی قبولش دارم و میدونم به عنوان یه رهبر میتونه به سطح خیلی بالاتری هم برسه. وقتی به ترکیب منچستریونایتد نگاه میکنی، یه سری بازیکنا هستن که دیگه انتظار بیشتری ازشون نداری. ولی برونو فرق میکنه.
+
+
+🟠 اما تو منچستریونایتد، آمار و پاس گل‌ها باید آخرش به جام ختم بشه. این باشگاه روی بردن جام‌های بزرگ ساخته شده، نه اینکه فقط دنبال جشن گرفتن واسه جایزه‌های فردی و آمار و ارقام شخصی باشیم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252567
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امتحانای یازدهم دوازدهمم حضوری شد از 21 تیر باید برید امتحان بدید
+</div>
+
+## SportBaadNews — post 252566
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستار هاشمی٬ وزیر قطع ارتباطات: با دستور رئیس‌جمهور و پس از برگزاری سه جلسه فشرده کارشناسی و در نهایت‌ برگزاری اولین جلسه رسمی ستاد ویژه، فرایند برگشتن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ استارت خورد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252564
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارتینلی و خانومی
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252563
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سیتنا: پیگیری ها برای دسترسی به ابلاغ مصوبه ‎گشایش اینترنت به وزارت ارتباطات بی نتیجه ماند؛ هیچ مرجع رسمی حاضر به ارائه مستندات نشده است
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 338990
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338990_1779742317.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد محمدی گلپایگانی، رییس دفتر علی خامنه‌ای، در ویدیویی با اشاره به رهبر کشته‌شده جمهوری اسلامی گفت او مخالف تجمل‌گرایی بود و زندگی بسیار ساده‌ای داشت، به‌گونه‌ای که وسایل شخصی‌اش به اندازه بار یک وانت یا حتی کمتر بود.
+
+گلپایگانی افزود علی خامنه‌ای هدایایی را که از داخل و خارج کشور برایش ارسال می‌شد، به کمیته امداد و نهادهای دیگر می‌داد تا صرف کمک به فقرا شود و بهره شخصی او از این هدایا بسیار ناچیز بود.
+https://iranintl.com/202605252326
+</div>
+
+## IranIntlTV — post 338989
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338989_1779742318.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران شامگاه دوشنبه از شنیده‌شدن صداهای انفجار در بندرعباس و همزمان در خلیج فارس حوالی سیریک و جاسک خبر دادند.
+
+معاون استاندار هرمزگان اعلام کرد منشا صدای انفجار در حال بررسی است.
+https://iranintl.com/202605254215
+</div>
+
+## IranIntlTV — post 338988
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338988_1779742318.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیویورک تایمز گزارش داده که فیفا از سوی یک گروه غیرانتفاعی در آمریکا به دلیل ممنوعیت پرچم شیر و خورشید در جام جهانی ۲۰۲۶، تهدید به اقدام حقوقی و قضایی شده است؛ این نهاد غیرانتفاعی خواستار آن شده که برگزارکننده جام جهانی ممنوعیت نمایش پرچم پیش از انقلاب اسلامی را لغو کند.
+
+🔹«مؤسسه صداهای آزادی» نامه‌ای حاوی نگرانی‌های خود را از طریق شاهرخ مختارزاده، مشاور حقوقی‌اش، برای فیفا ارسال کرده است.
+
+🔹مختارزاده به نشریه اتلتیک گفته است که بسته به پاسخ یا عدم پاسخ فیفا، «تصمیم برای آغاز روند رسمی دادرسی در دادگاه عالی ایالت کالیفرنیا یا دادگاه‌های فدرال در کالیفرنیا اتخاذ خواهد شد.»
+
+🔹مشاور حقوقی این گروه گفت که سه روز پس از ارسال نامه به فیفا، هنوز هیچ پاسخی دریافت نکرده‌اند: «در صورت هرگونه تلاش فیفا برای حذف پرچم شیر و خورشید، در حال آماده‌سازی برای آغاز اقدامات حقوقی مقتضی هستیم.»
+
+🔹هفته گذشته، اتلتیک به نقل از منابعی، گزارش داد که راهنمای رسمی فیفا برای ورزشگاه‌ها در جام جهانی، ممنوعیت این پرچم خواهد بود.
+
+🔹جزییات بیشتر را در سایت بخوانید.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 338987
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338987_1779742320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد مرندی، کارشناس حکومتی و عضو هیات مذاکره‌کنندگان جمهوری اسلامی در مذاکرات اسلام‌آباد، در تلویزیون گفت قطر پذیرفته بخشی از دارایی‌های بلوکه‌شده حکومت را پیشاپیش تامین و بعد، از آمریکا دریافت کند. او دلیل این اقدام را درک قدرت جمهوری اسلامی و نتایج ایستادگی آن عنوان کرد.
+</div>
+
+## IranIntlTV — post 338986
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338986_1779742321.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از دو مقام اسرائیلی گزارش داد بنیامین نتانیاهو نسبت به تفاهم‌نامه در حال مذاکره میان تهران و واشینگتن ابراز نگرانی کرده است. براساس این گزارش، او گفته اسرائیل نفوذ چندانی بر تصمیم‌های دونالد ترامپ درباره ایران ندارد.
+
+گفت‌وگو با مئیر جاودانفر، تحلیل‌گر مسائل اسرائیل
+@iranintltv
+</div>
+
+## IranIntlTV — post 338985
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338985" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: انتقادها از توافق احتمالی ایران و آمریکا؛ ترامپ: مخالفان چیزی نمی‌دانند
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338984
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338984_1779742325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، گفت آمریکا از اوایل هفته دوم جنگ از طریق عاصم منیر، فرمانده ارتش پاکستان، درخواست آتش‌بس و مذاکره داده است.
+او افزود تا زمانی که پنج اقدام «اعتمادساز» از سوی آمریکا انجام نشود، چیزی به نام تفاهم و مذاکره معنا ندارد.
+به گفته عزیزی، این پنج اقدام شامل «خاتمه جنگ در همه جبهه‌ها به‌ویژه لبنان، برداشته‌شدن محاصره دریایی آمریکا، تردد کشتی‌های غیرنظامی از تنگه هرمز با ترتیبات مورد نظر ایران، تعلیق ۳۰ یا ۶۰ روزه تحریم‌های نفتی و آزادسازی پول‌های بلوکه‌شده است.»
+https://iranintl.com/202605256772
+</div>
+
+## IranIntlTV — post 338983
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338983_1779742325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، گفت آمریکا از اوایل هفته دوم جنگ از طریق عاصم منیر، فرمانده ارتش پاکستان، درخواست آتش‌بس و مذاکره داده است.
+او افزود تا زمانی که پنج اقدام «اعتمادساز» از سوی آمریکا انجام نشود، چیزی به نام تفاهم و مذاکره معنا ندارد.
+به گفته عزیزی، این پنج اقدام شامل «خاتمه جنگ در همه جبهه‌ها به‌ویژه لبنان، برداشته‌شدن محاصره دریایی آمریکا، تردد کشتی‌های غیرنظامی از تنگه هرمز با ترتیبات مورد نظر ایران، تعلیق ۳۰ یا ۶۰ روزه تحریم‌های نفتی و آزادسازی پول‌های بلوکه‌شده است.»
+https://iranintl.com/202605256772
+</div>
+
+## IranIntlTV — post 338982
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338982_1779742326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، گفت آمریکا از اوایل هفته دوم جنگ از طریق عاصم منیر، فرمانده ارتش پاکستان، درخواست آتش‌بس و مذاکره داده است.
+او افزود تا زمانی که پنج اقدام «اعتمادساز» از سوی آمریکا انجام نشود، چیزی به نام تفاهم و مذاکره معنا ندارد.
+به گفته عزیزی، این پنج اقدام شامل «خاتمه جنگ در همه جبهه‌ها به‌ویژه لبنان، برداشته‌شدن محاصره دریایی آمریکا، تردد کشتی‌های غیرنظامی از تنگه هرمز با ترتیبات مورد نظر ایران، تعلیق ۳۰ یا ۶۰ روزه تحریم‌های نفتی و آزادسازی پول‌های بلوکه‌شده است.»
+https://iranintl.com/202605256772
+</div>
+
+## IranIntlTV — post 338981
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338981_1779742327.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی صدرزاده، تحلیل‌گر مسائل خاورمیانه، گفت: «دلیل تاکید دونالد ترامپ بر پیوستن کشورهای عربی به پیمان ابراهیم این است که می‌خواهد این پیام را منتقل کند که آن‌ها نباید انتظار داشته باشند آمریکا از آن‌ها دفاع کند.» او افزود از نظر ترامپ، کشورهای عربی بهتر است با اسرائیل همکاری کنند تا از امکانات و توان دفاعی آن بهره‌مند شوند.
+@iranintltv
+</div>
+
+## IranIntlTV — post 338980
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338980_1779742329.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان گفت: «وقتی تصمیمی گرفته می‌شود، باید یک‌صدا از سیستم بیرون بیاید. من خیلی چیزها را دوست ندارم، اما وقتی تصمیم گرفته می‌شود، کوتاه می‌آیم.»
+
+او افزود: «اگر بتوانم معیشت و زندگی مردم را تامین کنم، آمریکا و اسرائیل نمی‌توانند در داخل کشور توطئه کنند.»
+https://iranintl.com/202605258505
+</div>
+
+## IranIntlTV — post 338979
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338979" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: تحرکات قالیباف در قطر، دور از چشم و گوش مجتبی و سپاه!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338978
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338978_1779742331.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تحرکات قالیباف در قطر، دور از چشم و گوش مجتبی و سپاه!
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+تماشای نسخه کامل در یوتیوب:
+https://youtu.be/WCt7x569huw
+@iranintltv
+</div>
+
+## IranIntlTV — post 338977
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338977_1779742334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الجزیره به نقل از یک منبع آگاه از گفت‌وگوهای میان هیات عالی‌رتبه ایرانی و مقام‌های قطری در دوحه گزارش داد میانجی‌گری قطر به دستیابی به تفاهمی میان آمریکا و جمهوری اسلامی درباره دارایی‌های مسدودشده تهران منجر شده است.
+این منبع افزود با توجه به اهمیت بالای این موضوع برای ایران، احتمال زیادی وجود دارد توافق میان آمریکا و جمهوری اسلامی فردا اعلام شود.
+
+https://iranintl.com/202605257486
+</div>
+
+## Persian_Trend_Official — post 14997
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14997_1779742334.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹خبرگزاری تسنیم به نقل از یک منبع نظامی گزارش می‌دهد که تحقیقات فنی نیروهای مسلح ایران نشان می‌دهد اسرائیل در چند هفته گذشته تحت پوشش عملیات پرچم دروغین، چندین حمله پهپادی علیه امارات انجام داده است، با هدف تحریک اماراتی‌ها.🇮🇷🇦🇪🇮🇱
+
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گمانه‌زنی‌ها درباره احتمال درگیری دریایی در خلیج فارس
+
+▪️ برخی منابع غیررسمی احتمال می‌دهند انفجارهای شنیده‌شده در نزدیکی جاسک و سیرک ناشی از درگیری دریایی با یک شناور بوده باشد
+▪️ گفته می‌شود این شناور احتمالاً از دستورات نیروی دریایی ایران تبعیت نکرده است
+▪️ تاکنون هیچ تأیید رسمی درباره وقوع درگیری دریایی یا هویت شناور منتشر نشده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14995
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14995_1779742335.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شنیده‌شدن صدای انفجار در خلیج فارس مقابل سیرک و جاسک
+
+▪️ منابع محلی از شنیده‌شدن صدای چند انفجار در خلیج فارس مقابل مناطق سیرک و جاسک در جنوب Iran خبر می‌دهند
+▪️ تاکنون جزئیات رسمی درباره منشأ یا ماهیت این انفجارها منتشر نشده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14993
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14993_1779742336.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇮🇷 — گزارش‌های اولیه از چند انفجار شدید در نزدیکی فرودگاه بندرعباس، جنوب ایران، در خلیج فارس. خبر می‌دهد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14992
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14992_1779742337.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲ تلاش اسرائیل برای ترور شیخ نعیم قاسم ناکام ماند.
+
+شبکه الحدث گزارش داد تل‌آویو دست‌کم دو بار به تازگی تلاش کرده شیخ نعیم قاسم، رهبر حزب‌الله لبنان را هدف قرار دهد اما موفق نشده است.
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14988
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14988_1779742337.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل در حال حاضر به سایت‌های زیرساخت حزب‌الله در دره بقاع (شمال‌شرق) و مناطق دیگری در سراسر لبنان حمله می‌کند.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14987
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی ارتش اسرائیل:
+
+ارتش اسرائیل در ۲۴ ساعت گذشته بیش از ۷۰ زیرساخت سازمان تروریستی حزب‌الله را هدف قرار داد: حدود ۱۰ فرماندهی و انبار تسلیحات در صور هدف قرار گرفتند
+
+در طول روز، ارتش اسرائیل بیش از ۷۰ زیرساخت سازمان تروریستی حزب‌الله را با بیش از ۸۵ تسلیحات در چندین منطقه در لبنان هدف قرار داد.
+
+در منطقه صور، حدود ۱۰ فرماندهی، انبار تسلیحات و زیرساخت‌های دیگری که توسط سازمان تروریستی حزب‌الله برای پیشبرد طرح‌های تروریستی علیه نیروهای ارتش اسرائیل و شهروندان اسرائیل استفاده می‌شد، هدف قرار گرفتند.
+
+همزمان، نیروی هوایی تروریست‌های سازمان حزب‌الله را که با موتورسیکلت در منطقه‌ای که نیروهای ارتش اسرائیل در جنوب لبنان فعالیت می‌کنند، از بین برد.
+
+👩‍💻@PhantomDirective
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از عملیات پیکان های آتش
+
+
+
+👩‍💻@PhantomDirective
+
+
+📣@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14980
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14980_1779742338.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترافیک سنگین در منطقه الحازمیه لبنان در پی موج خروج ساکنان ضاحیه
+
+▪️ گزارش‌ها از ترافیک شدید در منطقه الحازمیه در حومه بیروت خبر می‌دهند
+
+▪️ این وضعیت در پی جابه‌جایی گسترده ساکنان ضاحیه جنوبی بیروت ایجاد شده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14979
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14979_1779742339.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧
+🇮🇱شلیک موشک پدافندی از جنوب لبنان به سمت جنگنده های اسرائیلی
+</div>
+
+## Persian_Trend_Official — post 14978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رئیس کمیسیون امنیت ملی مجلس ایران:
+
+تا زمانی که آمریکا ۵ اقدام برای اعتمادسازی انجام ندهد، تفاهم و مذاکره با واشینگتن بی‌فایده است.
+
+این شروط شامل:
+
+▪️ پایان جنگ در تمام جبهه‌ها، به‌ویژه لبنان
+▪️ رفع محاصره آمریکا و مقابله با آنچه «دزدی دریایی» خوانده شد
+▪️ اجازه عبور کشتی‌های غیرنظامی از تنگه هرمز با هماهنگی ایران
+▪️ تعلیق تحریم‌های نفتی برای ۳۰ یا ۶۰ روز
+▪️ آزادسازی دارایی‌های بلوکه‌شده ایران
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14977
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/81sH1UrOPAM?feature=share»
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 22:49
 ---
 
