@@ -7,6 +7,1072 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 17:51
+---
+
+## ChizBergerz — post 46812
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46812_1779805290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاری باهامون کردن که از باز شدن اینترنتی که همه چی روش فیلتره و بازم باید دنبال فیلترشکن بگردیم؛ خوشحال میشیم.
+
++ ترامپ میگفت مردم ایران تو جهنم زندگی میکنن کسی باور نمیکرد‌.
+</div>
+
+## ChizBergerz — post 46810
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46810_1779805290.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیر قطع ارتباطات: اینترنت بین‌الملل تا کمتر از ۲۴ ساعت آینده برای همه اپراتورها در دسترس قرار میگیره. @ChizNewz
+</div>
+
+## rodast_omiddana — post 71976
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 شاهکار ترامپ در قبال رژیم ایران
+مذاکرات در خدمت خاورمیانه جدید است
+لینک یوتیوب:
+https://www.youtube.com/watch?v=zf8rm2CJipw
+</div>
+
+## rodast_omiddana — post 71975
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71975_1779805291.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 صاحب فست فودی که در روز مرگ خامنه ای شیرینی پخش کرده بود با دوسال زندان محکوم شد، وی گفته:
+"من به علت افتتاح مغازه فست فودم، شیرینی پخش کردم"...
+</div>
+
+## rodast_omiddana — post 71974
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71974_1779805291.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک سوال جدی
+چرا محمدی گلپایگانی مسئول دفتر خامنه ای که همیشه به وی چسبیده بود، در روز حادثه استثنا در بیت نبوده؟
+</div>
+
+## rodast_omiddana — post 71973
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71973_1779805291.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یعنی جمهوری اسلامی کشتن ۴ تا سربازشو نقض آتش بس ندونست و داره همچنان مذاکره میکنه؟
+هرکشور دیگه ای بود دستکم دوتا موشک میپروند محض حفظ ظاهر...
+پشمام
+</div>
+
+## rodast_omiddana — post 71972
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71972_1779805291.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 جمهوری اسلامی به قطر و پاکستان گفته تا پول واریز نشود مذاکره نخواهد کرد
+</div>
+
+## rodast_omiddana — post 71971
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71971_1779805292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😍
+😘
+😅
+😎
+🤓
+</div>
+
+## rodast_omiddana — post 71970
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71970_1779805292.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 از آسمان آفتاب مهتاب بهم وحی میکنند😅
+</div>
+
+## rodast_omiddana — post 71969
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71969_1779805292.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آیا ایمان نمی آورید؟
+الهم صلی الا دانا و آل دانا😂
+</div>
+
+## rodast_omiddana — post 71968
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71968_1779805293.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 پسر تهدار تنگسیری در بخشی از مصاحبه اش تایید میکند که سران رژیم در پناهگاه ها زندگی می کنند.
+راستی این چرا در مورد مرگ باباش همش نیشش بازه؟
+</div>
+
+## rodast_omiddana — post 71967
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71967_1779805294.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 مجتبی امروز در بیانیه خودش گفته اسرائیل 25 سال آینده را نمیبینه..
+پدر این یارو سال 2015 گفت اسرائیل 25 سال آینده را نمیبینه و حالا این یارو هم امروز برای 25 سال دیگه تمدیدش کرد...
+گوزوها روشن نیست خودتون 25 هفته آینده رو ببینید، چه اعتماد به نفسی دارید آخه...
+</div>
+
+## rodast_omiddana — post 71966
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71966_1779805294.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 بازار فرش تهران آتیش زدن یه عالم ماشین آتش نشانی اومده
+</div>
+
+## rodast_omiddana — post 71965
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 ترامپ هیچ پولی به رژیم نمیدهد، مذاکرات نقشه است
+لینک یوتیوب:
+https://www.youtube.com/watch?v=ZOgB3A5iAPA
+</div>
+
+## rodast_omiddana — post 71964
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71964_1779805294.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ارتش اسرائیل دستور تخلیه شهر نبطیه در جنوب لبنان را صادر کرده، نبطیه پس از صیدا دومین شهر بزرگ در جنوب لبنان است.
+اسرائیل تهش کل جنوب لبنان رو میگیره برای خودش، اینم از خروجی حزب الله برای ملت لبنان و خروجی سپاه پاسداران هم برای ایران میشه از دست رفتن همیشگی تنگه هرمز و جزایر سه گانه..
+</div>
+
+## rodast_omiddana — post 71963
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71963_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اشتباه زده بودم 25 دی، راستش من همیشه دی و می را اشتباه میگیرم 😏
+</div>
+
+## rodast_omiddana — post 71962
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71962_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 من گفته بودم تا دوشنبه 25 می آمریکا حمله میکند..
+واقعیت اینکه دیشب آمریکا فرودگاه بندرعباس را زد در کنارش اهدافی در اندیمشک، قم و اصفهان و حتا بابلسر نیز مورد هدف قرار گرفت ولی رژیم تصمیم گرفت ایگنور کند و جواب ندهد..
+بنابراین بازم تحلیل ما در مورد زمان جنگ در آخرین لحظات درست درآمد و فقط در پیش بینی خودمان بی تخمی بچه شیعه را محاسبه نکرده بودیم..
+</div>
+
+## rodast_omiddana — post 71961
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71961_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 دیشب پس برخی مخاطبان ما اشتباه نگفتم خبرگزاری 3پا نیز تایید کرده..
+دیشب در بابلسر، قم و اصفهان را دیشب مخاطبان زیادی بهم گفتن صدای انفجار شنیدن..
+</div>
+
+## rodast_omiddana — post 71960
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71960_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یکی از شرم آورترین تحلیل های اینروزها اینکه:
+"ترامپ دنبال راه حلی میگرده خودشو از منجلاب جنگ بکشه بیرون"
+این سخن را 24ساعته صداوسیما و چپها میگن ولی دردآور آنجاست که جدید بیشتر کارشناسان ایران اینترنشنال هم میگن..
+مگر میشه اینقدر سطحی و نازل ترامپ را آنالیز کرد؟
+</div>
+
+## rodast_omiddana — post 71959
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 فواد ایزدی: جنگ بزرگ در راهه با مذاکره خودتان را سرکار نزارید
+لینک یوتیوب:
+https://www.youtube.com/watch?v=bDU6vuNtnbw
+</div>
+
+## rodast_omiddana — post 71958
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71958_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 بماند به یادگار:
+بلایی که جمهوری اسلامی سر حسن و حسین و شیعه گری آورد، مرتضی نجفی و حامد فرد و حمید فرخ نژاد دارن سر «جاوید شاه» میارن...
+</div>
+
+## rodast_omiddana — post 71957
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71957_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨نگران نباشید...
+جنگ قطعیه..
+میدانید رو هوا حرف نمیزنم..
+</div>
+
+## KiriMohems — post 48007
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48007_1779805295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب مدیر سایت پورن هاپ:
+
+ویورِرررررررررره
+🤯
+
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48006
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+🔴 طبق آمار NetBlocks؛ در حال حاضر حدود 34 درصد از مردم ایران دوباره به اینترنت بین‌الملل متصل شدن.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48005
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به صورت حشری وار مردم دارن وصل میشن...
+
+کسایی هستند که طی این 88 روز وصل نشدن چون نمیتونستند هزینه های کیرخری بکنند برای vpn با 1000 برابر قیمت!
+</div>
+
+## KiriMohems — post 48004
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48004_1779805296.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس :
+تو روز 88ـم از قطعی اینترنت تو ایران و بعد 2093 ساعت، حالا اتصال اینترنت بین‌الملل تو این کشور یه چصه بازیابی شده - که مشخص نیست پایدار بمونه یا نه.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48003
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فارس: دیوان عدالت اداری شاشید تو دهن دولت و دستور توقف مصوبه بازگشایی اینترنت رو صادر کرد.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48002
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48002_1779805296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروشا وقتی از خواب پا میشن و تلگرامو باز میکنن که خبر هارو بخونن:
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48001
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیام جدید مجتبی خامنه‌ای که وجود اسرائیل رو بازهم تمدید کرده : اسرائیل ۲۵ سال دیگه رو نمی‌بینه. #Helsinki @KiriMohems
+</div>
+
+## KiriMohems — post 48000
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48000_1779805297.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پیام جدید مجتبی خامنه‌ای که وجود اسرائیل رو بازهم تمدید کرده :
+
+اسرائیل ۲۵ سال دیگه رو نمی‌بینه.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47999
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_47999_1779805298.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪︎با این وضعیت اینترنت، ربات تلگرام وینکوبت خیلی کاربردیه چون براحتی وارد سایت میشی.
+
+▪︎هم ثبت‌نامش سریع انجام میشه، هم کازینو رو داخل خود تلگرام میتونی بازی کنی و عملاً کل سایتو داخل ربات داری.
+▪︎پیش‌بینی، بازی، واریز، برداشت و همه‌چی همونجا انجام میشه و خیلی روون‌تره: 
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+</div>
+
+## KiriMohems — post 47998
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_47998_1779805299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ راجب ایران و اوباما کاکاسیاه در تروث سوشال
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 47997
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴معاون وزارت کصشعر قطع ارتباطات :
+دستور وزیر ارتباطات برای اتصال این اینترنت گوه صادر شد؛ اتصال جهانی ایران از همین روز با ماچ و لب بازی احیا میشه و تا ۲۴ ساعت آینده همه مردم وصل میشن
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252707
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252707_1779805299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مود کانفیگ فروشا الان :
+</div>
+
+## SportBaadNews — post 252706
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ تا قطع نشدید از رباتمون کانفیگ 2 گیگ اختصاصی خودتونو، کاملا رایگان بگیرید
+
+❤️فقط و فقط با دعوت 2 نفر 
+❤️
+
+
+👍 @Confingfreeirbot
+</div>
+
+## SportBaadNews — post 252705
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیر و خورشید هم بدون هیچ آی پی رو حالت auto رو مخابرات وصله 
+✅
+✅
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252704
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ولی کانفیگ فروش ها رو مسخره نکنید، چیزی معلوم نیست؛ شاید دوباره یه روز کارتون پیششون گیر کنه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252703
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252703_1779805300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252702
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252702_1779805300.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️ خوزه آلوارز (نبستا معتبر): مذاکرات شروع شد بارسلونا مذاکرات رسمی خود برای جذب خولیان آلوارز را آغاز کرد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252701
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروش ها بزودی:
+</div>
+
+## SportBaadNews — post 252700
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252700_1779805301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## SportBaadNews — post 252699
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک فریم از کانال کانفیگ فروش ها: @SportBaadNews
+</div>
+
+## SportBaadNews — post 252698
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@104.21.7.21:2096?encryption=none&security=tls&sni=sni.111000.indevs.in&insecure=1&allowInsecure=1&type=ws&host=sni.111000.indevs.in&path=%2F#Humanity%202
+
+رو مخابرات تست کنید
+</div>
+
+## SportBaadNews — post 252697
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت مخابرات وصله انگاری
+</div>
+
+## SportBaadNews — post 252696
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252696_1779805302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نت بلاکس: اینترنت ایرانیان در حال اتصال مجدده.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252695
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسم بعد 3 ماه اومد پیویم فحش داد و بلاک کرد
+</div>
+
+## SportBaadNews — post 252694
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسم بعد 3 ماه اومد پیویم فحش داد و بلاک کرد
+</div>
+
+## SportBaadNews — post 252693
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها دارن وصل میشن یه سری دوستان بعد از ۳ ماه بهم پیام دادن
+</div>
+
+## SportBaadNews — post 252692
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252692_1779805302.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فابریزیو رومانو: آنتونیو رودیگر قرارداد خودشو با رئال تا 2027 تمدید کرد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252691
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252691_1779805302.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک فریم از کانال کانفیگ فروش ها:
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252690
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلاد مثه ترامپ شده اون میگفت میزنم میلادم میگه میدم
+اون دوباره زد دیشب ولی میلاد هنوز نداده
+حقوقو میگم
+</div>
+
+## SportBaadNews — post 252689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه اینترنت خونگی دارین و واستون باز شده حتما آپدیت‌های گوشیتونو انجام بدین خیلیاش امنیتیه و مهمه
+</div>
+
+## SportBaadNews — post 252688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داش د آخه همونم نمیده؛ 4 روز پیش تو گپ ادمینا نوشته بود فردا حقوقتون رو میزنم؛ الان 72 ساعت از اون فرداش گذشته
+</div>
+
+## IranIntlTV — post 339107
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339107_1779805303.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر رسیده به ایران‌اینترنشنال نشان می‌دهد نیروهای حکومتی در ایست‌های بازرسی و تجمع‌های حکومتی استفاده ابزاری می‌کنند.
+جزییات بیشتر با سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339106
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339106_1779805304.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس اعلام کرد اینترنت جهانی در ایران پس از نزدیک به ۲۰۰۰ ساعت، بازگشت نسبی داشته است. این در حالی است که همزمان معاون وزیر ارتباطات از اتصال کامل کاربران تا ۲۴ ساعت آینده خبر داده است.
+گفت‌وگو با محسن مهیمنی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339105
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339105_1779805306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال با اشاره به حضور حامیان حکومت در خیابان‌های قشم می‌گوید که افرادی «چادر چاقچوری و عجیب» در خیابان‌ها جولان می‌دهند.
+</div>
+
+## IranIntlTV — post 339104
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339104_1779805307.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، در یادداشتی با انتقاد از نحوه اطلاع‌رسانی حاکمیت درباره روند مذاکرات با آمریکا، نوشت که اطلاع‌رسانی توهین‌آمیز مذاکرات به مردم ایران را تمام کنید.
+این خبرگزاری با انتقاد از سکوت وزارت خارجه و مجلس درباره سفر قالیباف و عراقچی به قطر، نوشت که وزارت امور خارجه به عنوان دستگاه اصلی سیاست خارجی و مجلس شورای اسلامی با توجه به ریاست رییس قوه مقننه بر تیم مذاکره‌کننده در این میدان اطلاع‌رسانی غایب‌اند، ساکت‌اند یا آنقدر دیر و مبهم عمل می‌کنند که عملا مرجعیت خود را واگذار کرده‌اند.
+مهر نوشت: اگر خبری هست باید درست، شفاف، به‌موقع و از طریق مراجع رسمی و متولی اعلام شود. اگر خبری نیست، باید گفت «خبری نیست». اگر مذاکرات حساس است، حساسیت آن اقتضای شفافیت بیشتر دارد نه پنهان‌کاری بیشتر. بساط «منبع آگاه» در موضوعی که با این اهمیت باید یک‌بار برای همیشه برچیده شود.
+https://iranintl.com/202605260942
+</div>
+
+## IranIntlTV — post 339103
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339103_1779805308.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو اعلام کرد گفت‌وگوها با جمهوری اسلامی در قطر ادامه دارد و نهایی‌کردن متن توافق ممکن است چند روز زمان ببرد. همزمان وال‌استریت ژورنال گزارش داد محمدباقر قالیباف برای دومین روز متوالی در دوحه مانده تا مذاکرات برای دستیابی به توافقی جهت پایان جنگ را ادامه دهد.
+جزییات بیشتر با مریم رحمتی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339102
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339102_1779805309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدرضا عارف، معاون اول پزشکیان، در شبکه ایکس نوشت پیرو دستور پزشکیان «گام نخست دسترسی آزاد و ضابطه‌مند به فضای مجازی برداشته شد.»
+او افزود: «با بازگشایی اینترنت، خدمات هوشمند هموار و مطالبات مردمی که این‌چنین پای کار نظام و ایران ایستادند محقق و موانع توسعه دانش‌بنیان و مرجعیت علمی برداشته می‌شود.»
+
+عارف در متن خود درباره «گام نخست» و وصل شدن اینترنت برای شهروندان توضیحی ارائه نداد.
+
+این در حالی است که پیش‌تر فارس، رسانه وابسته به سپاه نوشت دیوان عدالت اداری اعلام کرد که در پی طرح شکایاتی درباره ابطال «سند ایجاد ستاد ویژه ساماندهی و راهبری فضای مجازی کشور»، هیات تخصصی صنایع و بازرگانی این دیوان، با احراز ضرورت و فوریت موضوع، دستور توقف اجرای این مصوبه را تا زمان رسیدگی به شکایت صادر کرد.
+https://iranintl.com/202605262673
+</div>
+
+## IranIntlTV — post 339101
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339101_1779805310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از اعلام خبر صدور حکم اعدام برای چهار متهم پرونده اکباتان توسط دادگاه انقلاب تهران، موجی از واکنش‌ها در شبکه‌های اجتماعی شکل گرفته است. کاربران با اشاره به تناقض در احکام و تغییرات اخیر در روند رسیدگی، درباره شدت برخوردهای قضایی در این پرونده ابراز نگرانی کردند.
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، به واکنش کاربران می‌پردازد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339100
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339100_1779805311.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیام به ایران‌اینترنشنال می‌گوید: «چه با کمک، چه بی‌کمک آمریکا و اسرائیل، جمهوری آدمکش و ننگین اسلامی باید سرنگون شود. ما باید امید را در خودمان زنده نگه داریم، به خودمان باور داشته باشیم و منتظر فراخوان باشیم.»
+</div>
+
+## IranIntlTV — post 339099
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339099_1779805313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در حالی که آمار رسمی از تورم سه‌رقمی خوراکی‌ها و تشدید بحران معیشتی خبر می‌دهد، مسعود پزشکیان در نشست با مدیران صداوسیما با دفاع از سیاست دولت گفت در صورت عدم حذف ارز ترجیحی، کشور با کمبود و قحطی کالاهای اساسی روبه‌رو می‌شد.
+ارزیابی آرش آزرمی، دبیر بخش اقتصادی ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339098
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339098_1779805314.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمود نبویان، عضو کمیسیون امنیت ملی مجلس در شبکه ایکس نوشت: «توافقی که بازگشایی تنگه هرمز در ازای لغو محاصره بدون اعمال حاکمیت جمهوری اسلامی و اخذ عوارض، عدم تعیین غرامت، ابهام در لغو تحریم‌ها و… باشد، خلاف منافع ملی، عبور از شروط رهبری، بیانیه شعام و خسارت محض است.»
+
+او پیش‌تر نیز گفته بود: «با وجود سابقه بدعهدی آمریکا و به ویژه حضور اصحاب توافق ذلت‌بار برجام به‌همراه قالیباف در مذاکرات، هیچ امیدی به مذاکره و توافق مطلوب برای جمهوری اسلامی وجود ندارد.»
+https://iranintl.com/202605266092
+</div>
+
+## IranIntlTV — post 339097
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339097_1779805315.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عملیات تجارت دریایی بریتانیا اعلام کرد گزارشی از وقوع حادثه‌ای در فاصله ۶۰ مایل دریایی از مسقط عمان دریافت کرده است.
+
+به گفته این نهاد، یک نفتکش از وقوع انفجاری خارجی در سمت چپ عقب کشتی و نزدیک خط آب خبر داده.
+
+خدمه و کشتی سالم هستند، اما مقداری سوخت به دریا نشت کرده است.
+https://iranintl.com/202605266370
+</div>
+
+## IranIntlTV — post 339096
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339096_1779805315.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حساب اینستاگرام نسیم غلامی سیمیاری، زندانی سیاسی محبوس در زندان اوین و از بازداشت‌شدگان اعتراضات «زن، زندگی، آزادی»، اعلام کرد او به دلیل «هم‌کلام شدن» با لیندزی فورمن، شهروند بریتانیایی زندانی در اوین، به مدت یک هفته از حق تماس تلفنی محروم شده است.
+
+بر اساس این گزارش، مسئولان زندان پیش‌تر نیز به سیمیاری گفته بودند به دلیل «پوشیدن شلوارک» در داخل بند زنان اوین، در این هفته از حق ملاقات محروم خواهد بود.
+
+در این مطلب آمده است علاوه بر سیمیاری، گلرخ ایرایی، زهرا صفایی، مرضیه فارسی، شیوا اسماعیلی و سکینه پروانه، پنج زن زندانی سیاسی دیگر در بند زنان اوین نیز به دلیل شرکت در مراسمی در اعتراض به اعدام‌ها، از حق تماس تلفنی و ملاقات با خانواده‌هایشان محروم شده‌اند.
+https://iranintl.com/202605269690
+</div>
+
+## IranIntlTV — post 339095
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339095_1779805316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی‌اکبر صالحی، رییس پیشین سازمان انرژی اتمی جمهوری اسلامی گفت: «این یک واقعیت است که ما درون‌گرا و منزوی شدیم و تکلیف روابط بین‌الملل ما روشن نیست. خیلی از مشکلات ما ناشی از همین مسئله است، بنابراین باید از این هاله‌ای که برای خودمان ایجاد کردیم خارج بشویم و تکثرگرایی در داخل کشور را بسط دهیم.»
+
+او ادامه داد: «نظام جمهوری اسلامی بیشتر میل به درون‌گرایی و دوری از تکثرگرایی در داخل داشته که امیدوارم با این اتفاقاتی که افتاده و به خصوص تحولات این دو سه‌ساله اخیر و حوادثی که رخ داده، این تمایل اصلاح بشود و به سمت اصلاح روابط بین‌الملل و خروج از انزوا برویم.»
+https://iranintl.com/202605261607
+</div>
+
+## IranIntlTV — post 339094
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339094_1779805316.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت گفت که امروز باید شعار «بزن که خوب می‌زنی» در خیابان‌ها به شعار «بساز که خوب می‌سازی» تبدیل شود.
+
+او افزود: «دولت به‌تنهایی قادر به حل همه مشکلات نیست، اما با همراهی مردم، عبور از شرایط دشوار امکان‌پذیر خواهد بود.»
+iranintl.com/202605266381
+</div>
+
+## IranIntlTV — post 339093
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339093" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | سه‌شنبه ۵ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339092
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339092_1779805317.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیوان عدالت اداری ایران اجرای مصوبه ستاد ویژه ساماندهی و راهبری فضای مجازی برای اتصال به اینترنت جهانی را متوقف کرد. این تصمیم در پی ثبت شکایتی درباره ابطال سند تشکیل این ستاد و تا زمان رسیدگی نهایی به پرونده اتخاذ شد.
+گفت‌وگو با نیما اکبرپور، کارشناس فناوری
+@iranintltv
+</div>
+
+## IranIntlTV — post 339091
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339091_1779805319.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجید ابن‌الرضا، سرپرست وزارت دفاع، گفت که جمهوری اسلامی در جریان جنگ با آمریکا و اسرائیل، به فناوری‌ای دست یافته که امکان هدف قرار دادن ۲۱۰ «پرنده دشمن» را فراهم کرده است.
+
+او افزود: «شگفتانه‌های ما در حوزه تکنیک و تاکتیک در جنگ اخیر به مراتب ارتقا یافته‌تر از جنگ قبلی بود.»
+
+او ادامه داد: «تعداد پرنده‌هایی که در جنگ ۱۲ روزه هدف قرار دادیم کمتر از انگشتان دست بود، اما در جنگ اخیر این تعداد به ۲۱۰ پرنده رسید.»
+iranintl.com/202605260339
+</div>
+
+## IranIntlTV — post 339090
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339090_1779805320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سپهر موسوی‌، جوان ۱۸ ساله ساکن فولادشهر، شامگاه ۱۹ دی‌ماه ۱۴۰۴ در این شهر هدف تیراندازی ماموران جمهوری اسلامی قرار گرفت و سپس با شلیک تیر خلاص کشته شد.
+</div>
+
+## IranIntlTV — post 339089
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339089_1779805322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی یزدی‌خواه، نماینده مجلس، گفت دونالد ترامپ «ثبات رفتاری» ندارد و مواضع او متناقض، هیجانی و بدون پشتوانه عقلی است.
+
+او افزود رییس‌جمهوری آمریکا در ماه‌های اخیر بیشتر «آرزوهای خود» را از طریق شبکه‌های اجتماعی مطرح کرده است.
+
+یزدی‌خواه همچنین گفت استفاده صلح‌آمیز از فناوری هسته‌ای حق همه کشورهاست و این حق را نمی‌توان از جمهوری اسلامی سلب کرد.
+iranintl.com/202605260163
+</div>
+
+## IranIntlTV — post 339088
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339088_1779805322.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه جمهوری اسلامی در بیانیه‌ای اعلام کرد که ارتش آمریکا با حمله به کشتی‌های تجاری ایران در ۴۸ ساعت گذشته، آتش‌بس را نقض کرده است.
+
+در این بیانیه آمده این اقدام در حالی انجام شده که روند دیپلماتیک با میانجی‌گری پاکستان در جریان بوده و تهران آن را نشانه «بدعهدی» آمریکا می‌داند.
+
+وزارت خارجه جمهوری اسلامی این اقدام را محکوم کرد و مسئولیت پیامدهای آن را متوجه آمریکا دانست و نوشت: «جمهوری اسلامی در دفاع از منافع خود تردید نخواهد کرد.»
+https://iranintl.com/202605266175
+</div>
+
+## Persian_Trend_Official — post 15081
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15081_1779805323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آمریکا و ارمنستان توافق شراکت راهبردی امضا کردند
+
+▪️ آمریکا و ارمنستان در ایروان توافق شراکت راهبردی امضا کردند.
+
+▪️ مارکو روبیو و آرارات میرزویان توافق‌هایی درباره مواد معدنی راهبردی و کریدور ترانزیتی ۴۳ کیلومتری میان نخجوان و ترکیه امضا کردند.
+
+▪️ این توافق‌ها پیش از انتخابات پارلمانی ارمنستان و پس از تهدیدهای روسیه درباره افزایش قیمت گاز برای ایروان انجام شده است.
+
+▪️ کریدور مورد بحث می‌تواند بخشی از مسیر ارتباطی میان آذربایجان و ترکیه باشد و اهمیت ژئوپلیتیکی بالایی در قفقاز دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15080
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️بازگشت هیئت مذاکره کننده کشور از قطر
+
+🔹رئیس مجلس و رئیس هئئت مذاکره کننده کشور که دیروز در راس هیئتی برای رایزنی با مقامات قطری به این کشور سفر کرده بود ساعتی پیش به کشور بازگشتند.
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15079
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطفا از عبارت "اینترنت داره به حالت عادی برمیگرده" استفاده نکنید.
+
+ما هیچوقت اینترنت عادی نداشتیم.
+
+در بهترین حالت یه فیلترنت بوده با هزاران محدودیت و مشکل.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15078
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15078_1779805323.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️رخ‌دادن زلزله ۳ و یک دهم ریشتری در خراسان رضوی؛ ۱۶ کیلومتری مشهد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15077
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15077_1779805323.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 نت‌بلاکس تأیید کرد که اینترنت ایران به حدود ۳۴٪ اتصال بازگشته است.
+
+▪️این در روز ۸۸ پس از ۲۰۹۳ ساعت انزوای تقریباً کامل جهانی رخ داده و طولانی‌ترین قطعی سراسری اینترنت در تاریخ مدرن به شمار می‌رود.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15075
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15075_1779805324.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان UKMTO هشدار صادر کرده است . طبق این هشدار، یک انفجار خارجی روی یک نفتکش در فاصله ۶۰ مایل دریایی شرق مسقط (عمان) در ساعت ۰۹:۴۵ UTC روز ۲۶ مه ۲۰۲۶ رخ داده است.
+
+💢کاپیتان کشتی تأیید کرده که خدمه و خود کشتی در وضعیت امن هستند، هرچند مقداری سوخت کشتی پس از انفجار در قسمت عقب سمت چپ کشتی به دریا ریخته شده است.
+
+💢مقامات در حال تحقیق درباره این حادثه هستند. به همه شناورها در منطقه توصیه می‌شود با احتیاط عبور کنند و هرگونه فعالیت مشکوک را مستقیماً به UKMTO گزارش دهند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15074
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️گزارش هایی وجود دارد که
+
+🔴اینترنت بین الملل روی مخابرات باز شد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15073
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15073_1779805324.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراحل بازگشایی اینترنت، حسب دستور رئیس جمهور در حال انجام است /بازگشایی ثابت شروع شد
+
+🔹در پی دستور رییس جمهور به وزیر ارتباطات برای بازگشایی اینترنت بین الملل، پیگیری‌های سیتنا تا ساعت ۱۵ امروز سه شنبه (۵ خردادماه) حاکی از ادامه روند بازگشایی است و توقفی در اجرای حکم رئیس جمهور صورت نگرفته است، در همین حال بازگشایی اینترنت بین‌الملل در حوزه ثابت شده است. /سیتنا
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15072
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15072_1779805325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایسنا
+💢اتصال اینترنت بین الملل در حال پیگیری است
+
+طبق اعلام یک منبع مطلع به ایسنا:
+🔹با صدور دستور اتصال اینترنت از وزیر ارتباطات و فناوری اطلاعات پروسه اتصال در حال انجام است و طی 24 ساعت آینده این امکان برای همه فراهم خواهد شد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15071
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15071_1779805325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامیار ثقفی، رضا تقی پور، رسول جلیلی محمد حسن انتظاری. ▪️شاکیان اتصال اینترنت بین المللی لینک خبر لینک خبر 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15070
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15070_1779805325.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رضا تقی پور ♦️وی موتورهای جستجوی خارجی را ابزارهای جاسوسی بیگانگان می‌داند و به دلیل اومانیستی و لیبرالیستی بودن مبنای اینترنت فعلی معتقد است: ▪️این اینترنت برای جوامع، خطرناک است و نیاز به باز تعریف دارد… در نوامبر سال ۲۰۱۲ خبرگزاری‌ها از اضافه شدن نام…
+</div>
+
+## Persian_Trend_Official — post 15069
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15069_1779805326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر صنایع امنیت مخابرات – گروه صنایع مخابرات, سراسری (از ۱۳۶۹ تا ۱۳۷۵) مدیرعامل صنایع الکترونیک شیراز, استان فارس (از ۱۳۷۵ تا ۱۳۸۱) مدیر عامل صنایع مخابرات, سراسری (از ۱۳۸۱ تا ۱۳۸۶) معاون وزیر و رئیس سازمان فضایی کشور, سراسری (از ۱۳۸۶ تا مرداد ۱۳۸۸) وزیر…
+</div>
+
+## Persian_Trend_Official — post 15068
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15068_1779805326.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیر صنایع امنیت مخابرات – گروه صنایع مخابرات, سراسری (از ۱۳۶۹ تا ۱۳۷۵)
+مدیرعامل صنایع الکترونیک شیراز, استان فارس (از ۱۳۷۵ تا ۱۳۸۱)
+مدیر عامل صنایع مخابرات, سراسری (از ۱۳۸۱ تا ۱۳۸۶)
+معاون وزیر و رئیس سازمان فضایی کشور, سراسری (از ۱۳۸۶ تا مرداد ۱۳۸۸)
+وزیر ارتباطات و فناوری اطلاعات, سراسری (از مرداد ۱۳۸۸ تا آذر ۱۳۹۱)
+موارد نقض حقوق بشر: مشارکت در سرکوب اعتراضات از طریق سانسور، شنود و اختلال در سیستم های ارتباطی (از مرداد ۱۳۸۸ تا آذر ۱۳۹۱) بیشتر بخوانید
+عضو شورای عالی فضای مجازی, سراسری (از بهمن ۱۳۹۱‍ تاکنون)
+موارد نقض حقوق بشر: مشارکت در کنترل، سانسور، فیلترینگ و تعقیب کاربران فضای مجازی (از بهمن ۱۳۹۱‍ تاکنون) بیشتر بخوانید
+عضو شورای شهر تهران, استان تهران (از خرداد ۱۳۹۲ تا کنون)
+</div>
+
+## Persian_Trend_Official — post 15067
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15067_1779805327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامیار ثقفی، رضا تقی پور، رسول جلیلی محمد حسن انتظاری. ▪️شاکیان اتصال اینترنت بین المللی لینک خبر لینک خبر 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15066
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15066_1779805327.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کامیار ثقفی، رضا تقی پور، رسول جلیلی محمد حسن انتظاری. ▪️شاکیان اتصال اینترنت بین المللی لینک خبر لینک خبر 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15065
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15065_1779805328.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ این ۴ نفر، شاکی قضایی «اتصال اینترنت بین‌الملل» هستند / این افراد تحت راهبری یک مقام ابقا شده‌ دولت مرحوم رئیسی دست به شکایت زده‌اند ♦️خبرنگار «انتخاب» دقایقی پیش کسب اطلاع کرد که ۴ نفر شاکی حقیقیِ «توقف اتصال اینترنت بین‌الملل» هستند. این ۴ نفر که گرایش…
+</div>
+
+## Persian_Trend_Official — post 15064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ این ۴ نفر، شاکی قضایی «اتصال اینترنت بین‌الملل» هستند / این افراد تحت راهبری یک مقام ابقا شده‌ دولت مرحوم رئیسی دست به شکایت زده‌اند
+
+♦️خبرنگار «انتخاب» دقایقی پیش کسب اطلاع کرد که ۴ نفر شاکی حقیقیِ «توقف اتصال اینترنت بین‌الملل» هستند. این ۴ نفر که گرایش سیاسی آن‌ها کاملاً مشخص است و تحت راهبری یک مقام ابقا شده‌ی دولت رییسی، دست به شکایت زده‌اند، عبارتند از
+کامیار ثقفی،
+رضا تقی پور،
+رسول جلیلی
+محمد حسن انتظاری.
+
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15063
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️دیوان عدالت اداری دستور توقف مصوبهٔ ایجاد ستاد فضای مجازی را صادر کرد
+
+♦️دیوان عدالت اداری اعلام کرد: در پی طرح شکایاتی دربارهٔ ابطال «سند ایجاد ستاد ویژه ساماندهی و راهبری فضای مجازی کشور» هیئت تخصصی صنایع و بازرگانی دیوان عدالت اداری با احراز ضرورت و فوریت موضوع، دستور توقف اجرای این مصوبه را تا زمان رسیدگی به شکایت صادر کرد.
+
+♦️پیش‌تر پزشکیان، با ایجاد این ستاد و معرفی محمدرضا عارف به عنوان رییس آن، خواستار تعیین تکلیف وضعیت اینترنت شده بود و روز دوشنبه این ستاد مصوب کرد که اینترنت بین‌المللی در ایران، به شرایط پیش از دی‌ماه ۱۴۰۴ بازگردد.
+
+
+پ ن : بعد بگید مملکت قانون نداره ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15061
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15061_1779805328.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات شبانه در منطقه مشغره، در این فیلم دیده میشود که چندین حمله در عرض چند ثانیه علیه سایت‌های زیرساختی حزب‌الله که فعالیت تروریستی در آن‌ها شناسایی شده بود،انجام شده و در طول حمله تروریست‌ها از بین رفتند.
+
+
+👩‍💻@PhantomDirective
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15060
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15060_1779805330.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📰اورشلیم پست:«مذاکرات بین ایران و ایالات متحده کند شده است؛ میانجی‌ها به وال‌استریت ژورنال گفتند که بحث‌ها درباره برنامه هسته‌ای ایران و کاهش تحریم‌ها، روند مذاکرات را متوقف کرده است.»
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 11:37
 ---
 
