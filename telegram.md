@@ -7,6 +7,196 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 07:55
+---
+
+## ChizBergerz — post 46809
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46809_1779769529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام و خبرگزاری‌های آمریکایی حمله دیشب به ج.ا رو رسما تایید کردن و گردن گرفتن ولی صداوسیما میگه خبری نیست و هیچ حمله‌ای صورت نگرفته😂😂
+
++ این روزا حاضرن کونشون بزارن ولی نگن آتش‌بس نقض شده😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46808
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46808_1779769530.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ بدون واریز شرط ببند و بازی کن چون وینرو با ثبت نام و بدون نیاز به واریز ۵۰۰هزارتومان بهت میده 
+❌
+
+
+🎉 500 هزارتومن رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان a4
+
+📱 @winro_io
+</div>
+
+## rodast_omiddana — post 71951
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71951_1779769531.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سنتکام رسما حمله به بندرعباس را تایید کرده ولی جمهوری اسلامی داره ماله کشی میکنه 😏
+</div>
+
+## rodast_omiddana — post 71950
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71950_1779769534.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨خبرگزاری ان بی سی:
+آمریکا حملاتی به جنوب ایران انجام داد.
+</div>
+
+## IranIntlTV — post 339020
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339020_1779769534.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۵ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339019
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339019_1779769535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه جهانی بی‌تی‌اس در مراسم امسال جوایز موسیقی آمریکا در لاس‌وگاس، برنده جایزه هنرمند سال شد. این گروه برای کسب عنوان هنرمند سال با هنرمندان مطرحی چون بد بانی، برونو مارس، تیلور سوییفت، هری استایلز، لیدی گاگا، جاستین بیبر، کندریک لامار، مورگان والن و سابرینا کارپنتر رقابت کرد.
+این دومین بار است که بی‌تی‌اس این جایزه را دریافت می‌کند. آن‌ها نخستین بار در سال ۲۰۲۱ برنده این جایزه شدند و این اولین باری بود که هنرمندان آسیایی در این مراسم که بر اساس رای هواداران برگزار می‌شود، برنده می‌شد.
+اعضای گروه شامل آر‌ام، جین، شوگا، جی‌هوپ، جیمین، وی و جونگ کوک همگی برای دریافت جایزه در مراسم حضور داشتند. آن‌ها به‌تازگی دومین اجرای خود از چهار شب کنسرت پیاپی و کاملا فروخته‌شده در ورزشگاه الیجنت در لاس‌وگاس را به پایان رسانده بودند.
+این گروه از هواداران خود که با نام «آرمی» شناخته می‌شوند، قدردانی کرد. آر‌ام در سخنرانی خود به جمعیت تشویق‌کننده گفت: «افتخار بزرگی است که پس از پایان خدمت نظامی همه اعضا، بار دیگر این جایزه ارزشمند را دریافت می‌کنیم.»
+
+https://iranintl.com/202605266357
+</div>
+
+## IranIntlTV — post 339018
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339018_1779769536.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، در واکنش به حمله روز دوشنبه ایالات‌متحده به اهداف ایرانی گفت: «تنگه‌ها باید باز بمانند و به هر شکلی باز خواهند ماند.» او درباره مذاکرات حکومت ایران در قطر گفت چانه‌زنی بر سر متن اولیه توافق ادامه دارد و نهایی‌کردن زبان توافق ممکن است چند روز طول بکشد.
+https://iranintl.com/202605261875
+</div>
+
+## IranIntlTV — post 339017
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339017_1779769536.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه قطر گزارش‌ها درباره پیشنهاد دوحه برای آزادسازی ۱۲ میلیارد دلار دارایی‌های تهران در راستای دستیابی به توافق با آمریکا را تکذیب و این ادعاها را تلاشی برای تخریب دیپلماسی کنونی توصیف کرد.
+ماجد الانصاری، سخنگوی وزارت خارجه قطر، در ایکس نوشت: «گزارش‌هایی که می‌گویند قطر ۱۲ میلیارد دلار به ایران پیشنهاد داده تا توافقی را تضمین کند، درست نیست.»
+او گفت این ادعاها از سوی طرف‌هایی منتشر می‌شود که در پی تضعیف «تلاش‌های دیپلماتیک کنونی برای ثبات و کاهش تنش منطقه‌ای» هستند.
+الانصاری افزود نقش میانجی‌گری قطر در کنار شرکای منطقه‌ای «به‌خوبی تثبیت شده و به‌صورت عمومی مستند شده است» و این گزارش‌ها تلاشی برای آسیب زدن به اعتبار دوحه به‌عنوان «تسهیل‌کننده مورد اعتماد بین‌المللی صلح» است.
+
+https://iranintl.com/202605269986
+</div>
+
+## IranIntlTV — post 339016
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339016_1779769536.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در ویدیویی که در شبکه‌های اجتماعی منتشر شده، به وضعیت شغلی خود اشاره کرده و از اقدامات و تصمیمات حکومت انتقاد می‌کند. او می‌گوید: «جمهوری اسلامی دائم از توافق و آتش‌بس سخن می‌گوید، اما درباره تعطیلی کارخانه‌ها حرفی نمی‌زند.»
+
+گزارش‌های منتشر‌شده نشان می‌دهد فشار اقتصادی و ناامنی شغلی شهروندان تشدید شده است.
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15028
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15028_1779769537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر ☕️🤍
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15027
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15027_1779769537.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پست جدید دونالد ترامپ
+
+
+پ ن: آیا هنوز عقیده دارید ترامپ پولی به جمهوری اسلامی پرداخت خواهد داد؟
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15026
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15026_1779769538.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 مقام آمریکایی: حملات در ایران «دفاعی» بوده است
+
+▪️ یک مقام آمریکایی اعلام کرده حملات اخیر در ایران جنبه دفاعی داشته و به معنای پایان آتش‌بس نیست
+▪️ به گفته او، یک سایت سام (پدافند موشکی زمین به هوا) در بندرعباس هدف قرار گرفته است
+▪️ این مقام مدعی شده این اقدام پس از تهدید یا هدف قرار گرفتن جنگنده‌های آمریکایی انجام شده است
+
+▪️ تاکنون هیچ تأیید مستقلی از سوی ایران درباره این ادعاها منتشر نشده است
+▪️ وضعیت منطقه همچنان در سطح بالای تنش و ابهام قرار دارد
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15025
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15025_1779769538.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️روبیو به ارمنستان می رود
+
+▪️سفارت آمریکا در ایروان اعلام کرد که مارکو روبیو روز سه‌شنبه برای دیدارهایی با محوریت دیپلماسی و روابط دوجانبه به ارمنستان سفر خواهد کرد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 03:40
 ---
 
