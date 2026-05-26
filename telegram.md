@@ -7,6 +7,431 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 02:16
+---
+
+## ChizBergerz — post 46835
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کیر تو بله.
+کیر تو روبیکا.
+کیر تو ایتا.
+کیر تو تمام اپای لجن حکومتی.
+</div>
+
+## ChizBergerz — post 46834
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46834_1779835618.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خب مثل اینکه وصل کردن نت برای این بوده که ساخت بدل مجتبی تکمیل شده😂😂
+
+ولی نتونستن کارو خوب در بیارن چون دقیقا شبیهش نیست😂😂😂😂
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71998
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سخنان دقیق مهندس شاهین نژاد در مورد علی کریمی و حواشی اخیر..
+</div>
+
+## KiriMohems — post 48026
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48026_1779835619.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت اونایی که رفتند اینترنت کیرخری پرو خریدن
+
+@MohemMovies
+</div>
+
+## KiriMohems — post 48025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صفحه‌ی اینترنت پرو از وبسایت همراه اول حذف شد #professor @KiriMohems
+</div>
+
+## KiriMohems — post 48024
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48024_1779835620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امشب مدیر سایت پورن هاپ: ویورِرررررررررره
+🤯 #professor @KiriMohems
+</div>
+
+## KiriMohems — post 48023
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کص خارتون حرومیا
+
+
+کارشناس صداسیما : وصل شدن اینترنت متوقف میشه و دستور رییس جمهور اجرا نمیشه چون خلاف دیوان عالیه.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48022
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48022_1779835620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عاقبت مجازی کردن مدارس و مهد‌کودک‌ها :
+
+#professor
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252823
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252823_1779835621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرتتا اولین سرمربی تاریخ پرمیرلیگه که موفق شده برای باشگاهی که در اون بازی کرده قهرمانی به ارمغان بیاره 
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252822
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252822_1779835621.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🕹 گردونه شانس رایگان وینکوبت فعال شد!
+
+
+🎰 هر ۱۲ ساعت یک‌بار شانس خودتان را امتحان کنید و جوایز نقدی متنوع دریافت کنید.
+
+
+🎁 تا سقف ۱ میلیون تومان جایزه روزانه
+
+✅ فعال برای تمامی کاربران
+
+
+📌برای شرکت در گردونه شانس، وارد سایت وینکوبت شوید:
+👇
+
+
+🟣 ywincob.com
+
+🟣 ywincob.com
+
+📌کانال رسمی وینکوبت:
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 252821
+
+<div align="center">
+  <a href="https://t.me/SportBaadNews/252821" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ نپستر 
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه کمپین بزاریم برای حذف آپ های داخلی؟
+</div>
+
+## SportBaadNews — post 252819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من خودم رئالیم ولی درود به شرفت مرد بازیکنایی که دو فصله نتونستن جام ببرن و یه تنه ریدن به کل نسل و اعتبار باشگاه بزرگی مثل رئال هیچ جایی تو جام جهانی ندارن. کاش بقیه سرمربی هام مثل تو بودن این نسل بی غیرت هیچ جایی تو هیچ تورنومنت مهمی نداره. @SportBadTweet…
+</div>
+
+## SportBaadNews — post 252818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️روبن اوریا (معتبرترین خبرنگار باشگاه اتلتیکومادرید): خولیان آلوارز هفته پیش اطلاع داده که قصد خروج از باشگاه رو داره و فقط میخواد به بارسا بپیونده در غیر این صورت اون در اتلتیکو میمونه بارسا هم مذاکرات رو رسما شروع کرده و برای اولین پیشنهاد گزینه فران تورس + 70 میلیون یورو رو پیشنهاد داده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی دیوار برلین فرو ریخت همه آلمان ها خوشحال بودند؛ ناگهان یک زن سالمند در میان جمعیت گفت: ما تنها مردمی هستیم که برای بازگشت به 40 سال قبل خود خوشحال هستیم... @SportBaadNews
+</div>
+
+## SportBaadNews — post 252816
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی دیوار برلین فرو ریخت همه آلمان ها خوشحال بودند؛ ناگهان یک زن سالمند در میان جمعیت گفت: ما تنها مردمی هستیم که برای بازگشت به 40 سال قبل خود خوشحال هستیم...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252815
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کارشناس صداسیما:
+وصل شدن اینترنت متوقف میشه و دستور رییس جمهور اجرا نمیشه چون خلاف دیوان عالیه
+
+😂😂😂😂😂😂😂
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252813
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252813_1779835622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اپ am tunnel رو قطعا یادتونه اوایل جنگ خیلی استفاده میشد؛ تو دایرکت ممبرا میگن رو FastDNS که بذارید جوابه و وصل میشه با سرعت بالا 
+✅
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252811
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252811_1779835623.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 گروه بندی کامل جام جهانی 2026:
+
+گروه A: مکزیک - کره جنوبی - آفریقای جنوبی - جمهوری چک
+
+گروه B: کانادا - سوئیس - قطر - بوسنی
+
+گروه C: برزیل - مراکش - اسکاتلند - هائیتی
+
+گروه D: آمریکا - استرالیا - پاراگوئه - ترکیه
+
+گروه E: آلمان - اکوادور - ساحل عاج - کوراسائو
+
+گروه F: هلند - ژاپن - تونس - سوئد
+
+گروه G: بلژیک - ایران - مصر - نیوزلند
+
+گروه H: اسپانیا - اروگوئه - عربستان - کیپ ورد
+
+گروه I : فرانسه - سنگال - نروژ - عراق
+
+گروه J: آرژانتین - اتریش - الجزایر - اردن
+
+گروه K: پرتغال - کلمبیا - ازبکستان - کنگو
+
+گروه L: انگلیس - کرواسی - پاناما - غنا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252809
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252809_1779835623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+8 سال پیش تو چنین ساعت هایی بود که رونالدو به مارسلو گفته بود میخوام از رئال جدا شم
+
+👑
+🔙| مارسلو: وقتی کریس بهم گفت میخواد از پیشمون بره باورم نمیشد، تمام اون شب رو تا صبح بیدار بودم و داشتم گریه میکردم...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252806
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+واکنش علیرضا دبیر یه اتمام کار شبکه منوتو 
+⚽️ @Shortasport
+</div>
+
+## SportBaadNews — post 252805
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252805_1779835624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔙| تو چنین روزی سال 2009 بارسلونا با برد 2-0 مقابل منچستریونایتد تو فینال برای سومین بار تو تاریخ خودش قهرمان چمپیونزلیگ شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252804
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252804_1779835624.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 میکل آرتتا به عنوان بهترین مربی فصل 2025/26 پریمیرلیگ انتخاب شد
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 339171
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339171" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی «برنامه با کامبیز حسینی»؛ بازگشت اینترنت ایران بعد از ۸۸ روز
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339170
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339170_1779835625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارش‌های اختصاصی رسیده به ایران‌اینترنشنال نشان می‌دهد محمدباقر قالیباف، رییس هیئت مذاکره‌کننده جمهوری اسلامی، در هفته‌های اخیر به دنبال کنار گذاشتن سعید جلیلی از روند تصمیم‌گیری‌های مرتبط با مذاکرات بوده است.
+
+گفت‌وگو با کامیار بهرنگ، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339169
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال گفت: «بخش دیگری از صدای این روزهای مردم ایران، نارضایتی از رویکرد ترامپ در مقابل جمهوری اسلامی است. مردمی که انتظار داشتند او به وعده کمک در راه است عمل کند.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339168
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339168_1779835627.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شورای امنیت سازمان ملل روز سه‌شنبه در بیانیه‌ای حمله به نیروگاه هسته‌ای براکه در امارات متحده عربی را محکوم کرد و این حمله را نقض قوانین بین‌المللی دانست. این شورا مسئولیت این حمله را به هیچ طرفی نسبت نداد.
+امارات متحده عربی هفته گذشته اعلام کرد شش پهپاد از عراق به سوی این کشور پرتاب شده‌اند که یکی از آنها باعث آتش‌سوزی در نیروگاه هسته‌ای این کشور شده است.
+عراق میزبان گروه‌های شبه‌نظامی قدرتمند مورد حمایت جمهوری اسلامی است که در جریان جنگ اخیر علیه جمهوری اسلامی، مسئولیت حمله به «پایگاه‌های دشمن» در عراق و منطقه را بر عهده گرفته‌اند.
+
+https://iranintl.com/202605262953
+</div>
+
+## IranIntlTV — post 339167
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339167" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: بازگشت صدای ملت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339166
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339166_1779835628.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال، گفت: «مجتبی خامنه‌ای با تکرار رجزخوانی پدرش درباره نابودی اسرائیل، گفت اسرائیل ۱۵ سال دیگر نابود خواهد شد. رجزی که با واکنش و طعنه مقام‌های اسرائیلی روبه‌رو شده است.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339165
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339165_1779835629.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندسی گراهام، سناتور جمهوری‌خواه، با اشاره به اینکه هواپیماهای نظامی جمهوری اسلامی در پایگاه‌های هوایی پاکستان نگهداری می‌شوند، در ایکس نوشت نقش پاکستان به عنوان میانجی «بسیار مسئله‌ساز» است و خصومت این کشور با اسرائیل سابقه‌ای طولانی دارد.
+لیندسی گراهام در ادامه از پاکستان خواست به درخواست دونالد ترامپ برای پیوستن به توافق‌های ابراهیم پاسخ مثبت دهد.
+
+https://iranintl.com/202605260832
+</div>
+
+## IranIntlTV — post 339164
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339164_1779835630.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ در تروث‌سوشال نوشت با توجه به احتمال نامساعد شدن شرایط جوی در روز آینده، جلسه چهارشنبه کابینه را در کاخ سفید برگزار خواهد کرد و سفر کابینه به کمپ دیوید را به تعویق خواهد انداخت.
+پیش‌تر گزارش شده بود که ترامپ صبح چهارشنبه در کمپ دیوید نشست کابینه را برگزار می‌کند. نیویورک‌پست نوشت در این نشست همه اعضای کابینه حضور خواهند داشت و جنگ ایران محور اصلی گفت‌وگوهاست. کاخ سفید اعلام کرد تولسی گبرد نیز در این نشست شرکت می‌کند.
+
+https://iranintl.com/202605260928
+</div>
+
+## IranIntlTV — post 339163
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339163_1779835630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال گفت: «اتصال دوباره دسترسی مردم به اینترنت بعد از سه ماه هر چند با فلیترینگ و با محدودیت اما بار دیگر به ملت امکان داد تا صدای مخالفت خود با جمهوری اسلامی و پایبندی به خیزش دی‌ماه و هدف سرنگونی را تکرار کنند.»
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15091
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15091_1779835631.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📣 لطفا تا جایی که میتونین اپ های گوشی و کامپیوتر یا لپ‌تاپ، اپ های خود سیستم و سیستم عامل رو آپدیت کنید.
+
+❗️ اپ های قدیمی ریسک امنیتی بیشتری دارن.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15090
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ترامپ اعلام کرد: جلسه کابینه به دلیل شرایط آب و هوایی فردا در کاخ سفید برگزار خواهد شد، نه در کمپ دیوید/انتخاب
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15089
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/TrPiEz5YpyQ?feature=share
+</div>
+
+## Persian_Trend_Official — post 15088
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/15088" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 10.33 مگابایت
+
+اتاق جنگ سه شنبه 5 خرداد | درگیری مرگبار در خلیج فارس اینترنت فعلا آزاد شد.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 00:52
 ---
 
