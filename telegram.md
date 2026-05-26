@@ -7,6 +7,386 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 00:52
+---
+
+## ChizBergerz — post 46833
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46833_1779830527.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جهت یادآوری: 😂😂
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 71997
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71997_1779830528.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*جلسه کم‌سابقه کمپ دیوید برای حمله مجدد به جمهوری اسلامی
+*دیشب چرا رژیم جواب حمله آمریکا را نداد؟
+لینک یوتیوب:
+youtube.com/watch?v=xG925YUez5w&pp=0gcJCQoLAYcqIYzv
+</div>
+
+## KiriMohems — post 48021
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این سرعت تخمی نت مثلا وصل شده نسبت به زمان قطعی بیشتر بوده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252803
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252803_1779830529.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وقتی بعد 22 سال آرسنال قهرمان لیگ میشه، ولی هم‌زمان وصل شدن نت و نزدیک شدن جام جهانی باعث فراموشی این موضوع در انظار عمومی میشه:
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252802
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252802_1779830532.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+1 دقیقه با مورینیو و حاشیه هاش 
+😂
+😂
+
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252801
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252801_1779830535.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ وی‌پی‌ان بدنیوز؛ قیمت‌ها شکسته شد
+🔝 کاهش قیمت بخاطر استقبال زیاد
+
+✅ بدون هیچگونه ضریب
+✅ همراه ساب برای مدیریت حجم
+✅ مناسب تمامی پلتفرم‌ها
+✅ پشتیبانی سریع و بدون مشکل
+✅ بالاترین سرعت ممکن
+
+💰 گیگی 85، بیشترین کیفیت
+
+🤖 خرید از طریق بات رسمی 👇
+</div>
+
+## SportBaadNews — post 252799
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252799_1779830536.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⏳ فقط و فقط 15 روز تا شروع جام جهانی...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252798
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252798_1779830539.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مایک مانیان رفت جایی که غم نباشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252797
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252797_1779830542.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ فوری و رسمی: انتخابات رئال مادرید در روز 7 ژوئن (12 روز دیگه) برگزار خواهد شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252796
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252796_1779830543.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️| ساموئل اتوئو در مورد ژوزه مورینیو قبل از نیمه‌ نهایی لیگ قهرمانان جلوی بارسلونا: چیزی که بیشتر از همه غافلگیرم کرد این بود که مورینیو تو جلسه آخر تمرینی اصلاً در مورد تاکتیک حرف نزد. همه منتظر بودن بحث در مورد مسی، ژاوی و اینیستا باشه. اما اون در مورد شجاعت حرف زد.
+
+
+🔴 بهمون گفت فردا میلیون‌ها آدم منتظرن بارسلونا ببره. این فشار رو اونائه، نه رو ما. دنیا از قبل داستان رو نوشته. کار ما اینه که پایانش رو عوض کنیم. جو اتاق یهو عوض شد. دیگه حس نمیکردیم تیمی هستیم که جلوی بارسلونا فقط میخواد جون سالم به در ببره، بلکه حس میکردیم تیمی هستیم که یه فرصت داره تا تاریخسازی کنه.
+
+
+🔴 مورینیو چیزی رو میفهمید که خیلی از مربی‌ها نمیفهمن؛ قبل از اینکه یه بازیکن بتونه یه حریف بزرگ رو ببره، اول باید این فکر رو که اون حریف شکست‌ ناپذیره رو از سرش بیرون کنه. تا زمان سوت شروع بازی، اون جنگ از قبل برده شده بود.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252795
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ فوری و رسمی: انتخابات رئال مادرید در روز 7 ژوئن (12 روز دیگه) برگزار خواهد شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252794
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252794_1779830543.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ فوری و رسمی: انتخابات رئال مادرید در روز 7 ژوئن (12 روز دیگه) برگزار خواهد شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252793
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252793_1779830544.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️الگری بعد از فصل فاجعه بار در میلان از این تیم اخراج شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252792
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔺فابریزیو رومانو: موضع چلسی واضح است، ژائو پدرو فروشی نیست.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252791
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252791_1779830545.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووری مارکا: خولیان آلوارز فقط بارسا رو میخواد نه آرسنال نه پاریس فقط بارسا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252790
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252790_1779830545.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرام همسر باغیرت ترین مرد تاریخ جناب سپهر حیدری هم اینطوری بعد وصل شدن نت فعالیت رو استارت زد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252789
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252789_1779830546.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آرام همسر باغیرت ترین مرد تاریخ جناب سپهر حیدری هم اینطوری بعد وصل شدن نت فعالیت رو استارت زد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252788
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252788_1779830547.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇩🇪
+⚽️| شات های جدید و سکسی تونی کروس با نسخه "remake" شده کیت 2014 آلمان
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252787
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252787_1779830548.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووری از فابریزیو رومانوووو: بارسلوناااا به دنبال جذب آنتونی گوردون
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252786
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252786_1779830548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️|حالا که دیگه گیگی خدا تومن برا وپن پول نمیدید دم جام جهانی خسیس بازی در نیارید این کلیپو دانلود کنید خیلی شاهکاره 
+🔥
+🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252785
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جاکشا بیاید برخط بشید
+</div>
+
+## SportBaadNews — post 252784
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252784_1779830552.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆
+🟡 خبرنگار: جام جهانی داره از راه میرسه، آماده‌ای؟
+
+
+🇦🇷 مسی: 100%، من کل سال خودم رو آماده کردم تا با بهترین آمادگی ممکن به بزرگترین رقابت دنیا برسم. هر چی در توانم باشه رو میذارم وسط.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252783
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این رسمش نبود انقد زود تنهام بزارید
+</div>
+
+## IranIntlTV — post 339162
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339162_1779830554.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی خراتیان، کارشناس وابسته به حکومت، با اشاره به قصد احتمالی دونالد ترامپ بعد از انتخابات میان‌دوره‌ای ایالات متحده گفت اگر آمریکا پس از نوامبر ایران را تهدید کند و نشانه‌هایی از آمادگی نظامی دیده شود، جمهوری اسلامی باید از پیمان منع گسترش سلاح هسته‌ای خارج شود و ساخت سلاح اتمی را آغاز کند.
+</div>
+
+## IranIntlTV — post 339161
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339161_1779830556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر رسانه‌ای شاهزاده رضا پهلوی با انتشار بیانیه‌ای در واکنش به صدور حکم اعدام برای چهار شهروند ایرانی، نوشت: «صدور دوباره احکام اعدام برای چهار تن از بچه‌های اکباتان، میلاد آرمون، محمدمهدی حسینی، مهدی ایمانی و نوید نجاران، سند دیگری از ماهیت جنایتکار رژیم جمهوری اسلامی است که برای حفظ قدرت، جوانان ایران را به قتل می‌رساند و از خون مردم برای بقای خود تغذیه می‌کند.»
+
+در این بیانیه آمده است: «رژیم ضحاکی جمهوری اسلامی، دادگاه را به ابزار سرکوب تبدیل کرده و اعدام، سلاحی برای ایجاد وحشت در جامعه است.»
+
+دفتر رسانه‌ای شاهزاده رضا پهلوی نوشت: «سکوت جهان در برابر اعدام معترضان ایرانی، یک شکست اخلاقی و سیاسی است. هر روزی که جامعه جهانی در برابر این رژیم مماشات می‌کند، جمهوری اسلامی با جسارت و قساوت بیشتری جان جوانان ایرانی را می‌گیرد و سرکوب را گسترش می‌دهد.»
+https://iranintl.com/202605265248
+</div>
+
+## IranIntlTV — post 339160
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339160_1779830556.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات اعلام کرد اینترنت بین‌الملل برای مشترکان این شرکت برقرار شده و نت‌بلاکس در شبکه ایکس نوشت میزان دسترسی به اینترنت بین‌المللی در ایران به ۸۶ درصد رسیده است. این در حالی است که ساعاتی پیش دیوان عدالت اداری، زیر نظر قوه قضاییه جمهوری اسلامی، اعلام کرد اجرای مصوبه اتصال اینترنت را متوقف کرده است.
+
+
+گفت‌وگو با سحر تحویلی، پژوهشگر حوزه فناوری اطلاعات و نجات بهرامی، تحلیلگر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339159
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339159_1779830560.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم، وابسته به سپاه، گفت مذاکره‌کنندگان جمهوری اسلامی در چارچوب تفاهم احتمالی با آمریکا، دنبال آزادسازی ۲۴ میلیارد دلار از دارایی‌های بلوکه‌شده ایران هستند؛ پولی که به گفته منبع نزدیک به تیم مذاکره‌کننده، باید در جریان مذاکرات آزاد شود.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339158
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339158_1779830562.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افیخای ادرعی، سخنگوی ارتش اسرائیل، در شبکه ایکس از ساکنان هفت شهر و روستا در جنوب لبنان خواست برای حفظ جان خود این مناطق را ترک کنند.
+
+سخنگوی عرب‌زبان ارتش اسرائیل با هشدار به ساکنان شهرها و روستاهای طورا، دیر قانون النهر، بدیاس، برج رحال، معرکه، العباسیه و طیر دبا، نوشت: «در پی نقض توافق آتش‌بس از سوی حزب‌الله، ارتش اسرائیل ناچار است با قدرت علیه آن اقدام کند. ارتش قصد آسیب رساندن به شما را ندارد.»
+
+افیخای ادرعی تاکید کرد: «هر فردی که در نزدیکی نیروها، تاسیسات یا تجهیزات نظامی حزب‌الله حضور داشته باشد، جان خود را به خطر می‌اندازد.»
+https://iranintl.com/202605261988
+</div>
+
+## IranIntlTV — post 339157
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339157_1779830563.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات از برقراری کامل اینترنت بین‌الملل برای مشترکان خبر داد. معاون وزیر ارتباطات گفت روند وصل شدن اینترنت در حال انجام است و تا ۲۴ ساعت آینده کامل می‌شود، اما دیوان عدالت اداری اجرای مصوبه اتصال را متوقف کرده است.
+
+گفت‌وگو با سحر تحویلی، پژوهشگر در حوزه فناوری اطلاعات
+@iranintltv
+</div>
+
+## IranIntlTV — post 339156
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339156_1779830565.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث سوشال نوشت اگر جمهوری اسلامی تسلیم شود، نابودی نیروی دریایی و هوایی خود را بپذیرد، نیروهایش را از تهران خارج کند و مقام‌هایش اسناد تسلیم را امضا کنند، «رسانه‌های جعلی» مانند نیویورک‌تایمز، وال‌استریت ژورنال و سی‌ان‌ان باز هم این را پیروزی ایران مقابل آمریکا توصیف خواهند کرد.
+https://iranintl.com/202605263111
+</div>
+
+## IranIntlTV — post 339155
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339155" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: نشست کم‌سابقه دولت آمریکا در کمپ‌ دیوید برای بررسی جنگ ایران
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 15087
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15087_1779830567.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️پهپاد لوکاس امریکایی سالم در دست عراقی ها
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15086
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15086_1779830569.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ محمد عوده فرمانده گردان قسام حماس توسط ارتش اسرائیل ترور شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 23:09
 ---
 
