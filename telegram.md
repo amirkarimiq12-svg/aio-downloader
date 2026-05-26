@@ -7,6 +7,231 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 03:21
+---
+
+## rodast_omiddana — post 71999
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71999_1779839462.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تعداد پیامها از ایران غیرقابل وصف هست، جرات نمیکنم پیامهای اینستاگرام را بخونم، پیامهای یوتیوب و جاهای دیگر هم نمیتونم، ولی پیامهای تلگرام را اگر فردا وقت بزارم شاید دو سه روزه بتونم فقط بخونم بدون جواب دادن..
+خواهش میکنم ازم ناراحت نشید که نمیتونم جواب بدم خیلی خیلی پیامها زیاده ولی همه رو در تلگرام با شوق میخونم❤️
+</div>
+
+## KiriMohems — post 48033
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نورالدین الدغیر، خبرنگار الجزیره تو تهران:
+
+به مو های بلوند زیدان قسم میخورم لواط کامل بین ایران و آمریکا انجام شده و فقط مونده امضای دوطرف که رسما انجام بشه
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سوئد ازدواج فامیلی رو ممنوع اعلام کرد؛ طبق این قانون، از اول ژوئیه 2026 دیگه ازدواج بین بچه‌های "عمو، دایی، عمه و خاله" تو سوئد ممنوعه .
+
+دلیلشم جلوگیری از خشونت‌های ناموسی، فشار خانوادگی و ازدواج‌های اجباری و خلاص شدن از بچه های کیریه فامیل اعلام شده.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48031
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48031_1779839463.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اولین تصویر از مجتبی خامنه ای در صداسیما
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48030
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درحالی که نصفه نیمه نت وصل شده سرویس های کانفیگ یو خیلی قوی با پینگ زیر 100 متصله، قیمتارو اوردن پایین هر 1 گیگ فقط 65T رباتش
+👇 @ConfigYouBot
+</div>
+
+## KiriMohems — post 48029
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴درحالی که نصفه نیمه نت وصل شده سرویس های کانفیگ یو خیلی قوی با پینگ زیر 100 متصله، قیمتارو اوردن پایین هر 1 گیگ فقط 65T رباتش
+👇
+@ConfigYouBot
+</div>
+
+## KiriMohems — post 48027
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48027_1779839463.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل دید نتا وصل شده گفت بزار روشن کنم لبنان رو ببینن همه
+
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252826
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252826_1779839464.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻منابع باشگاه میلان: لوکا مودریچ قصد داره بعد از جام جهانی از فوتبال خداحافظی کنه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252825
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252825_1779839465.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ ال ناسیونال: لئو مسی به خولیان آلوارز پیشنهاد داده در صورت جدایی از اتلتیکو، بارسلونا را به عنوان مقصد بعدی‌اش انتخاب کند. مسی معتقد است سبک بازی آلوارز کاملاً با پروژه جدید بارسا هماهنگ است. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252824
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جام جهانی فوتبال Sport Bad News pinned «
+🔸 مجموعه #اسپورت_بد_نیوز، بزرگترین و کامل ترین مجموعه فوتبالی - ورزشی تلگرام: با مجموعه ما هیچ خبر فوتبالی و ورزشیو از دست نمیدید... 
+⚡ چنل اصلی و پوشش خبری: @SportBaadNews 
+🐦 توییت های مردمی: @SportBadTweet 
+🎾 اخبار کوتاه ورزشی: @Shortspor 
+📲 پوشش گل های…»
+</div>
+
+## IranIntlTV — post 339177
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339177_1779839465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید تایید کرد دونالد ترامپ، رییس‌جمهوری آمریکا، قرار است چهارشنبه نشستی ویژه با کابینه خود برگزار کند. این خبر را یک مقام کاخ سفید به خبرگزاری فرانسه اعلام کرد.
+
+نیلوفر منصوری، خبرنگار ایران‌اینترنشنال، درباره آخرین تحولات از مذاکرات آمریکا و جمهوری اسلامی می‌گوید
+@iranintltv
+</div>
+
+## IranIntlTV — post 339176
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339176_1779839467.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل با انتشار ویدیویی در تلگرام، از کشف و انهدام حدود ۱۱ کیلومتر تونل حماس در منطقه بیت‌حانون، در شرق «خط زرد» در شمال نوار غزه، خبر داد.
+در اطلاعیه ارتش اسرائیل آمده است این منطقه سال‌ها به‌عنوان یکی از پایگاه‌های اصلی تروریستی حماس عمل می‌کرد و یکی از اصلی‌ترین و پیچیده‌ترین مناطق نبرد بود که نیروهای اسرائیل در طول جنگ در آن عملیات انجام دادند.
+</div>
+
+## IranIntlTV — post 339175
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339175_1779839468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شادی از مشهد: مردم بدانند ما وسط تاریخیم و انقلاب فست‌فود نیست که بزنیم برود؛ زمان می‌برد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339174
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339174_1779839470.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رضا از شیراز: بدون سازمان‌دهی و با کت‌وشلوار نمی‌شود انقلاب کرد
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339173
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339173_1779839471.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام از تهران: هزینهٔ درمان آن‌قدر بالا رفته که بعضی به عمل اورژانسی نمی‌رسند و می‌میرند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## IranIntlTV — post 339172
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339172_1779839473.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام از تهران: هزینهٔ درمان آن‌قدر بالا رفته که بعضی به عمل اورژانسی نمی‌رسند و می‌میرند
+
+«یک ایران صدای شما را می‌شنود»
+
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+
+https://youtu.be/FIC8NUzo9XI
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15092
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15092_1779839474.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبتون بخیر ❤️
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 02:16
 ---
 
