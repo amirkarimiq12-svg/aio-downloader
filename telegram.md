@@ -7,6 +7,913 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 21:14
+---
+
+## ChizBergerz — post 46829
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46829_1779817446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خطاب دوستانی که تازه وصل شدن این چالش تازه اومده، ببینید از دنیا عقب نمونید:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46828
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46828_1779817449.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت وصل شد ولی عادی سازی نکنید!💔🖤
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آره فشار بخورید...😂😂
+
+نیروهای مذهبی بشدت بابت اینکه دیشب آمریکا حمله کرده و رژیم از ترس جنگ دوباره جواب نداده بدجوری شاکی شدن😂
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46825
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رایگان بدون واریز شرط های فوتبالی ببند از همون اول موجودی 500 هزارتومانه
+❌ 
+🎉 500 هزارتومن رایگان فقط با ثبت نام بدون هیچگونه واریزی! 
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن 
+⌛ پشتیبانی 24 ساعته 
+🌐 Winro.io…
+</div>
+
+## ChizBergerz — post 46824
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46824_1779817450.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رایگان بدون واریز شرط های فوتبالی ببند از همون اول موجودی 500 هزارتومانه
+❌
+
+
+🎉 500 هزارتومن رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g5
+
+📱 @winro_io
+</div>
+
+## ChizBergerz — post 46823
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid v.2026.05.24 [Tel; @ChizBergerz].apk
+</div>
+
+## ChizBergerz — post 46822
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46822_1779817451.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه سمی بود فرستادین داریکت کانال😐😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46821
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46821_1779817452.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو رو بودن، حرامزادگی شما و جنایاتی که کردید با میلیاردها پول و خدمت به این مردم پاک نخواهد شد. با برگردوندن چیزهایی که حق ما بوده انتظار بخشیدن از طرف ما نداشته باشید.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46820
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46820_1779817454.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا دیگه چه جونورایی هستن؟ اصلا جنسیتشون مشخص نیست، از اونجایی که آخوندا پسر بازن مشخصه هرشب زیر آخوندا میخوابن. @ChizBergerz
+</div>
+
+## ChizBergerz — post 46819
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46819_1779817455.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینا دیگه چه جونورایی هستن؟ اصلا جنسیتشون مشخص نیست، از اونجایی که آخوندا پسر بازن مشخصه هرشب زیر آخوندا میخوابن.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46818
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46818_1779817456.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ShirOKhorshid v.2026.05.24 [Tel; @ChizBergerz].apk
+</div>
+
+## ChizBergerz — post 46817
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46817_1779817457.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانفیگ فروشا وقتی می‌نويسن خوشحالیم که همتون وصل شدین:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46816
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46816_1779817457.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وضعیت بله، روبیکا و تمام اپ‌هایی که قراره خلوت شن:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46815
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46815_1779817458.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسل اینا کِی قراره منقرض شه؟😐😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46814
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46814_1779817459.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اگر همین الان توی سایت #وینرو عضو بشی 
+🤩
+🤩
+🤩 هزار تومان شارژ رایگان میگیری
+❕ 
+✅ من خودم عضو شدم بدون واریز ۵۰۰ تومان گرفتم باهاش فوتبال پیش بینی کردم پولم شد ۲ میلیون 
+❕ 
+💚خیلی راحت هم برداشت کردم کل پولم رو 
+💵 
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر،…
+</div>
+
+## ChizBergerz — post 46813
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46813_1779817460.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اگر همین الان توی سایت #وینرو عضو بشی 
+🤩
+🤩
+🤩 هزار تومان شارژ رایگان میگیری
+❕
+
+
+✅ من خودم عضو شدم بدون واریز ۵۰۰ تومان گرفتم باهاش فوتبال پیش بینی کردم پولم شد ۲ میلیون 
+❕
+
+
+💚خیلی راحت هم برداشت کردم کل پولم رو 
+💵
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+🔴این فرصت محدود رو از دست ندید:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان r5
+
+📱 @winro_io
+</div>
+
+## rodast_omiddana — post 71992
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😂
+😂 آره فشار بخورید..
+نیروهای مذهبی بشدت بابت اینکه دیشب آمریکا حمله کرده و رژیم از ترس جنگ دوباره جواب نداده بدجوری شکار هستند
+</div>
+
+## rodast_omiddana — post 71991
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️
+🎬
+🔴
+🔴
+🔴 برنامه امشب تا یک ساعت و نیم دیگه:
+*جلسه کم‌سابقه کمپ دیوید برای حمله مجدد به جمهوری اسلامی
+*دیشب چرا رژیم جواب حمله آمریکا را نداد؟
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71990
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 بیانیه کامران غضنفری علیه مذکرات...
+لینک یوتیوب:
+https://www.youtube.com/watch?v=qERGfPSebM0
+</div>
+
+## rodast_omiddana — post 71989
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71989_1779817460.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 شعار دیشب مذهبیا علیه مجلس
+"گرونی، قانون تنگه و... چرا مجلس تعطیله"
+</div>
+
+## rodast_omiddana — post 71988
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71988_1779817463.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یه بیشرفی چتهای علی آقا با خودشو منتشر کرده که البته پاسخش بزودی به صورت حقوقی در دادگاه فنلاند داده خواهد شد ولی نکته اینجاست ده ها پیام از ایران دارم که میگن این بخش چت باعث شده "علی کریمی" خیلی محبوب تر از قبل بشه و مردم بیشتر عاشقش بشن..
+یعنی میاید طرفو خراب کنید بیشتر محبوبش میکنید..
+شخصا علی آقا احترامش برای من و هر کس که دارای عشق به وطن هست بیشتر از قبل شد..
+</div>
+
+## rodast_omiddana — post 71987
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71987_1779817464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خب حالا یک سوال مهم
+فکر کردید بعد از 18 و 19 دیماه، ما میزاریم ش.یعه در ایران باقی بماند؟
+ما ریشه هاتونو زدیم، زدن چهارتا جوجه ماسون ش.یعه که جز تفریحاتمون هست..
+</div>
+
+## rodast_omiddana — post 71986
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬خوش چشم:
+تا پولهای بلوکه شده را نگیریم توافق را امضا نمیکنیم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=BS-AdXsjQws
+</div>
+
+## rodast_omiddana — post 71985
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71985_1779817464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨آتش‌بس در حال فروپاشی است: جنگجویان ارتش دفاعی اسرائیل شروع به حمله به اهداف فراتر از خط زرد در لبنان کرده‌اند.
+</div>
+
+## rodast_omiddana — post 71984
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71984_1779817464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨یک کشتی در سواحل عمان مورد حمله قرار گرفت
+</div>
+
+## rodast_omiddana — post 71983
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71983_1779817464.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨کانال ملی تی وی Mellig Tv
+فرکانس: V 27500 10762
+روی دو ماهواره Yahsat/TurkamanALAm
+
+هر روز ساعت پنج بعدظهر ایران برنامه شب قبلمون پخش میشه و هر شب هنگام برنامه زنده در صورت امکان پخش میشویم..
+</div>
+
+## rodast_omiddana — post 71982
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71982_1779817465.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خبرگزاری معتبر فارس بازم ترکوند:
+"اینترنت به صورت زمینی راهی تبریز شد"
+</div>
+
+## rodast_omiddana — post 71980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 این پیام خیلی بهم چسبید دمتون گرم❤️🌹
+</div>
+
+## rodast_omiddana — post 71979
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71979_1779817465.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑 از دیشب و با توجه به وصل شدن اینترنت بخشی از مردم، صدها پیام محبت آمیز و سپاسگزاری برای سطح و لِول برنامم دریافت کردم..
+در این ایام برنامه ما به صورت ویس و ستلایت میلیونی در ایران شبانه دنبال شده و زین پس ما را مجبور میکنه با حساسیت بیشتری برنامه بسازیم، بنابراین منم باید روی خودم کار کنم که قدر موقعیت پیش آمده را بدانم و هم از نظر محتوایی سطح برنامه را بالا نگهدارم و هم از درگیری با کَف های روی آب بپرهیزم..
+ببخشید که نمیشه پیامهاتونو عمومی منتشر کنم
+دم همگی گرم
+</div>
+
+## rodast_omiddana — post 71978
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71978_1779817466.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 نخست وزیر در جلسه امنیتی امروز فیلمی بیرون داده، یعنی مادر بگرید بچه شیعه...
+</div>
+
+## rodast_omiddana — post 71977
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_71977_1779817468.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️❤️❤️❤️❤️
+</div>
+
+## KiriMohems — post 48012
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴انگشت کردن ChatGPT روی خطوط همراه اول و ایرانسل برقرار شد
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48011
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری :
+واتساپ تو کون نرو ترین اپلیکیشن هم تو بعضی مناطق رفع فیلتر شده و با اینترنت‌های خونگی بالا میاد.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48010
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خوش برگشتید❤️
+
+
+مدت زیادی خون دل خوردیم امیدوارم سالم و سلامت دور از غم و بگایی باشید
+</div>
+
+## KiriMohems — post 48009
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48009_1779817469.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس: نمودار سیخ کرده نشان‌دهنده بازگشت نسبی اتصال اینترنت بین‌الملل در ایران است.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48008
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سولاخ چه ‌وب‌سایت‌هایی در دسترس قرار گرفتن؟
+
+🔸 بررسی‌های دیجیاتو نشان می‌دهد از میان وب‌سایت‌های مهم، موارد زیر در دسترس قرار گرفته‌اند:
+ویکی‌پدیا
+اپ‌استور
+پینترست (Pinterest)
+کنوا (Canva)
+نوشن (Notion)
+تردز (Threads)
+کال آو دیوتی (CallofDuty)
+پابجی (Pubg)
+یاهو
+دراپ باکس
+پلی استیشن
+ایکس‌باکس
+
+🔸 بازگشایی اینترنت به تدریج در حال انجام است. به همین علت ممکن است برخی از سرویس‌های بالا هنوز در دسترس گروهی از کاربران قرار نگرفته باشد.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252738
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252738_1779817469.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خطر سکته قلبی برا رئالیا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252737
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252737_1779817470.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷 تیم ملی برزیل 1970 تو تصاویر 4K
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252736
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252736_1779817474.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ میدونم فوتبال بانوان به کیرتونه ولی الکسیا پوتیاس اسطوره تیم بانوان بارسلونا اعلام کرد آخر فصل بعد از 14 سال این باشگاه جدا میشه @SportBaadNews
+</div>
+
+## SportBaadNews — post 252735
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ راجب ایران در تروث سوشال @iMamlekat
+</div>
+
+## SportBaadNews — post 252734
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252734_1779817474.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ میدونم فوتبال بانوان به کیرتونه ولی الکسیا پوتیاس اسطوره تیم بانوان بارسلونا اعلام کرد آخر فصل بعد از 14 سال این باشگاه جدا میشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252733
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252733_1779817475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حالا که اینترنتون دوباره وصل شده و مشکلی با دانلود کردن ویدیو های حجم بالا ندارید بشینید یکم ایسکو ببینید روحتون جلا پیدا کنه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252732
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اپلیکیشن Hot vpn هم روی ایرانسل وصله
+</div>
+
+## SportBaadNews — post 252730
+
+<div align="center">
+  <a href="https://t.me/SportBaadNews/252730" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این دو تا اپلیکیشن رو چک کنید وصل میشن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252729
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252729_1779817478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://e61ab4f3-234b-4252-9735-88917a29872b@1:1?security=none&encryption=none&host=speedtest.net&headerType=http&type=tcp#%D8%AD%D8%AC%D9%85%2010%20%DA%AF%DB%8C%DA%AF%20%F0%9F%97%BD
+vless://e61ab4f3-234b-4252-9735-88917a29872b@104.16.117.43:443?mode=auto&path=%2Fsibzaminiz&security=tls&encryption=none&extra=%7B%22headers%22%3A%7B%22User-Agent%22%3A%22Mozilla%2F5.0%28WindowsNT10.0%3BWin64%3Bx64%29AppleWebKit%2F537.36%28KHTML%2ClikeGecko%29Chrome%2F114.0.0.0Safari%2F537.36%22%7D%7D&insecure=0&host=uxr2.parhamm1.ir&fp=chrome&type=xhttp&allowInsecure=0#%D8%A8%DB%8C%D8%A7%20%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85%20%3A%20NFT_2I%40
+vless://e61ab4f3-234b-4252-9735-88917a29872b@104.16.89.120:443?path=%2F&security=tls&encryption=none&insecure=0&host=uxl2.parhamm1.ir&fp=random&type=ws&allowInsecure=0&sni=uxl2.parhamm1.ir#%D8%A8%DB%8C%D8%A7%20%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85%20%3A%20NFT_2I%40
+vless://e61ab4f3-234b-4252-9735-88917a29872b@104.16.7.70:443?mode=auto&path=%2Fsibzaminiz&security=tls&encryption=none&extra=%7B%22headers%22%3A%7B%22User-Agent%22%3A%22Mozilla%2F5.0%28WindowsNT10.0%3BWin64%3Bx64%29AppleWebKit%2F537.36%28KHTML%2ClikeGecko%29Chrome%2F101.0.4951.67Safari%2F537.36%22%7D%7D&insecure=0&host=fxr1.parhamm1.ir&fp=chrome&type=xhttp&allowInsecure=0#%D8%A8%DB%8C%D8%A7%20%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85%20%3A%20NFT_2I%40
+vless://e61ab4f3-234b-4252-9735-88917a29872b@104.16.7.70:443?path=%2F&security=tls&encryption=none&insecure=0&host=fxl1.parhamm1.ir&fp=random&type=ws&allowInsecure=0&sni=fx1.parhamm1.ir#%D8%A8%DB%8C%D8%A7%20%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85%20%3A%20NFT_2I%40
+vless://e61ab4f3-234b-4252-9735-88917a29872b@104.16.79.73:443?path=%2F&security=tls&encryption=none&insecure=0&host=fxl1.parhamm1.ir&fp=random&type=ws&allowInsecure=0&sni=fx1.parhamm1.ir#%D8%A8%DB%8C%D8%A7%20%D8%AA%D9%84%DA%AF%D8%B1%D8%A7%D9%85%20%3A%20NFT_2I%40
+
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252727
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام سریع بگید ایرانسل روی ویوا میاره سرعت خداا
+</div>
+
+## SportBaadNews — post 252726
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252726_1779817479.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 یه سری دوستان میگن ایرانسل هم وصل شده @SportBaadNews
+</div>
+
+## SportBaadNews — post 252725
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252725_1779817480.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانفیگ نپستر 
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252724
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252724_1779817480.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 اینترنت بین الملل روی خطوط همراه اول هم وصل شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252723
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252723_1779817481.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 اینترنت بین الملل روی خطوط همراه اول هم وصل شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252722
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252722_1779817481.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ کص ننه بزن اون بمب اتم لعنتی رو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252721
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252721_1779817482.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این دلقکو
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252720
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه بابا فشار چیه؛ایشالله خوشبخت شین.
+</div>
+
+## SportBaadNews — post 252719
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252719_1779817483.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه بابا فشار چیه؛ایشالله خوشبخت شین.
+</div>
+
+## IranIntlTV — post 339134
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339134_1779817484.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تیم ملی فوتبال، در پی انزوای جمهوری اسلامی و انصراف حریفان تدارکاتی، برای چهارمین بار بازی درون‌تیمی برگزار کرد که در آن تیم آبی با نتیجه ۳-۲ تیم سبز را شکست داد.
+
+🔹در ترکیب تیم سبز بازیکنانی چون علیرضا بیرانوند، مهدی طارمی، شجاع خلیل‌زاده، سامان قدوس و علی علیپور حضور داشتند.
+
+🔹کسری طاهری دو بار و آریا یوسفی برای تیم آبی گلزنی کردند و هر دو گل تیم سبز را مهدی طارمی از روی نقطه پنالتی به ثمر رساند.
+
+🔹تیم ملی پیش‌تر قرار بود پیش از جام جهانی مقابل پرتغال، اسپانیا، مقدونیه و آنگولا بازی تدارکاتی برگزار کند، اما همه این تیم‌ها از دیدار با ایران انصراف دادند.
+
+🔹تیم ملی قرار است ۸ خرداد در دیداری تدارکاتی به مصاف گامبیا برود و ۱۴ خرداد نیز در ترکیه برابر تیم ملی مالی بازی کند.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339133
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339133_1779817485.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله آمریکا به جنوب ایران و تهدید سپاه پاسداران و تاکید بر حق پاسخ‌گویی، احتمال فروپاشی گفت‌وگوها و توافق را افزایش داده است. همزمان مقام‌های ایالات متحده گفتند امکان رسیدن به توافق هنوز منتفی نشده است.
+
+گفت‌وگو با فرزین ندیمی، پژوهشگر ارشد امور دفاعی و امنیتی در موسسه واشینگتن
+@iranintltv
+</div>
+
+## IranIntlTV — post 339132
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339132_1779817488.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شرکت مخابرات ایران اعلام کرد که اینترنت بین‌الملل برای مشترکان این شرکت به طور کامل برقرار شده است.
+
+به گزارش سیتنا، این شرکت به مشترکان خود توصیه کرد که در صورت بروز اختلال در دسترسی به اینترنت، به راه‌اندازی مجدد مودم اقدام کنند.
+
+این در حالی است که فیلترینگ جمهوری اسلامی بر اینترنت، همچنان برقرار است.
+https://iranintl.com/202605265597
+</div>
+
+## IranIntlTV — post 339131
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339131_1779817488.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیرحسین ثابتی، نماینده تهران در مجلس، گفت برخی با روایت‌های نادرست، تصمیم‌گیری در جمهوری اسلامی را دیکتاتورمآبانه جلوه می‌دهند. او با رد این برداشت، تاکید کرد علی خامنه‌ای و مجتبی خامنه‌ای، رهبر کشته‌شده و رهبر جدید جمهوری اسلامی، دیکتاتور نیستند و تصمیم‌ آنها بر پایه خواست مردم است.
+
+پیش‌تر، مسعود پزشکیان گفته بود در جریان جنگ ۱۲ روزه با علی خامنه‌ای دیدار داشته و او درباره چگونگی انجام مذاکره توضیح داده و قبول کرده که مذاکره انجام شود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 339130
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339130_1779817490.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جمهوری اسلامی حملات آمریکا به مواضعی در جنوب ایران را نقض آتش‌بس خواند و سپاه پاسداران نیز تهدید به پاسخ قطعی کرد.
+
+گفت‌وگو با شهیر شهیدثالث، روزنامه‌نگار و تحلیل‌گر سیاسی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339129
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339129_1779817493.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان در پیامی به مناسبت عید قربان، نوشت که جمهوری اسلامی دست برادری به سوی کشورهای اسلامی دراز کرده و همزمان در صیانت از اقتدار خود ذره‌ای تردید ندارد.
+
+او پیش‌تر نیز تلفنی با سران قطر، مصر، عمان، مالزی، ترکیه و جمهوری آذربایجان، گفت‌وگو کرد.
+https://iranintl.com/202605263908
+</div>
+
+## IranIntlTV — post 339128
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339128_1779817494.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در شبکه تروث سوشال نوشت معاینه شش‌ماهه خود را در مرکز پزشکی نظامی والتر رید به پایان رسانده و نتایج آن کاملا مطلوب بوده است. او از پزشکان و کارکنان این مرکز قدردانی کرد و گفت در حال بازگشت به کاخ سفید است.
+https://iranintl.com/202605260974
+</div>
+
+## IranIntlTV — post 339127
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339127_1779817495.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻علیرضا فیروزجا، نماینده فرانسه در دور نخست رقابت‌های شطرنج نروژ موفق شد مگنوس کارلسن، مرد شماره یک شطرنج جهان را شکست دهد؛ آن هم در حالی که به دلیل آسیب‌دیدگی مچ پا با کمک صندلی مخصوص بازی می‌کرد.
+
+🔹فیروزجا هفته گذشته پس از سقوط از روی سکو در مسابقات بخارست مصدوم شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339126
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339126_1779817496.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال توافق احتمالی دونالد ترامپ با جمهوری اسلامی را خیانت به مردم ایران می‌داند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339125
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339125_1779817498.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران اینترنشنال خطاب به رییس‌جمهور آمریکا می‌گوید که باید مقابله با جمهوری اسلامی را به بنیامین نتانیاهو بسپرد. صدای او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339124
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339124_1779817501.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گیدئون سعار، وزیر خارجه اسرائیل، در واکنش به پستی منتسب به مجتبی خامنه‌ای که موجودیت اسرائیل را تهدید کرده بود، در شبکه ایکس نوشت: «آشنا به نظر می‌رسد. یادم هست فردی با نام‌خانوادگی مشابه قبلا چنین حرف‌هایی می‌زد. راستی، کجایی؟»
+
+علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، نیز ۱۸ شهریور ۱۳۹۴ گفته بود که اسرائیل، «۲۵ سال آینده را نخواهد دید.»
+https://iranintl.com/202605269198
+</div>
+
+## IranIntlTV — post 339123
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339123_1779817502.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، سه‌شنبه ۵ خرداد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339122
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339122_1779817504.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دو نماینده عضو جبهه پایداری با انتقاد شدید از قالیباف و پزشکیان گفتند در متن توافق شده با آمریکا، خطوط قرمز مجتبی خامنه‌ای رعایت نشده. امیرحسین ثابتی گفت با توافق هم دوباره جنگ می‌شود و ترور مقامات ادامه می‌یابد. دلیل این مخالفت‌های برنامه‌ریزی شده چییست؟گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 339121
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339121_1779817507.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مسعود پزشکیان، رییس دولت جمهوری اسلامی، به‌صورت تلفنی با رجب طیب اردوغان، الهام علی‌اف و عبدالفتاح السیسی، روسای جمهور ترکیه، آذربایجان و مصر، شیخ تمیم بن حمد آل ثانی، امیر قطر، هیثم بن طارق، سلطان عمان و انور ابراهیم، نخست‌وزیر مالزی، درباره تحولات خاورمیانه گفت‌وگو کرد.
+https://iranintl.com/202605260356
+</div>
+
+## IranIntlTV — post 339120
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339120" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | سه‌شنبه ۵ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339119
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339119_1779817508.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+الحدث به نقل از یک منبع آمریکایی گزارش داد اسرائیل در حال حاضر بر جلوگیری از تهدید عمق سرزمینی خود از سوی حزب‌الله تمرکز کرده است.
+
+این منبع افزود هدف کنونی اسرائیل ورود به یک رویارویی جامع بر سر سلاح‌های حزب‌الله یا نقش داخلی این گروه نیست.
+
+بر اساس این گزارش، اسرائیل ممکن است عملیات خود را فراتر از «خط زرد» و حتی به مناطق عمیق‌تر گسترش دهد.
+
+یک منبع دیگر به الحدث گفت واشینگتن با هدف قرار دادن زیرساخت‌های نظامی حزب‌الله و کاهش توانمندی‌های آن از سوی اسرائیل مخالفتی ندارد و تشدید اخیر عملیات نظامی اسرائیل در جنوب لبنان را منفی ارزیابی نمی‌کند.
+
+این منبع همچنین گفت اسرائیل با هدف بازگرداندن ساکنان مناطق شمالی به خانه‌هایشان اقدام می‌کند و افزود حزب‌الله با استفاده از پهپادها و سخنان اخیر نعیم قاسم مسئول فروپاشی روند کاهش تنش است.
+https://iranintl.com/202605262713
+</div>
+
+## IranIntlTV — post 339117
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339117_1779817509.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نت‌بلاکس، نهاد ناظر بر دسترسی آزاد به اینترنت و اختلال‌های شبکه، از بازگشت جزئی اتصال به اینترنت در ایران خبر داد.
+
+اگر امشب اینترنت دارید، روی خط بیایید.
+
+«برنامه» صدای شماست.
+
+ما شما را، بدون نوبت، مستقیم از ایران روی خط می‌آوریم.
+
+بیایید و روایت خود را برای همیشه ثبت کنید.
+
+تاریخ با صدای شما نوشته می‌شود.
+
+برای شرکت در برنامه، همین حالا در واتس‌اپ پیام بدهید: ۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+
+
+
+«برنامه با کامبیز حسینی»
+
+«یک ایران صدای شما را می‌شنود»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339116
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339116_1779817510.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع آمریکایی در گفت‌وگو با العربیه گزارش‌ها درباره از سرگیری کمک‌رسانی در تنگه هرمز را تکذیب کردند.
+
+پیشتر وال‌استریت‌ژورنال در گزارشی عنوان کرده بود که نیروی دریایی آمریکا کمک‌رسانی و هدایت کشتی‌ها در تنگه هرمز را از سر گرفته است.
+
+https://iranintl.com/202605267877
+</div>
+
+## IranIntlTV — post 339115
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339115_1779817511.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سی‌بی‌اس‌نیوز به نقل از منابع آگاه گزارش داد دونالد ترامپ صبح چهارشنبه در کمپ دیوید نشست کابینه برگزار می‌کند. نیویورک‌پست نوشت همه اعضای کابینه حضور خواهند داشت و جنگ ایران محور اصلی گفت‌وگوهاست. کاخ سفید اعلام کرد تولسی گبرد نیز در این نشست شرکت می‌کند.
+https://iranintl.com/202605262754
+</div>
+
+## IranIntlTV — post 339114
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339114_1779817512.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس اطلاعات رسیده به ایران‌اینترنشنال، عباس یحیی‌بیگی، فوتبالیست اراکی و بازیکن پیشین لیگ برتر، از زمان اعتراضات دی‌ماه در بازداشت است. همزمان دو ملی‌پوش پیشین فوتبال اعلام کرده‌اند او به محاربه متهم شده و در خطر صدور حکم اعدام قرار دارد.
+جزییات بیشتر با مهدی رستم‌پور، روزنامه‌نگار ورزشی
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15083
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️لایو یوتیوب امشب ساعت ۲۲ برگزار میشود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15082
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15082_1779817515.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویری از لاشۀ پهپادی که دیروز با آتش سامانه جديد آرش‌های کمان‌گیر سپاه ساقط شد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 17:51
 ---
 
