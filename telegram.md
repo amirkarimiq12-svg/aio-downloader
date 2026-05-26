@@ -7,6 +7,683 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 23:09
+---
+
+## arianheidarii — post 20045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برخط❌
+آنلاین✅
+
+هستید ؟ 🙂
+</div>
+
+## ChizBergerz — post 46832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انگار از انفرادی آوردنت بند عمومی با این اینترنت باز کردنشون.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46831
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46831_1779824366.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خلاصه جنگ ۴۰ روزه برای اونایی که تازه نتشون وصل شده:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باز کردن اینترنت سه تا معنی داره:
+۱. پروژه «اینترنت پرو» شکست خورده و اوپراتورها در آستانه ورشکستگی بودن.
+۲. نارضایتی توی کشور زیاد شده بود و خواستن با این حرکت یکمی از نارضایتی ها کم کنن.
+۳. توافق با آمریکا تقریبا قطعی شده و خیالشون راحته قرار نیست فعلا دیگه جنگی اتفاق بیفته.
+وگرنه هیچکس باور نمیکنه این حرومزاده‌ها به خاطر مردم کاری انجام بدن.
+</div>
+
+## rodast_omiddana — post 71996
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 تا چند دقیقه دیگه در یوتیوب زنده هستیم https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 71994
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_71994_1779824367.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری_نیویورک پست:
+"رژیم جمهوری اسلامی با پهپاد انتحاری به چند ناو آمریکایی حمله کرده است"
+</div>
+
+## KiriMohems — post 48020
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فروش سیگار نخی و کصشعرای دخانی بصورت نخی یا بازشده ممنوع شد که #قطعا_به_کیرتونه
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48018
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48018_1779824367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو از ترور لاتی وار خبر داد :
+
+همین الان محمد عوده، از فرماندهان کلفت نظامی حماس و یکی از طراحان حمله ۷ اکتبر رو تو غزه گوزِ در کون بستیم و ترکوندیم
+
+به همه‌شون میرسیم و مادرشون رو میگاییم
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48017
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48017_1779824368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ دسترسی سریع و مستقیم به وینکوبت
+
+
+🟢 فرآیند ورود به سایت به شکلی طراحی شده که کاربران بدون درگیر شدن با لینک‌های متعدد یا مسیرهای غیرضروری، مستقیماً وارد محیط اصلی سایت شوند.
+
+
+📌این دسترسی از طریق ربات رسمی انجام می‌شود:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+🟢 به جای روش‌های قدیمی ورود، این ساختار یک مسیر واحد و ثابت ارائه می‌دهد که همیشه قابل استفاده است.
+
+
+📌کانال رسمی وینکوبت:
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## KiriMohems — post 48014
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48014_1779824369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت بلاکس برای مردم ایران مالید
+
+داده های نت‌بلاکس نشون میده سطح دسترسی‌ها از ۳۴ درصد عصر امروز به ۸۶ درصد تا دقایقی پیش رسیده
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه ۱۴ اسرائیل به نقل از یک مقام اسرائیلی :
+بعد از پیام آمریکا، فعلاً هرگونه طرح برای حمله به ایران مالیده شده
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252777
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیلترشکنای قدیمیتون تست کنید وصلن 90 درصدشون
+</div>
+
+## SportBaadNews — post 252776
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252776_1779824370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووری مارکا: خولیان آلوارز فقط بارسا رو میخواد نه آرسنال نه پاریس فقط بارسا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252775
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252775_1779824370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+🚨 سهام پورن هاب از ساعاتی قبل رشد قابل توجهی داشته
+</div>
+
+## SportBaadNews — post 252774
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252774_1779824370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووری مارکا: خولیان آلوارز فقط بارسا رو میخواد نه آرسنال نه پاریس فقط بارسا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252773
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252773_1779824370.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووری مارکا: خولیان آلوارز فقط بارسا رو میخواد نه آرسنال نه پاریس فقط بارسا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252772
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ وی‌پی‌ان بدنیوز؛ قیمت‌ها شکسته شد 🔝 کاهش قیمت بخاطر استقبال زیاد ✅ بدون هیچگونه ضریب ✅ همراه ساب برای مدیریت حجم ✅ مناسب تمامی پلتفرم‌ها ✅ پشتیبانی سریع و بدون مشکل ✅ بالاترین سرعت ممکن 💰 گیگی 85، بیشترین کیفیت 🤖 خرید از طریق بات رسمی 👇
+</div>
+
+## SportBaadNews — post 252771
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252771_1779824371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ وی‌پی‌ان بدنیوز؛ قیمت‌ها شکسته شد
+🔝 کاهش قیمت بخاطر استقبال زیاد
+
+✅ بدون هیچگونه ضریب
+✅ همراه ساب برای مدیریت حجم
+✅ مناسب تمامی پلتفرم‌ها
+✅ پشتیبانی سریع و بدون مشکل
+✅ بالاترین سرعت ممکن
+
+💰 گیگی 85، بیشترین کیفیت
+
+🤖 خرید از طریق بات رسمی 👇
+</div>
+
+## SportBaadNews — post 252769
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میلاد حقوق نداده، روز هشتاد و نهم...
+میلاد حقوق نداده، روز هشتاد و نهم...
+میلاد حقوق نداده، روز هشتاد و نهم...
+میلاد حقوق نداده، روز هشتاد و نهم...
+میلاد حقوق نداده، روز هشتاد و نهم...
+</div>
+
+## SportBaadNews — post 252768
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252768_1779824371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خدا منو ببخشه ولی خود خودشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چقدر دلم تنگ شده بود
+
+ما که نت داشتیم ولی واقعا وقتی نبودین اون لذتو نداشت
+</div>
+
+## SportBaadNews — post 252766
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=65.109.210.202&port=8443&secret=EERighJJvXrFGRMCIMJdCQRueWVrdGFuZXQuY29tZmFyYWthdi5jb212YW4ubmFqdmEuY29tAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
+
+وصله
+</div>
+
+## SportBaadNews — post 252765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 مجموعه #اسپورت_بد_نیوز، بزرگترین و کامل ترین مجموعه فوتبالی - ورزشی تلگرام: با مجموعه ما هیچ خبر فوتبالی و ورزشیو از دست نمیدید... 
+⚡ چنل اصلی و پوشش خبری: @SportBaadNews 
+🐦 توییت های مردمی: @SportBadTweet 
+🎾 اخبار کوتاه ورزشی: @Shortspor 
+📲 پوشش گل های…
+</div>
+
+## SportBaadNews — post 252764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸 مجموعه #اسپورت_بد_نیوز، بزرگترین و کامل ترین مجموعه فوتبالی - ورزشی تلگرام:
+
+با مجموعه ما هیچ خبر فوتبالی و ورزشیو از دست نمیدید...
+
+
+⚡ چنل اصلی و پوشش خبری: @SportBaadNews
+
+
+🐦 توییت های مردمی: @SportBadTweet
+
+
+🎾 اخبار کوتاه ورزشی: @Shortspor
+
+
+📲 پوشش گل های فوتبال: @GoalBad
+
+
+🏟 چکیده اخبار: @Shortasport
+
+
+⭐️ بنگبال، دنیای موازی: @BanggBall
+
+
+💋 جواد خیابانی: @Javad_Khiabani
+
+
+💛 فوتبال انیمیشن: @Footmation
+
+
+🇮🇷 پوشش لیگ ایران: @soccerIRN
+
+
+👑 پرسپولیس: @SorkhTotal
+
+
+🔵 استقلال: @Bad_Ss_new
+
+
+🚜 تراکتور: @Tractorsorkh
+
+
+🔞 هات اسپورت : @SporteHub
+
+
+🛀 فوتبال فانتزی: @Fantasiball
+
+
+⚽️ بارسلونا: @HomeFCB
+
+
+⚽️ رئال‌مادرید: @UltraMadrid
+
+
+⚽️ منچستریونایتد: @ManchesterNews_ir
+
+
+⚽️ لیورپول: @Liverpooli_Newsir
+</div>
+
+## SportBaadNews — post 252763
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#ارسالی
+شیرخورشید بدون هیچ آیپی وصل میشه زیر ۳۰‌ثانیه فقط به بچها بگو اون CDN FORTNIG بزنن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه پروکسی چیزی وصلید بفرستین دایرکت
+</div>
+
+## SportBaadNews — post 252761
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اوضاع خیلی خیته😂😂
+</div>
+
+## SportBaadNews — post 252760
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/socks?server=127.0.0.1&port=10808
+
+مخابرات
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=91.107.166.83&port=443&secret=Ee1603010200010001Fc030386E24c3aDd626973636f7474692e79656b74616e65742e636f6d
+
+پروکسییییییی متصللل 🔥🔥🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=78.47.51.149&port=443&secret=Ee1603010200010001Fc030386E24c3aDd626973636f7474692e79656b74616e65742e636f6d
+
+وصلهههههههههههههههههههه 🔥🔥🔥🔥
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252757
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252757_1779824372.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 کانفیگ نپستر متصللل ✅✅✅✅
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 339154
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339154" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: مضحکه‌ای به نام رییس‌جمهور در جمهوری اسلامی
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339153
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339153_1779824373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مضحکه‌ای به نام رییس‌جمهور در جمهوری اسلامی
+
+«چشم‌انداز با مهدی مهدوی‌آزاد»
+
+تماشای نسخه کامل این برنامه در یوتیوب:
+
+https://youtu.be/5g8yvPI6ZIg
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 339152
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🗣روایت شما از اولین روز کاهش محدودیت و قطع اینترنت- سه‌شنبه ۵ خرداد ۱۴۰۶
+
+🔹تازگی تو استان کردستان انگار اینترنت داره وصل میشه، اما فقط وای‌فای.
+
+🔹من بابت وصل شدن اینترنت خوشحال نیستم، چون ۴۰ هزار نفر دیگه هیچ‌وقت آنلاین نمی‌شن. طرح اینترنت پرو شکست خورد. سپاس از کسانی که تن به این خفت و خواری ندادن و متأسفم برای کسانی که بهش تن دادن.
+
+🔹من تازه تونستم وصل بشم. یه دختر دهه‌نودی هستم. حتی منم دیگه خسته شدم، هر روز اوضاع داره بدتر و بدتر میشه. فقط امیدوارم در نهایت همه‌مون آزادی ایرانمون رو ببینیم. جاوید شاه.
+
+🔹بالاخره اینترنت وصل شده، البته با هزار تا بدبختی و سرعت پایین، اونم فقط با مخابرات.
+
+🔹قربون دستت که دستور دادی اینترنت بین‌الملل وصل شه. حالا بی‌زحمت دستور بده اونایی که کسب‌وکار اینترنتیشون نابود شد برگردن سر کارشون، اونایی که زندگیشون از هم پاشید برگردن سر خونه و زندگیشون، اونایی که به خاطر اجاره خونه آواره خیابون شدن برگردن تو خونه‌هاشون.
+
+🔹از وصل شدن اینترنت بین‌الملل برای عموم مردم خرسندم، این حق طبیعی و اولیه هر شهرونده. اتفاقات بسیار خوب و روشنی در انتظار پارسیان و این خاکه، کمی منتظر بمونید. جاوید شاه، پاینده ایران.
+
+🔹بعد چند روز اینترنت‌ها رو باز کردن، فکر کردن می‌تونن با اینترنت گولمون بزنن.
+
+🔹بالاخره بعد از چند وقت تونستیم به اینترنت وصل بشیم، خدا رو شکر. به یاد جاویدنام‌ها.
+
+🔹سلام، بالاخره وصل شدیم، ولی این حق ما نبود که ۸۸ روز قطع باشیم.
+
+🔹از بجنورد: خواستم به همه کسانی که امکان استفاده از اینترنت پرو داشتن ولی شرافتمندانه انتخابش نکردن درود بفرستم. آزادی بیشتر از همه حق شماست.
+
+🔹واسه وصل شدن اینترنت زیاد خوشحال نباشین. اینترنت رو وصل کردن که مزرعه‌های ماینرشون رو فعال کنن و این یعنی روزی هفت، هشت ساعت قطعی برق.
+
+🔹درود، بازگشایی اینترنت رو بعد از ۸۸ روز قطعی گسترده تبریک می‌گم. به امید اینکه روزی شاه رضا پهلوی رو از نزدیک ببینم.
+
+🔹سلام، بعد از ۹۰ روز از محلات، واسه وصل شدن چیزی که حق هر آدمیه باید ذوق کنیم.
+
+🔹الان که اینترنت وصل شده، جاویدنامامون رو بیشتر یاد کنیم. به امید آزادی.
+
+🔹بعد از هشتاد و خورده‌ای روز با بدبختی وصل شدیم. بازم مثل همیشه متوجه شدیم که هیچ‌کس به فکر ما نیست و تهش خودمونیم و خودمون. هر چیزی به حالت قبلش برگرده، ما دیگه برنمی‌گردیم.
+
+🔹امروز (۵ خرداد) وصل شدم بعد از سه ماه. فقط مردم عزیزم، تورو خدا ناامید نشید، این آخرین نبرده.
+
+🔹بعد از ۸۸ روز قطعی اینترنت بالاخره وصل شدم. خواستم بگم ناامید نشید، نور بر تاریکی پیروزه. جاوید شاه.
+
+🔹مردم ایران، اینترنت حق طبیعی ماست. خوشحال باشید، ولی فکر نکنین امتیازیه که بهمون دادن، تسلیم نمیشیم.
+</div>
+
+## IranIntlTV — post 339151
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339151_1779824375.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه کان اسرائیل گزارش داد در پی گسترش درگیری‌ها در لبنان و همزمان با مذاکرات آمریکا و جمهوری اسلامی، دونالد ترامپ و بنیامین نتانیاهو تلفنی گفت‌وگو کردند.
+
+همزمان کانال ۱۲ اسرائیل خبر داد که گفت‌وگوی ترامپ و نتانیاهو پس از نشست کابینه اسرائیل که حدود دو ساعت و نیم طول کشید، انجام شده است.
+https://iranintl.com/202605264065
+</div>
+
+## IranIntlTV — post 339150
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339150_1779824375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری تسنیم به نقل از یک منبع آگاه نزدیک به تیم مذاکره‌کننده حکومت ایران گزارش داد مذاکره‌کنندگان جمهوری اسلامی به دنبال آزادسازی ۲۴ میلیارد دلار در چارچوب یادداشت تفاهم احتمالی با آمریکا هستند.
+
+گفت‌وگو با علی شیرازی، عضو تحریریه ایران‌اینترنشنال و آرام حسامی استاد علوم سیاسی کالج مونتگومری
+@iranintltv
+</div>
+
+## IranIntlTV — post 339149
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339149_1779824377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یسرائیل کاتس، وزیر دفاع اسرائیل، در شبکه ایکس اعلام کرد ارتش این کشور به دستور بنیامین نتانیاهو و او، محمد عوده، رهبر شاخه نظامی حماس و از طراحان حمله هفتم اکتبر، را در غزه هدف قرار داده است.
+
+وزیر دفاع اسرائیل اعلام کرد عوده مسئول کشته، ربوده و زخمی شدن شمار زیادی از شهروندان اسرائیلی و نیروهای ارتش این کشور بوده است.
+
+او افزود: «ما به تعقیب همه کسانی که در حمله هفتم اکتبر نقش داشتند ادامه خواهیم داد؛ دیر یا زود، اسرائیل همه آن‌ها را پیدا خواهد کرد.»
+
+همچنینن بنیامین نتانیاهو، نخست‌وزیر اسرائیل اعلام کرد که اسرائیل به فرمانده جدید شاخه نظامی حماس در غزه حمله کرده است.
+https://iranintl.com/202605265269
+</div>
+
+## IranIntlTV — post 339147
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339147_1779824377.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه نیویورک‌ تایمز به نقل از دو مقام آمریکایی نوشت که حملات نظامی آمریکا به هدافی در جنوب ایران در شامگاه دوشنبه پس از آن انجام شد که تحلیلگران اطلاعاتی مجموعه‌ای از اقدامات نظامی جمهوری اسلامی را شناسایی کردند که به‌طور «بالقوه تهدیدآمیز» بود.
+
+این رسانه در گزارشی کوتاه که شامگاه سه‌شنبه منتشر شد، نوشت این مقام‌ها گفتند جمهوری اسلامی چند پهپاد انتحاری را در نزدیکی شماری از حدود ۲۴ ناو جنگی نیروهای آمریکا در محدوده دریای عمان و دریای عرب به پرواز درآورده بودند. این ناوها در اجرای عملیات محاصره دریایی بندرهای جنوب ایران نقش دارند.
+
+به گفته این منابع که به دلیل حساسیت مسائل عملیاتی نخواستند نامشان فاش شود، تحلیلگران اطلاعاتی آمریکا تحرکاتی را در برخی از مواضع موشک‌های زمین‌به‌هوای جمهوری اسلامی در نزدیکی تنگه هرمز شناسایی کردند که هواپیماهای تهاجمی مستقر در خشکی و ناوهای هواپیمابرِ فعال در عملیات محاصره دریایی را تهدید می‌کرد.
+
+ادامه این گزارش را در وبسایت ایران‌اینترنشنال بخوانید.
+https://iranintl.com/202605265826
+</div>
+
+## IranIntlTV — post 339146
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339146_1779824378.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+۲۴ با فرداد فرحزاد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339145
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339145_1779824379.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال درباره تجمعات شبانه حامیان حکومت گفت که آن‌ها برای برنج و روغن تجمع می‌کنند اما مردم معترض در انقلاب ملی برنج‌ را زیر پای خود له کردند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339144
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339144_1779824380.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدی مهدوی‌آزاد در برنامه «چشم‌انداز» گفت: «علی خامنه‌ای با نحوه برخورد با جایگاه ریاست‌جمهوری، این مقام را عملا بی‌اعتبار کرده است. مواضع مسعود پزشکیان درباره مذاکره و جنگ جدی گرفته نمی‌شود و حتی عذرخواهی او از کشورهای عربی نیز با واکنش تند داخلی روبه‌رو شد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339143
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339143_1779824382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻سردار آزمون، مهاجم ۳۱ ساله و دومین گلزن برتر تاریخ تیم ملی فوتبال ایران، پس از موضع‌گیری در مخالفت با جمهوری اسلامی، حمایت از اعتراضات مردمی و انتشار تصویری از دیدارش با محمد بن راشد آل مکتوم، حاکم دبی، با انتقاد رسانه‌های حکومتی و نهادهای نزدیک به حکومت روبه‌رو شد و از تیم ملی کنار گذاشته شد.
+
+🔹آزمون پس از کنار گذاشته شدن، با انتشار استوری‌ای برای بازیکنان و کادر فنی تیم ملی آرزوی موفقیت کرد.
+
+🔹عبدالکریم حسین‌زاده، معاون مسعود پزشکیان، در پیامی در ایکس با اشاره به یادداشت سردار آزمون، او را «سرمایه ملی» خواند و خواستار بازگشتش به تیم ملی فوتبال شد.
+
+🔹همچنین روزنامه حکومتی فرهیختگان خواستار عذرخواهی سردار آزمون برای بازگشت به تیم ملی شده است. این روزنامه در یادداشتی نوشت: «اگر قرار به بازگشت او باشد، همه منتظر شنیدن یک عذرخواهی واقعی و صادقانه هستند.»
+
+🔹به نظر شما، سردار آزمون باید به تیم ملی برگردد؟
+
+🔹برای شرکت در این نظرسنجی، به صفحه اینستاگرام ایران اینترنشنال ورزشی مراجعه کنید؛👇🏽
+
+https://www.instagram.com/p/DYz-lhagvot/
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339142
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339142_1779824382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روابط عمومی نیروی دریایی سپاه پاسداران اعلام کرد که طی شبانه‌روز گذشته ۲۵ فروند کشتی اعم از نفتکش، کانتینربر و سایر کشتی‌های تجاری پس از کسب مجوز از نیروی دریایی سپاه، از تنگه هرمز عبور کردند.
+
+سپاه افزود: کنترل هوشمند تنگه هرمز با اقتدار در حال انجام است و هرگونه تجاوز با ضربات کوبنده پاسخ داده خواهد شد.
+https://iranintl.com/202605266414
+</div>
+
+## IranIntlTV — post 339141
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339141_1779824383.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه نت‌بلاکس در حساب خود در شبکه اجتماعی ایکس اعلام کرد اتصال اینترنت در ایران افزایش بیشتری یافته و به ۸۶ درصد رسیده است، شبکه‌های موبایل و بخش‌های دیگری از اینترنت نیز دوباره به اینترنت جهانی متصل شده‌اند.
+نت‌بلاکس افزود «فیلترنت» همچنان برقرار است اما امکان دور زدن آن وجود دارد. همچنین واتس‌اپ اکنون محدود شده و برای دسترسی به آن نیاز به ابزارهای دور زدن فیلتر است و برخی کاربران همچنان به اینترنت جهانی دسترسی ندارند.
+https://iranintl.com/202605268926
+</div>
+
+## IranIntlTV — post 339140
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339140" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: آغاز عملیات گسترده زمینی اسراییل در لبنان؛ نشست کمپ‌دیوید درباره ایران
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339139
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339139_1779824384.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش اختصاصی ایران‌اینترنشنال، مهران محقق، فردی که با خودرو به تجمع ایرانیان در تورنتو حمله کرده بود، یک روز پس از حمله با قید وثیقه آزاد شد و جلسه محاکمه او در اواخر ماه آینده میلادی برگزار می‌شود.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339138
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339138_1779824385.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۴ اسرائیل گزارش داد برآوردها در اسرائیل نشان می‌دهد حمله به ایران فعلا از دستور کار خارج شده و ترامپ به دنبال جلوگیری از بی‌ثباتی امنیتی است.
+
+همزمان کانال ۱۲ گزارش داد آمریکا به اسرائیل گفته به بیروت حمله نکند و ساختمان‌ها را در آنجا هدف قرار ندهد.
+کانال ۱۲ افزود که یک مقام ارشد اسرائیلی تاکید کرد در صورت فراهم بودن فرصت عملیاتی، مجوز انجام ترورهای هدفمند در بیروت وجود دارد.
+https://iranintl.com/202605265818
+</div>
+
+## IranIntlTV — post 339137
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339137_1779824385.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+براساس گزارش اختصاصی ایران‌اینترنشنال، محمدباقر قالیباف، رییس مجلس جمهوری اسلامی و رییس هیئت مذاکره‌کننده جمهوری اسلامی، در روزهای گذشته نقشی ویژه در به حاشیه رفتن سعید جلیلی، عضو شورای عالی امنیت ملی، برعهده داشته است.
+
+گفت‌وگو با مسعود کاظمی، روزنامه‌نگار
+@iranintltv
+</div>
+
+## IranIntlTV — post 339136
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339136_1779824387.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایرانیان بریتانیا روز سه‌شنبه با تشکیل تجمعی در مقابل پارلمان بریتانیا علیه اعدام و کشتار شهروندان در ایران شعار داده و خواستار کمک جامعه جهانی شدند. آن‌ها تصویر شاهزاده رضا پهلوی را در تجمع خود قرار دادند.
+</div>
+
+## IranIntlTV — post 339135
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339135_1779824389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، اعلام کرد ارتش این کشور با «نیروهای گسترده زمینی» در جنوب لبنان در حال عملیات است و کنترل «مناطق راهبردی» را در دست می‌گیرد.
+
+گفت‌وگو با بابک اسحاقی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15085
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «https://youtube.com/live/TrPiEz5YpyQ?feature=share»
+</div>
+
+## Persian_Trend_Official — post 15084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/TrPiEz5YpyQ?feature=share
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 21:14
 ---
 
