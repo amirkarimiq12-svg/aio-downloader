@@ -7,6 +7,408 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 02:27
+---
+
+## rodast_omiddana — post 72048
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/72048" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 حجم فشرده_تایید حمله آمریکا به باند فرودگاه بندرعباس در صداوسیما_ترامپ رژیم تسلیم نشه کار را تمام میکنیم
+</div>
+
+## rodast_omiddana — post 72047
+
+<div align="center">
+  <a href="https://t.me/rodast_omiddana/72047" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔈 تایید حمله آمریکا به باند فرودگاه بندرعباس در صداوسیما_ترامپ رژیم تسلیم نشه کار را تمام میکنیم
+</div>
+
+## rodast_omiddana — post 72046
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 360_تایید حمله آمریکا به باند فرودگاه بندرعباس در صداوسیما_ترامپ رژیم تسلیم نشه کار را تمام میکنیم
+</div>
+
+## rodast_omiddana — post 72045
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ کیفیت 144_تایید حمله آمریکا به باند فرودگاه بندرعباس در صداوسیما_ترامپ رژیم تسلیم نشه کار را تمام میکنیم
+</div>
+
+## rodast_omiddana — post 72044
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72044_1779922654.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود امید جان
+همین الان بلوار خلیج فارس تو بندرعباس ی ماشین رو با پهپاد زدنن
+</div>
+
+## rodast_omiddana — post 72043
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72043_1779922654.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 صدای انفجار میاد بندرعباس
+نگار پایگاه هوایی رو زدن
+</div>
+
+## KiriMohems — post 48072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری معتبر فارس :
+تو شرق بندرعباس، تا الان صدای 3 انفجار شنیده شده که هنوز علت دقیقش مشخص نشده – همزمان با این انفجارها هم واسه چند دقیقه پدافند این شهر فعال شد.
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48071
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48071_1779922655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#برینید
+
+مردم کارزار رفع ممنوعیت کشت خشخاش رو راه انداختن
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴
+🔴گزارشات از صدای انفجار در بندرعباس
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48069
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیگه پول الکی نده
+
+
+
+❌فیلترشکن گیگی 250 تومان دیگه نخر
+
+کف قیمت فیلترشکن 
+👇
+
+
+1️⃣
+0️⃣ 
+💿 
+1️⃣
+6️⃣
+0️⃣ 
+💸
+
+
+2️⃣
+0️⃣ 
+💿 
+2️⃣
+8️⃣
+0️⃣ 
+💸
+
+
+3️⃣
+0️⃣ 
+💿 
+3️⃣
+6️⃣
+0️⃣ 
+💸
+
+
+5️⃣
+0️⃣ 
+💿 
+5️⃣
+0️⃣
+0️⃣ 
+💸
+
+بجز این تست رایگان دارن
+😆
+
+اول تست کن 
+👇
+
+
+🔤 @MrTh_Vpn
+</div>
+
+## KiriMohems — post 48068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گوگل پلی و اپ استور خایه هاشون از بند فیلترینگ رها شد
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48064
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48064_1779922655.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ارتش اسرائیل امروز دو فرمانده ارشد حماس رو از کون کرد
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252941
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252941_1779922658.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+<---ویدئو جالب کیلیان امباپه خطاب به کریستیانو با کپشن وقت تغییره کریستیانو
+---->کریس هم در جواب امباپه این ویدئو رو با کپشن درست شد پست کرده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252940
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252940_1779922660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️
+🔙| 4 سال پیش تو چنین روزی رئال مادرید با تک گل وینیسیوس جونیور و عملکرد فوق‌العاده محشر تیبو کورتوا تونست با برد 1-0 مقابل لیورپول برای چهاردهمین بار قهرمان چمپیونزلیگ بشه
+
+
+🔴 یورگن کلوپ در مورد اون شب: تو فینال چمپیونزلیگ 2022 جلوی رئال مادرید، اون تيبو کورتوای لعنتی انگار 12 تا دست داشت.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252939
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252939_1779922663.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جالبه بدونید تیم پالاس قدمتی 121 ساله داره ولی فقط 3 جام رسمی تا به حال برده که همگی در زمان مربیگری اولیور گلاسنر اتریشی بوده😐🔥 جام حذفی انگلیس سوپرکاپ انگلیس کنفرانس لیگ اروپا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252938
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252938_1779922664.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆| کریستال پالاس با شکست دادن 1 - 0 رایووایکانو، قهرمان لیگ کنفرانس شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252937
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ یه هایلایت 14 دقیقه ای از آنتونی گوردون خرید جدید بارسلونا
+@GoalBad
+</div>
+
+## SportBaadNews — post 252936
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252936_1779922665.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆🏴󠁧󠁢󠁥󠁮󠁧󠁿 | قهرمان کنفرانس لیگ - کریستال‌پالاس
+
+🏆🏴󠁧󠁢󠁥󠁮󠁧󠁿 | قهرمان لیگ اروپا - استون ویلا
+
+🏆🏴󠁧󠁢󠁥󠁮󠁧󠁿 | قهرمان چمپیونزلیگ - آرسـ...
+🔴
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252935
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252935_1779922666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️
+🔺منابع کرواسی: بارسلونا + رئال مادرید به مدافع سیتی گوارديول علاقه نشان دادند اما هنوز پیشنهادی رسمی روی میز نیست.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252934
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252934_1779922666.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻لاپورتا: اره ما گوردون رو به خدمت گرفتیم
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 339318
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339318" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی برنامه با کامبیز حسینی؛ بازگشت اینترنت و عبور مردم از روایت رسمی حکومت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339317
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339317_1779922667.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریک اسکات، سناتور جمهوری‌خواه، گفت ایالات متحده به رهبری دونالد ترامپ به هر شکل مانع دستیابی جمهوری اسلامی به سلاح هسته‌ای خواهد شد.
+او افزود یا توافقی برای توقف این برنامه حاصل می‌شود یا اقدام نظامی قاطع انجام خواهد شد.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339316
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339316_1779922669.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایران از شنیده شدن صدای ۳ انفجار از شرق شهر بندرعباس حوالی ساعت ۱:۳۰ بامداد خبر دادند. هنوز محل دقیق و منشا این صداها مشخص نیست و پیگیری‌ها برای مشخص شدن آن ادامه دارد. هم‌زمان برای دقایقی پدافند هوایی بندرعباس نیز فعال شد.
+https://iranintl.com/202605276527
+</div>
+
+## IranIntlTV — post 339315
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339315_1779922670.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با افزایش امیدها به بازگشایی تنگه هرمز، قیمت جهانی نفت حدود پنج درصد کاهش یافت. رویترز گزارش داد تردد نفتکش‌ها در تنگه هرمز هنوز به سطح پیش از جنگ بازنگشته است.
+
+گزارش اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339314
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339314_1779922672.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ گفت واشینگتن درباره کاهش تحریم‌ها یا پرداخت پول به جمهوری اسلامی گفت‌وگو نمی‌کند. نیویورک‌تایمز نیز گزارش داد دارایی‌های بلوکه‌شده و برنامه هسته‌ای جمهوری اسلامی همچنان از محورهای اختلاف در مذاکرات هستند.
+
+گزارش نیلوفر منصوری، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339313
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339313_1779922675.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «ترامپ و روبیو تاکید کرده‌اند که هنوز توافقی با جمهوری اسلامی شکل نگرفته و اختلافات سیاسی همچنان پابرجاست. به روایت آمریکا هنوز توافقی به‌دست نیامده و اگر توافق نشود آمریکا به جنگ برخواهد گشت.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339312
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339312_1779922677.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قطع اینترنت برای دانشجویان ایرانی‌تبار در کانادا فقط به معنای بی‌خبری از خانواده‌هایشان نبوده است.
+
+اختلال در انتقال پول، فشار اقتصادی بر خانواده‌ها و سقوط ارزش ریال، بسیاری از این دانشجویان را با مشکلات مالی و روانی روبه‌رو کرده است.
+
+گزارش مهسا مرتضوی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339311
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339311_1779922680.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در جریان جنگ، ده‌ها مقام ارشد جمهوری اسلامی از جمله فرماندهان نظامی و امنیتی کشته شده‌اند. فرماندهان سپاه، ستاد کل و قرارگاه خاتم‌الانبیا در سطوح بالای حکومت کشته شدند، اما جمهوری اسلامی با وجود ادعاهای زیاد حتی قادر به کشتن هیچ‌یک از نیروهای ارشد اسرائیلی و آمریکایی نشد. این مشخص می‌کند چه کسی دست بالا را داشت و چه کسی دست پایین را.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339310
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339310_1779922684.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، گفت: «اگر یک چیز را تحولات اخیر دوباره ثابت کرده باشد، این است که ایران نباید به سلاح هسته‌ای دست پیدا کند. ایران همچنان بزرگ‌ترین حامی تروریسم در جهان است و نباید سلاح هسته‌ای داشته باشد.»
+
+او افزود: «اگر توافق امکان‌پذیر باشد، ما می‌خواهیم به آن برسیم. اگر این مسیر جواب ندهد، گزینه‌های دیگری هم وجود دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339309
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339309" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: وقتی شما نبودید
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339308
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339308_1779922687.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: « ‌"وقتی شما نبودید" کارزاری است که ایرانیان خارج از کشور برای مطلع کردن هم‌میهنان داخل کشور از وقایع کشور در دوران پنج‌ماهه قطع اینترنت راه انداخته‌اند. هم‌میهنان داخل نیز در همین کارزار در حال توضیح دادن جزییات و ابعاد جنایت دی‌ماه و وضعیت خود در دوران جنگ ۴۰ روزه هستند. کارزار رسانه‌ای مشترکی از سوی شهروندان برای مقابله با روایت تحریف شده حکومت از کشتار دی ماه و جنگ ۴۰ روزه.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339307
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339307_1779922689.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، در ایکس نوشت: «جمهوری اسلامی از خطوط قرمز خود مانند حق غنی‌سازی و اورانیوم غنی‌شده، مدیریت تنگه هرمز و لغو تحریم‌ها عقب‌نشینی نخواهد کرد.»
+او افزود: «همه می‌دانند ترامپ برای نجات خود از این بن‌بست راهبردی یک روز از ابزار تهدید استفاده می‌کند و روز دیگر برای توافق التماس‌ می‌کند.»
+
+https://iranintl.com/202605271902
+</div>
+
+## Persian_Trend_Official — post 15147
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2HyaIyBB-ko?feature=share
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 00:58
 ---
 
