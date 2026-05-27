@@ -7,6 +7,215 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 05:34
+---
+
+## rodast_omiddana — post 72002
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72002_1779847473.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨اینقدر پیامهای محبت آمیز زیاده که رسما نرسیدم امشب یکم خبر بخونم، چشمام دیگه در اومد بقیه را فردا میخونم ❤️
+</div>
+
+## rodast_omiddana — post 72001
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_72001_1779847473.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+❤️🌹❤️
+</div>
+
+## rodast_omiddana — post 72000
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72000_1779847473.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 من هنوز دارم پیامهاتونو میخونم یعنی با هر پیام اشک شوق میریزم، دمتون گرم و ببخشید در حد یک استیکر قلب پاسخ میدم ❤️
+</div>
+
+## KiriMohems — post 48035
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48035_1779847474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+و کسایی که دیگه هیچوقت آنلاین نشدن.. فراموش نمیکنیم 
+❤️‍🩹
+❤️‍🩹
+
+
+@KiriMohems
+</div>
+
+## KiriMohems — post 48034
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48034_1779847474.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ دسترسی سریع و مستقیم به وینکوبت
+
+
+🟢 فرآیند ورود به سایت به شکلی طراحی شده که کاربران بدون درگیر شدن با لینک‌های متعدد یا مسیرهای غیرضروری، مستقیماً وارد محیط اصلی سایت شوند.
+
+
+📌این دسترسی از طریق ربات رسمی انجام می‌شود:
+👇
+
+
+🤖 @Wincobet_bot
+
+🤖 @Wincobet_bot
+
+
+🟢 به جای روش‌های قدیمی ورود، این ساختار یک مسیر واحد و ثابت ارائه می‌دهد که همیشه قابل استفاده است.
+
+
+📌کانال رسمی وینکوبت:
+👇
+
+
+🔵 @Wincobetofficial
+</div>
+
+## SportBaadNews — post 252829
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرناندو پولو بسیار معتبر: دکو در یک حرکت عجیب گوردون رو از بایرن و لیورپول هایجک کرد بازیکن تمایل شدید به پوشیدن لباس بارسلونا دارد و حتی حاضر است دستمزد خود را کاهش دهد نیوکاسل برای این بازیکن 85 میلیون یورو میخواهد!! @SportBaadNews
+</div>
+
+## SportBaadNews — post 252828
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فوووووری از فرناندو پولو: آنتونی گوردون در یک قدمی بارسلونااا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252827
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252827_1779847475.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فووووووری از فابریزیو رومانوووو: بارسلوناااا به دنبال جذب آنتونی گوردون @SportBaadNews
+</div>
+
+## IranIntlTV — post 339180
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339180_1779847475.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وال‌استریت ژورنال به نقل از مقام‌های ایرانی و میانجی‌های عرب گزارش داد جمهوری اسلامی در راهبرد مذاکره با آمریکا به دنبال دستیابی به گشایش مالی برای اقتصاد خود است، بدون آنکه در برنامه هسته‌ای خود در حدی امتیاز بدهد که ترامپ بتواند ادعای پیروزی کند.
+به گفته این مقام‌ها، تهران در پی آن است که با بازپس‌گیری کنترل بخشی از حدود ۱۰۰ میلیارد دلار دارایی مسدودشده از سوی غرب و بازیابی دسترسی به بازارهای جهانی نفت، به گشایش اقتصادی دست یابد.
+
+https://iranintl.com/202605272549
+</div>
+
+## IranIntlTV — post 339179
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339179_1779847475.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پاپ لئو، رهبر کاتولیک‌های جهان، روز سه‌شنبه، پس از توقیف یک کاروان دریایی حامل کمک به غزه به‌دست نیروهای اسرائیلی، خواستار رساندن کمک‌های بشردوستانه به مردم غزه شد و بر رعایت حقوق بشر تاکید کرد.
+</div>
+
+## IranIntlTV — post 339178
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339178_1779847476.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیویورک‌تایمز به نقل از مقام‌های آگاه گزارش داد پیش از حمله‌های دوشنبه آمریکا به برخی اهداف در جنوب ایران، جمهوری اسلامی به سوی بیش از ۱۰ ناو جنگی نیروی دریایی آمریکا در خلیج عمان و دریای عرب یا اطراف آنها پهپادهای انتحاری پرتاب کرده بود.
+این گزارش افزود تحلیلگران نظامی آمریکایی همچنین فعالیت‌هایی را در برخی از سامانه‌های موشکی زمین به هوای ایران در نزدیکی تنگه هرمز شناسایی کردند که هواپیماهای تهاجمی مستقر در خشکی و ناو هواپیمابر را که در چارچوب محاصره دریایی در منطقه فعالیت می‌کنند، تهدید می‌کند.
+
+https://iranintl.com/202605278813
+</div>
+
+## Persian_Trend_Official — post 15096
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15096_1779847477.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢اگر ایران تسلیم شود، اعتراف کند نیروی دریایی‌اش نابود شده و در کف دریا آرمیده است، و نیروی هوایی‌اش دیگر وجود ندارد، و اگر تمام ارتششان از تهران خارج شود، سلاح‌ها را زمین بیندازند و دست‌ها را بالا ببرند و هرکدام فریاد بزنند «تسلیم می‌شوم، تسلیم می‌شوم» در حالی که دیوانه‌وار پرچم سفید را تکان می‌دهند، و اگر تمام رهبران باقی‌مانده‌شان همه «اسناد تسلیم» لازم را امضا کنند و شکست خود را در برابر قدرت عظیم و باشکوه ایالات متحده آمریکا بپذیرند، باز هم نیویورک تایمز شکست‌خورده، «چاینا استریت ژورنال» (WSJ!)، سی‌ان‌ان فاسد و حالا بی‌اهمیت، و تمام رسانه‌های جعلی دیگر تیتر خواهند زد که ایران یک پیروزی استادانه و درخشان مقابل ایالات متحده آمریکا به دست آورد و اصلاً رقابتی هم وجود نداشت. دموکرات‌های احمق و رسانه‌ها کاملاً راه خود را گم کرده‌اند. آن‌ها کاملاً دیوانه شده‌اند!!!
+
+رئیس‌جمهور DJT
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15095
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15095_1779847478.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 رویترز: بایدن برای جلوگیری از انتشار فایل‌های صوتی خصوصی‌اش از وزارت دادگستری شکایت کرد
+
+💢جو بایدن از وزارت دادگستری آمریکا شکایت کرده تا مانع انتشار فایل‌های صوتی و متن گفت‌وگوهای خصوصی خود با زندگی‌نامه‌نویسش در سال‌های ۲۰۱۶ و ۲۰۱۷ شود
+
+▪️ قرار است این اسناد در ۱۵ ژوئن در اختیار کمیته قضایی مجلس نمایندگان آمریکا و بنیاد Heritage قرار گیرد
+
+▪️ این فایل‌ها پیش‌تر در تحقیقات رابرت هِر درباره نگهداری اسناد محرمانه توسط بایدن مورد استفاده قرار گرفته بودند
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15094
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15094_1779847478.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 حملات اسرائیل به مشغره لبنان؛ دست‌کم ۱۲ کشته و ده‌ها زخمی
+
+▪️ در حملات اسرائیل به شهر Mashghara در بقاع غربی لبنان، دست‌کم ۱۲ نفر کشته و ده‌ها نفر دیگر زخمی شدند
+
+▪️ گزارش‌ها حاکی است شماری از کودکان نیز در میان قربانیان هستند
+
+▪️ خبرنگاران محلی می‌گویند برخی خانواده‌ها به‌طور کامل در داخل خانه‌هایشان کشته شده‌اند
+
+⚠️ ویدئوهای منتشرشده، عملیات نجات یک کودک از زیر آوار را نشان می‌دهد حاوی تصاویر ناراحت کننده میباشد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15093
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15093_1779847480.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 تصاویر منتشرشده از حملات هوایی جدید به شهر Sohmor در شرق لبنان
+
+💢 ویدئوهای منتشرشده نشان می‌دهد حملات هوایی تازه‌ای شهر Sohmor در شرق لبنان را هدف قرار داده است
+▪️ تاکنون جزئیات دقیقی درباره تلفات یا اهداف حمله منتشر نشده
+▪️ همزمان حملات اسرائیل در جنوب و شرق لبنان طی ساعات اخیر شدت گرفته است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 03:21
 ---
 
