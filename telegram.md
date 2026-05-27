@@ -7,6 +7,300 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 00:58
+---
+
+## ChizBergerz — post 46857
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46857_1779917288.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یکم تراپی ببینید.
+
+ویدیو لحظه بیرون کشیدن اجساد نجش فرمانده‌ها و نیروهای تروریست حماس پس‌از حمله امروز ارتش اسرائیل: 🔥🔥
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 72042
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬
+🔴
+🔴
+🔴 پخش زنده
+*تایید حمله آمریکا به باند فرودگاه بندرعباس در صداوسیما
+*ترامپ رژیم تسلیم نشه کار را تمام میکنیم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=9MXfejJAGv8
+</div>
+
+## KiriMohems — post 48062
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48062_1779917290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علیرضا فیروزجا (ایرانی) با پرچم فرانسه، نگاییدم طاقی ، نفر اول شطرنج جهانو شکست داد
+
+#Helsinki
+@KiriMohemSport
+</div>
+
+## KiriMohems — post 48061
+
+<div align="center">
+  <a href="https://t.me/KiriMohems/48061" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#موزیک_شب گوش بدیم ، بگایی هامون رو بشوره ببره
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252933
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252933_1779917291.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⏳ فقط و فقط 14 روز تا شروع جام جهانی...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252932
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆| کریستال پالاس با شکست دادن 1 - 0 رایووایکانو، قهرمان لیگ کنفرانس شد. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252931
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🏆| کریستال پالاس با شکست دادن 1 - 0 رایووایکانو، قهرمان لیگ کنفرانس شد.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252930
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رئیس باشگاه اینتر: باستونی جایی نمیره و موندنیه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252929
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252929_1779917294.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ وی‌پی‌ان بدنیوز؛ قیمت‌ها شکسته شد
+🔝 کاهش قیمت بخاطر استقبال زیاد
+
+✅ بدون هیچگونه ضریب
+✅ همراه ساب برای مدیریت حجم
+✅ مناسب تمامی پلتفرم‌ها
+✅ پشتیبانی سریع و بدون مشکل
+✅ بالاترین سرعت ممکن
+
+💰 گیگی 85، بیشترین کیفیت
+
+🤖 خرید از طریق بات رسمی 👇
+</div>
+
+## SportBaadNews — post 252928
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252928_1779917295.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️
+✅ فووووووری فابریزیو رومانو: سرخیو راموس کل مراحل خرید سویا رو انجام داده و قراره مالک جدید باشگاه بشه. 
+🔴 این معامله نهایی شده و برادرش رنه هم داره کارهاشو جلو میبره. الان فقط مونده کارای رسمی و اداری با وکیلا انجام بشه تا بعدش خبرشو رسماً اعلام کنن. @SportBaadNews
+</div>
+
+## SportBaadNews — post 252927
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252927_1779917296.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنظرم پرتغال در جام جهانی 2026 خفن ترین ترکیبو داره، حتی خفن تر از فرانسه
+بازیکنا همه سوپر همه تو اوج
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252926
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترکیب احتمالی فصل بعد بارسلونا🥶🥶🥶🥶🥶 @SportBaadNews
+</div>
+
+## SportBaadNews — post 252925
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱
+📱| طبق گزارش کاربران گوگل پلی و اپ استور رو تمام اپراتور ها به صورت کامل رفع فیلتر شدن
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252924
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252924_1779917297.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نیمار امروز با هلی کوپتر شخصی خودش پاشده رفته سر تمرین تیم ملی برزیل
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252923
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252923_1779917299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصور اینکه رونالدوی 10 سال پیش همچین خط هافبکی رو پشت سرش تو تیم ملی داشت واقعا داره مغزمو میگاد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252922
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترکیب احتمالی فصل بعد بارسلونا🥶🥶🥶🥶🥶 @SportBaadNews
+</div>
+
+## SportBaadNews — post 252921
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252921_1779917300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترکیب احتمالی فصل بعد بارسلونا🥶🥶🥶🥶🥶
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 339306
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339306" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ۲۴ با فرداد فرحزاد: ترامپ: تهران به‌شدت بدنبال توافق است ولی از روند مذاکرات راضی نیستم
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339305
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339305_1779917301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسماعیل بقائی، سخنگوی وزارت خارجه، درباره تحولات قفقاز و طرح موسوم به «TRIPP» (مسیر ترامپ برای صلح و شکوفایی بین‌المللی)، گفت موضع جمهوری اسلامی درباره امنیت در قفقاز جنوبی «روشن» است و هیچ شبهه‌ای در این خصوص وجود ندارد.
+
+او افزود جمهوری اسلامی از گسترش مراودات اقتصادی و رفع انسداد از مسیرهای مواصلاتی استقبال می‌کند، اما نسبت به «نیات بدخواهانه» آمریکا که سابقه «شرارت و تجاوزگری» در مناطق مختلف جهان دارد، سوءظن شدید دارد و مخالفت خود را با حضور «ناامن‌ساز» آن در قفقاز جنوبی صراحتا اعلام کرده است.
+
+بقائی همچنین گفت قفقاز جنوبی «همسایه بلاواسطه ایران» است و جمهوری اسلامی صلح، ثبات و پیشرفت اقتصادی در این منطقه را در راستای منافع ملی خود می‌داند.
+
+او افزود مداخله قدرت‌های فرامنطقه‌ای در تحولات منطقه، صلح، ثبات و منافع جمعی کشورهای منطقه را با چالش جدی مواجه می‌کند.
+https://iranintl.com/202605271825
+</div>
+
+## IranIntlTV — post 339304
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339304_1779917302.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال با اشاره به مشکلات اقتصادی از بیکار شدن همسرش گفته و اشاره می‌کند که اقدام به سقط جنین کرده است.
+</div>
+
+## IranIntlTV — post 339303
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339303_1779917304.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+https://iranintl.com/202605272938
+</div>
+
+## IranIntlTV — post 339302
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339302_1779917305.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+https://iranintl.com/202605272938
+</div>
+
+## IranIntlTV — post 339301
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339301_1779917306.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سعید کوزه‌چی، سفیر جمهوری اسلامی در سئول، پس از احضار به وزارت خارجه کره جنوبی، نقش جمهوری اسلامی را در حمله به کشتی باری اچ‌ام‌ام نامو در تنگه هرمز رد کرد.
+
+پیش‌تر کره جنوبی اعلام کرد حمله به کشتی اچ‌ام‌ام نامو در اوایل این ماه احتمالا با استفاده از یک موشک ایرانی انجام شده است.
+https://iranintl.com/202605272938
+</div>
+
+## IranIntlTV — post 339300
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339300_1779917307.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت اطلاعات از نفوذ گسترده امنیتی و سایبری علیه ایران و پیامدهای جنگ ۴۰ روزه خبر داد. در این بیانیه به ورود استارلینک، خرابکاری، ناامن‌سازی مرزها و تلاش برای ایجاد آشوب داخلی اشاره شده و گفته شده این اقدامات خنثی شده‌اند. همچنین از بازداشت ده‌ها نفر به اتهام همکاری با موساد و گروه‌های تروریستی و هشدار نسبت به احتمال اعتراض‌های خیابانی خبر داده شده است.
+
+گفت‌وگو با مراد ویسی، تحلیلگر ارشد ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339299
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339299" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: پشت‌ پرده امتیازات حیرت‌آور ترامپ به حکومت ایران
+@iranintlTV
+</div>
+
+## Persian_Trend_Official — post 15146
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/2HyaIyBB-ko?feature=share
+</div>
+
+## officialrezapahlavi — post 1835
+
+<div align="center">
+  <a href="telegram/content/officialrezapahlavi_1835_1779917310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شاهزاده رضا پهلوی روز جمعه ۱ خرداد (۲۲ مه)، در نشستی آنلاین با شماری از فعالان و چهره‌های رسانه‌ای و هنری گفتگو کردند. ایشان ضمن شنیدن دیدگاه‌ها و نظرات حاضران، به برخی پرسش‌ها نیز پاسخ دادند. بخش‌های بیشتری از این گفتگو در روزهای آینده منتشر خواهد شد.
+
+@OfficialRezaPahlavi
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 23:12
 ---
 
@@ -660,8 +954,6 @@ https://iranintl.com/202605278785
 🆔@persian_trend_official
 پرشین ترند | متفاوت‌ترین کانال نظامی
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
