@@ -7,6 +7,355 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 03:26
+---
+
+## rodast_omiddana — post 72059
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72059_1779926173.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 زیرنویس شبکه خبر هم حداقل ۳ انفجار را تایید کرده
+</div>
+
+## rodast_omiddana — post 72057
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72057_1779926173.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تایید نشده
+خودروی حامل سردار علی عظمایی جانشین تنگسیری در بلوار خلیج فارس بندرعباس و در نزدیکی پایگاه نهم شکاری، در یک حمله هوایی هدف قرار گرفته است.
+او و همراهانش به هلاکت رسیده‌اند.
+</div>
+
+## rodast_omiddana — post 72056
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72056_1779926173.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک هواپیمای سوخت‌رسان آمریکایی در حال سوخت‌رسانی به جت‌های جنگنده بر فراز شمال عراق است
+</div>
+
+## rodast_omiddana — post 72054
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72054_1779926174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری_رویترز تایید کرد:
+"ارتش ایالات متحده حملات جدیدی را به یک پایگاه نظامی ایرانی که تهدیدی برای نیروهای آمریکایی و کشتی‌های تجاری در تنگه هرمز بود، انجام داد.
+ارتش آمریکا همچنین در جریان این حملات چندین پهپاد ایرانی را رهگیری و سرنگون کرد"
+</div>
+
+## rodast_omiddana — post 72053
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72053_1779926174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨تایید نشده:
+"گزارش ها از درگیری میان نیروی دریایی سپاه و نیروی دریایی آمریکا در تنگه هرمز"
+</div>
+
+## rodast_omiddana — post 72052
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72052_1779926174.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 تایید نشده:
+هدف قرار گرفتن یک ماشین در حوالی پایگاه شکاری بندر عباسک..
+خبری بهم رسیده علی عظمایی، جانشین تنگسیری را به هلاکت رساندن..
+منتظر تایید هستم..
+</div>
+
+## rodast_omiddana — post 72051
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72051_1779926174.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 گزارش میدانی از پیتزا فروشیهای نزدیک پنتاگون..
+هر وقت این پیتزا فروشیها سفارش زیاد بگیرن یعنی خبرهایی هست..
+</div>
+
+## rodast_omiddana — post 72050
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72050_1779926177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨مثل اینکه اصفهان و شیراز صدای پدافند اومده
+رسانه‌های عبری هم حرف از ترور میزنن
+</div>
+
+## rodast_omiddana — post 72049
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72049_1779926177.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 فوری
+خبرگزاری فارس و رسانه های رژیم سه انفجار در بندرعباس را تایید کردند..
+</div>
+
+## KiriMohems — post 48075
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نت رو ببندید بابا
+
+گوه بازی بلاگرا برا عید قربان
+هنوز اینترنت باز نشده گوه بازیای اینا شروع شد، اخه این چیه تن گوسفند کردی زنیکه؟
+
+#professor
+@KiriMohems
+</div>
+
+## KiriMohems — post 48074
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48074_1779926177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🇫🇷 مسابقات گرنداسلم رولان‌گاروس رو با بالاترین ضرایب در اسپورت نود پیش‌بینی کنید.
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## KiriMohems — post 48073
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48073_1779926178.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴یه مقام کلفت به شبکه فایتوکس : آمریکا یه «عملیات دفاعی» تو بندرعباس انجام داده
+- این موضوع هیچ تأثیر گوزی روی آتش‌بس نداره
+
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252947
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام بالا رده آمریکایی: ارتش آمریکا حملات جدیدی را به یک سایت نظامی در جنوب ایران انجام داد. این سایت تهدیدی برای ناوبری و نیروهای آمریکایی بود.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252946
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252946_1779926179.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نخواد گل بشه گل نمیشه
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252945
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252945_1779926181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Sportnavad
+➕ | اسپورت نود
+➕
+
+
+🇫🇷 مسابقات گرنداسلم رولان‌گاروس رو با بالاترین ضرایب در اسپورت نود پیش‌بینی کنید.
+
+
+🔗 ضرایب رقابتی و متنوع فقط در سایت معتبر اسپورت نود به همراه:
+👇
+
+شارژ از طریق کریپتو
+واریز و برداشت سریع
+پشتیبانی ۲۴ ساعته
+کازینو آنلاین و بازی انفجار
+پیش‌بینی زنده تمامی مسابقات
+
+🎁 بونوس ویژه ثبت‌نام برای کاربران سایت، با شارژ حساب از طریق کریپتو ۴٪ بیشتر از مبلغ شارژ حساب دریافت کنید.
+
+
+🔗 برای ورود سریعتر به اسپورت نود از طریق ربات رسمی سایت اقدام نمایید:
+👇
+
+
+🤖 @Sportnavad_bot
+
+🤖 @Sportnavad_bot
+
+
+🔗 کانال رسمی اسپورت نود:
+👇
+
+
+✉️ @Sportnavad
+</div>
+
+## IranIntlTV — post 339324
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339324_1779926182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در گفت‌وگو با رویترز از حملات جدید آمریکا به یک سایت نظامی در ایران خبر داد و گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است. هنوز به جزییات این سایت نظامی و تعداد پهپادها اشاره‌ای نشده است.
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+
+https://iranintl.com/202605271743
+</div>
+
+## IranIntlTV — post 339323
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339323_1779926182.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی به رویترز گفت ارتش آمریکا حملات تازه‌ای را در ایران انجام داده و این حملات یک سایت نظامی را هدف قرار داده است. طبق این گزارش، مقام‌های آمریکا این سایت را تهدیدی برای نیروهای آمریکایی و تردد تجاری دریایی در تنگه هرمز قلمداد کرده بودند.
+
+این مقام، که به شرط فاش نشدن نامش صحبت کرد، گفت ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و سرنگون کرده است.
+
+ساعتی پیش در پی شنیده شدن صدای ۳ انفجار در شرق بندرعباس، پدافند هوایی این شهر فعال شد.
+https://iranintl.com/202605274221
+</div>
+
+## IranIntlTV — post 339322
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339322_1779926183.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد از بازگشت نسبی اینترنت، مردم چه گفتند؟
+
+بازگشت نسبی اینترنت به ایران، فقط به معنای وصل شدن دوبارهٔ اینستاگرام و واتس‌اپ نبود؛ میلیون‌ها ایرانی، پس از ماه‌ها، دوباره توانستند همدیگر را پیدا کنند، حرف بزنند، تصویر بفرستند و روایت خودشان را از آن‌چه در این مدت بر آن‌ها گذشته، منتشر کنند. شاید مهم‌ترین اتفاق ۲۴ ساعت گذشته دقیقاً همین باشد؛ بازگشت روایت مردم در برابر روایت رسمی حکومت و صاحبان «سیم‌کارت‌های سفید».
+کامبیز حسینی در «برنامه» به این موضوع می‌پردازد.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/Xum6cfiHzgU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339321
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339321_1779926185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اسرائیل هیوم گزارش داد ترامپ متن پیش‌نویس یادداشت تفاهم با جمهوری اسلامی را برای نتانیاهو و شماری از رهبران منطقه فرستاده است تا نظر آن‌ها را دریافت کند. این متن طی روز گذشته ارسال شده و در تماس تلفنی شب گذشته ترامپ و نتانیاهو نیز مورد بررسی قرار گرفته است.
+اسرائیل هیوم نوشت بر اساس توضیح آمریکا به کشورهای خلیج فارس، هیچ توافقی امضا نخواهد شد که به جمهوری اسلامی اجازه دهد سلاح هسته‌ای داشته باشد یا کنترل تنگه هرمز را در اختیار بگیرد. واشینگتن همچنین تاکید کرده بازگشایی کامل و آزادانه تنگه هرمز، شرط اساسی پیشرفت در مذاکرات است.
+به گزارش اسرائیل هیوم، منابع دیپلماتیک می‌گویند آمریکا اصرار دارد جمهوری اسلامی برای تحویل اورانیوم غنی‌شده تعهد کتبی ارائه کند. ترامپ نیز گفته است تهران در ازای واگذاری اورانیوم، کاهش تحریم دریافت نخواهد کرد و مارکو روبیو تاکید کرده است ایران به سلاح هسته‌ای دست نخواهد یافت.
+
+https://iranintl.com/202605277271
+</div>
+
+## IranIntlTV — post 339320
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339320_1779926186.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سمیرا از آلمان: خاله‌ام ماه‌هاست جلوی تلویزیون نشسته تا اسم پسرِ جاویدنامش را ببیند
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/Xum6cfiHzgU
+@iranintltv
+</div>
+
+## IranIntlTV — post 339319
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339319_1779926188.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نور از تهران: پزشکیان حق ما را از ما گرفت و به‌عنوان صدقه برگرداند.
+
+«یک ایران صدای شما را می‌شنود»
+دوشنبه تا پنجشنبه ۱۱ شب تهران
+از تلویزیون ایران اینترنشنال
+
+تماشای نسخه کامل این قسمت از «برنامه» در یوتیوب:
+https://youtu.be/Xum6cfiHzgU
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15149
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15149_1779926190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما جمهوری اسلامی پس از گذشت حدود دو ساعت از شنیده شدن صدای انفجار در بندرعباس خبر حمله را به این شکل تأیید کرد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15148
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15148_1779926191.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حمله مجدد هوایی ارتش ایالات متحده به بندرعباس
+
+به نقل از گزارش دقایقی پیش رویترز، ایالات متحده امریکا حملات هوایی جدیدی را علیه مناطقی در بندرعباس انجام داده است.
+
+به گفته مقاماتی امریکایی این مناطق تهدیدی برای نیروهای ایالات متحده و کشتی‌های تجاری در تنگه هرمز محسوب می‌شدند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 02:27
 ---
 
