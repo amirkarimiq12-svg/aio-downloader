@@ -7,6 +7,479 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 10:11
+---
+
+## ChizBergerz — post 46840
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میگفتن ۴۰ میلیون جان‌فدا دارن.
+ولی از وقتی نت وصل شده هرکی آنلاین شده اول مینویسه کیرم تو خامنه‌ای.
+</div>
+
+## ChizBergerz — post 46839
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46839_1779864097.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زمین وزمان هم تغییر کنه این خوش‌چشم تو عالم خودشه .
+یه دودی میگیره و میره فضا و یه کصشعرایی میگه.
+به کصشعرای جدیدش گوش کنید که داره نسخه بمب اتمی برای رژیم می‌نویسه: 
+💩😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46838
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46838_1779864099.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+احتمال برگشت پهلوی وجود داره ولی احمتمال برگشت موش‌علی هرگز😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46837
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46837_1779864099.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تنها جایی که در لحظه عضویت بهت 500 هزارتومان موجودی میده اینجاس 
+❌ 
+🎉 کافیه فقط عضو بشی تا #وینرو بهت 
+🤩 
+🤩 
+🤩 هزارتومان جایزه بده ، نیازی هم به واریز نیست. 
+⌛ پشتیبانی 24 ساعته 
+🍆تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی: 
+🌐 Winro.io 
+🌐 Winro.io…
+</div>
+
+## ChizBergerz — post 46836
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46836_1779864100.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ تنها جایی که در لحظه عضویت بهت 500 هزارتومان موجودی میده اینجاس 
+❌
+
+
+🎉 کافیه فقط عضو بشی تا #وینرو بهت 
+🤩 
+🤩 
+🤩 هزارتومان جایزه بده ، نیازی هم به واریز نیست.
+
+
+⌛ پشتیبانی 24 ساعته
+
+🍆تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان r6
+
+📱 @winro_io
+</div>
+
+## rodast_omiddana — post 72003
+
+<div align="center">
+  <img src="telegram/content/rodast_omiddana_72003_1779864101.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وقتی سخن دشمنانم را میشنوید و گیج میشوید از خود یه سوال کنید:
+"در تمام مدت انقلاب ملی دشمنانم برایتان چه کردن و امید دانا برای شما و شرایط سخت‌تان چه کرد؟"
+اگر پاسخ را صادقانه از دلت پرس و جو کنی، دیگر گیج نمیشوی و میفهمی چه کسی را باید حمایت کنی❤️🌹
+</div>
+
+## Stream_Konkur — post 539
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آخرین اخبار مربوط به امتحانات و کنکور
+
+🔹 امتحانات نهایی یازدهم و دوازدهم در صورت ثابت شدن وضعیت از 21 تیر ماه آغاز می‌شود ( ثبت نام ترمیم و ایجاد سوابق تحصیلی هنوز شروع نشده )
+🔹ثبت نام کنکور 1405 تا جمعه 8 خرداد تمدید شده است.
+🔹 برگزاری کنکور فرهنگیان در تاریخ 11 تیر قطعی نیست و هنوز اعلام رسمی نشده است. طبق آخرین مصوبه با آزمون سراسری همزمان احتمالا در اواخر مرداد برگزار میشود.
+@Stream_Konkur
+</div>
+
+## Stream_Konkur — post 538
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایشالا فردا صبح که بیدار شدیم نبینیم نت قطعه
+شوخوش
+</div>
+
+## Stream_Konkur — post 537
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادامه فعالیت فعلا هم اینجاست هم سوپراپلیکیشن روبیکا
+تا وقتی که شرایط کامل اوکی بشه و فقط اینجا فعالیت کنیم.
+فعالیت تلگرام هم حتما بهتر از روبیکا خواهد بود. چون روبیکا دست و بالمون رو بسته بود کار زیادی نمیتونستیم بکنیم.
+</div>
+
+## Stream_Konkur — post 536
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+با چی وصلین؟
+</div>
+
+## Stream_Konkur — post 535
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لینک چنل استریم کنکور:
+@Stream_Konkur
+
+لینک گپ استریم کنکور:
+https://t.me/+_ujQwHZsl6BmM2Q0
+</div>
+
+## Stream_Konkur — post 534
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیکایی داریم اینجا؟
+</div>
+
+## Stream_Konkur — post 533
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیکایی داریم اینجا؟
+</div>
+
+## Stream_Konkur — post 532
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: مصوبه رفع انسداد اینترنت بین‌المللی تأیید شد و به دست پزشکیان رسید؛ اگر پزشکیان هم تأییدش کنه، این مصوبه برای اجرا به وزارت ارتباطات صادر می‌شه و تا هفته آینده نت بین‌المللی وصل می‌شه.
+
+@Stream_Konkur
+</div>
+
+## Stream_Konkur — post 526
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکی نیست کصخلی یه سریا فاز خفن بودن گرفتن که ما روبیکا نمیایم و ما خفنیم یه متنی رو قبلا توی زتا نوشتم همینجا میذارم.
+</div>
+
+## Stream_Konkur — post 525
+
+<div align="center">
+  <img src="telegram/content/Stream_Konkur_525_1779864102.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شکی نیست کصخلی
+یه سریا فاز خفن بودن گرفتن که ما روبیکا نمیایم و ما خفنیم
+
+یه متنی رو قبلا توی زتا نوشتم همینجا میذارم.
+</div>
+
+## Stream_Konkur — post 524
+
+<div align="center">
+  <a href="telegram/content/Stream_Konkur_524_1779864103.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Stream_Konkur — post 523
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روبیکا پروفایلو عوض کردیم اینجا هم عوض کنیم
+</div>
+
+## Stream_Konkur — post 522
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Channel photo updated
+</div>
+
+## Stream_Konkur — post 521
+
+<div align="center">
+  <a href="telegram/content/Stream_Konkur_521_1779864104.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Stream_Konkur — post 520
+
+<div align="center">
+  <a href="telegram/content/Stream_Konkur_520_1779864106.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## Stream_Konkur — post 516
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه عده از ادمین های تلگرامی توی روبیکا میگفتن استریم نذار و...
+داستان زیاده اگه بخوام تعریف کنم ولی به وقتش آبروی نداشتشونو میبرم.
+</div>
+
+## Stream_Konkur — post 514
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سلام
+کانال روبیکا حال میکردینا
+ایشالا ادامه کار اینجا به زودی
+</div>
+
+## Stream_Konkur — post 513
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امیدوارم حالتون خوب باشه بچه ها💔
+</div>
+
+## Stream_Konkur — post 512
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+چنل روبیکامون
+
+@stream_k0nk0r
+
+دقیق مثل تلگرام همچیو زدیم
+</div>
+
+## Stream_Konkur — post 510
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کپی میکنید میزنید تو چنلاتون مشکلی نیست ولی اینکه به اسم خودتون میزنید من کونم میسوزه
+</div>
+
+## KiriMohems — post 48036
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48036_1779864107.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#صبحانه_عن_گیزشی
+
+سر میکشم
+لبخند هایت را..
+مینوشم بوسه هایت را .
+صبح من
+لقمه‌ای است از ممه های تو
+و فنجانیست
+که لب های تو را
+باید بر دهان گذاشت...
+
+صبح هرمز‌شید (چهارشنبه) تون پر انرژی
+
+#Helsinki
+@KiriMohem
+</div>
+
+## SportBaadNews — post 252832
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوتا مرغ عاشق
+😐
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252831
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252831_1779864108.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷
+🏆وینی: آنجلوتی از من خواست تا شماره 10 برزیل رو بپوشم تا بازیکنای دیگه ترس پوشیدنشو نداشته باشن و زیر مسئولیت سنگین نرن، منم بدون خایه کردن این شماره رو به تن کردم.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252830
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خو حالا نت وصل شد، دیروز صب چی کم داشت که امروز صب نداره
+@SportBaadNews
+</div>
+
+## IranIntlTV — post 339183
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339183_1779864109.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تامی پیگوت، سخنگوی وزارت خارجه آمریکا، در ایکس نوشت: «ترامپ از نخستین روز حضورش به‌روشنی اعلام کرده است که حکومت ایران نباید به سلاح هسته‌ای دست یابد. ترامپ برای اطمینان از اینکه جمهوری اسلامی هرگز به این هدف نرسد، اقدام‌های قاطعی انجام داده است.»
+https://iranintl.com/202605272526
+</div>
+
+## IranIntlTV — post 339182
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339182_1779864110.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ان‌بی‌سی نیوز به نقل از مقام‌های آمریکایی و کارشناسان امنیت ملی گزارش داد در حالی که ترامپ تاکید می‌کند توافق با حکومت ایران نزدیک است و آمریکا توان نظامی جمهوری اسلامی را نابود کرده، پنتاگون فهرستی از اهداف را برای جنگ احتمالی تهیه کرده است که یافتن و زدن آنها می‌تواند بسیار دشوار باشد.
+https://iranintl.com/202605271846
+</div>
+
+## IranIntlTV — post 339181
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339181_1779864111.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی ربیعی، دستیار اجتماعی پزشکیان، گفت: «رفع محدودیت اینترنت یک بایدِ بنیادین بود. مایه تاسف است که صداوسیما در صف اول هجمه به این تصمیم ایستاده است.»
+پس از ۸۸ روز تاریکی دیجیتال در ایران، دسترسی به اینترنت به تدریج برقرار شده است. نت‌بلاکس در ایکس اعلام کرد اتصال اینترنت در ایران افزایش بیشتری یافته و به ۸۶ درصد رسیده است، شبکه‌های موبایل و بخش‌های دیگری از اینترنت نیز دوباره به اینترنت جهانی متصل شده‌اند. نت‌بلاکس افزود «فیلترنت» همچنان برقرار است اما امکان دور زدن آن وجود دارد.
+همچنین واتس‌اپ اکنون محدود شده و برای دسترسی به آن نیازمند فیلترشکن است. از سوی دیگر، برخی کاربران همچنان به اینترنت جهانی دسترسی ندارند.
+
+https://iranintl.com/202605273087
+</div>
+
+## Persian_Trend_Official — post 15108
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان هواپیمایی کشوری اعلام کرد ۱۰ فرودگاه ایران از این پس به‌صورت ۲۴ ساعته فعال‌ هستند.
+
+با تصمیم این سازمان، فرودگاه‌های مهرآباد و خمینی تهران، ساری، بیرجند، گرگان، بجنورد، کرمان، زاهدان، سبزوار و مشهد از این پس به‌صورت شبانه‌روزی فعالیت خواهند کرد
+
+پ.ن: گویا نظام تصمیمش رو گرفته بده بره ...
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15107
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15107_1779864112.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+منابع دیپلماتیک روز چهارشنبه به «العربیه» اطلاع دادند سفر محمدباقر قالیباف، رئیس مجلس و مذاکره‌کننده ارشد ایران، به قطر شامل بررسی سازوکار آزادسازی دارایی‌های بلوکه‌شده ایران بوده است.
+
+این منابع افزودند ایران خواستار آزادسازی حدود 24 میلیارد دلار از دارایی‌های بلوکه‌شده خود شده و اصرار دارد هم‌زمان با اعلام تفاهم‌نامه مورد انتظار با واشینگتن، نیمی از این مبلغ را دریافت کند.
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15106
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «کسانی که اینترنتشون تازه وصل شده یا قبلا سرعت اینترنت یاری نمیکرده اگر این ویدیو رو ندیدید توضیه میکنم ببینید تا بدونید احتمالا یک سال اینده قراره جمهوری اسلامی چه چالش هایی داشته باشه https://youtu.be/8YQ1YcLyw6E»
+</div>
+
+## Persian_Trend_Official — post 15105
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسانی که اینترنتشون تازه وصل شده یا قبلا سرعت اینترنت یاری نمیکرده
+اگر این ویدیو رو ندیدید توضیه میکنم ببینید تا بدونید احتمالا یک سال اینده قراره جمهوری اسلامی چه چالش هایی داشته باشه
+
+https://youtu.be/8YQ1YcLyw6E
+</div>
+
+## Persian_Trend_Official — post 15101
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس‌های منتشرشده از سوی فرماندهی مرکزی آمریکا، سنتکام، نشان می‌دهد یک فروند جنگنده پنهانکار اف-۲۲ رپتور متعلق به بال یکم جنگنده نیروی هوایی آمریکا مستقر در پایگاه لانگلی ویرجینیا، در حال سوخت‌گیری هوایی بر فراز نقطه‌ای اعلام‌نشده در خاورمیانه است.
+
+در این تصاویر، اف-۲۲ در کنار یک فروند هواپیمای سوخت‌رسان KC-135T Stratotanker دیده می‌شود؛ هواپیمایی که به بال ۱۷۱ سوخت‌رسانی هوایی گارد ملی هوایی پنسیلوانیا اختصاص دارد.
+
+انتشار این تصاویر از سوی سنتکام در شرایطی انجام می‌شود که حضور جنگنده‌های نسل پنجم آمریکا در منطقه، معمولاً به‌عنوان بخشی از پیام بازدارندگی، نمایش آمادگی عملیاتی و پشتیبانی از مأموریت‌های هوایی بلندبرد تفسیر می‌شود. اف-۲۲ رپتور عمدتاً برای برتری هوایی، نفوذ در محیط‌های پرخطر و مقابله با تهدیدهای پیشرفته طراحی شده و سوخت‌گیری هوایی، امکان ماندگاری و عملیات طولانی‌تر آن در منطقه را فراهم می‌کند.
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15100
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15100_1779864112.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برنده های جنگ بلد خجالتی 😄
+خب با این بنده خداها حرف بزنید
+بگید چند ماه بیخودی سرکارشون گذاشتید و مثل همیشه لاف پیروزی زدید
+
+اخرش که چی ؟
+متن رو که همه میخونن ...
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15099
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15099_1779864115.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حق ++
+
+
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15098
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15098_1779864116.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢رویترز گزارش می‌دهد که استارلینک،هزینه استفاده استارلینک در پهپادهای تهاجمی یک‌بارمصرف LUCAS را ۵ برابر افزایش داده است.
+
+💢پنتاگون در حال حاضر برای هر پهپاد ۵۰۰۰ دلار بابت اتصال استارلینک پرداخت می‌کرد، اما اکنون با این افزایش قیمت، با پرداخت ۲۵۰۰۰ دلار برای هر پهپاد موافقت کرده است.
+
+💢پهپاد LUCAS به‌طور تقریبی حدود ۳۰۰۰۰ دلار برای هر واحد هزینه دارد، اما حالا که ترمینال‌های استارلینک ۲۰۰۰۰ دلار دیگر به هزینه اضافه کرده‌اند، صرفه‌اقتصادی این پهپاد به‌شدت کاهش پیدا می‌کند و ممکن است باعث شود پنتاگون طراحی یا پلتفرم آن را مورد بازنگری قرار دهد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15097
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15097_1779864117.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صبحتون بخیر ☕️🤍
+
+📝 Nick
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 05:34
 ---
 
