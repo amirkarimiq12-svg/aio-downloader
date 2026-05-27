@@ -7,6 +7,1030 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 21:04
+---
+
+## ChizBergerz — post 46848
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46848_1779903266.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مناسبت عید قربان، یادی کنیم از این دو گوسفند که سر ندارن:
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46847
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46847_1779903266.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لحظه سرنگونی جنگنده F-15 آمریکایی در جنوب کشور توسط پدافند هوایی رژیم جمهوری اسلامی در جنگ اخیر
+
+هردو خلبان توسط آمریکا با موفقیت از کشور خارج شدند.
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46846
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46846_1779903269.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مردی که مقابل کاسبان مسدودی اینترنت ایتساد؟!؟!
+
+مادرجنده‌ها الان مثلا اینترنت آزاد شده و دیگه به خرید فیلترشکن نیازی نیست؟! خارکصده از کدوم ایستادن صحبت میکنید؟! چرا باور نمیکنید پزشکیان حرومزاده تو نظام حق هیچ‌نوع تصمیم گیری‌ای رو نداره؟
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46845
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46845_1779903270.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستی این چالشه هم ترند توییتر شده بود و کلا همه جارو کون گرفته بود :)))
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46844
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46844_1779903271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه‌هایی که نبودید
+یه ژانر تو توییتر درست کردن به اسم «شیکم تخت» این بانو خیلی وایرال شد
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46843
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46843_1779903271.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به مردمی که ۳ ماه اینترنت نداشتن برای پورن دیدن هم سرکوفت میزنین :)))
+کدوم آبرو؟ دنیا ۳ ماه اینترنت نداشتین به تخمش هم نبود، دهن این مردم سرویس شد کل دنیا سوت زد حالا بیاد بگه واااای نگاه کن ایرانیا پورن نگاه کردن؟
+قتل نکرده که، رفته پورن دیده. گیری کردیم با شما کسخلا.
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46842
+
+<div align="center">
+  <img src="telegram/content/ChizBergerz_46842_1779903272.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مثل اینکه یکی‌از فیلترشکن فروش‌ها بعد خبر وصل شدن اینترنت سکته کرده😂😂
+
+@ChizBergerz
+</div>
+
+## rodast_omiddana — post 72039
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 پخش زنده امشب
+*تایید حمله آمریکا به باند فرودگاه بندرعباس در صداوسیما
+*ترامپ رژیم تسلیم نشه کار را تمام میکنیم
+لینک یوتیوب:
+https://www.youtube.com/@omiddana
+</div>
+
+## rodast_omiddana — post 72038
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72038_1779903273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+این تغییر رژیم است. یک رژیم رفته، رژیم دیگری رفته و ما با قطعات رژیم سومی سر و کار داریم.
+</div>
+
+## rodast_omiddana — post 72037
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 سعید محمد:
+لاریجانی بهم گفت مردم 18 و 19 دیماه برای فساد ما ریختن خیابان
+لینک یوتیوب:
+https://www.youtube.com/watch?v=J8WKWFlf37A
+</div>
+
+## rodast_omiddana — post 72036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ:
+آنها شروع به دادن چیزهایی که باید به ما بدهند کرده‌اند. اگر این کار را بکنند، عالی است.
+اگر نکنند، هگستث آنها را تمام خواهد کرد.
+</div>
+
+## rodast_omiddana — post 72035
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72035_1779903273.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 اسرائیل شش فروند هواپیما سوخت رسان خریده که اولیش امروز رسیده و سرلشکر ایال زمیر براش سخنرانی کرده
+</div>
+
+## rodast_omiddana — post 72034
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72034_1779903274.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ در پی‌بی‌اس‌نیوز:
+"جمهوری اسلامی ازای واگذاری و تحویل اورانیوم با غنای بالا، هیچ امتیاز یا کاهش تحریمی دریافت نخواهد کرد.
+چنین توافقی شامل لغو تحریم‌ها نمی‌شود."
+</div>
+
+## rodast_omiddana — post 72033
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72033_1779903274.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 ترامپ الان:
+"رژیم ایران بسیار مصمم است. آنها بسیار مایل به انجام یک توافق هستند.
+تا کنون به آن نرسیده‌اند. ما از آن راضی نیستیم، اما راضی خواهیم شد؛ یا این یا اینکه باید کار را تمام کنیم.
+آنها در حال مذاکره با توان کم هستند. شاید مجبور شویم برگردیم و کار را تمام کنیم؛ شاید هم نه."
+</div>
+
+## rodast_omiddana — post 72032
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▶️ وحید خضاب در صداوسیما:
+قراره نیست از تنگه هرمز عوارض بگیریم
+لینک یوتیوب:
+https://www.youtube.com/watch?v=U2l0Ld_K0_o
+</div>
+
+## rodast_omiddana — post 72031
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72031_1779903276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 سی ان ان:
+"نیروی دریایی رژیم ایران قوی است در همین حال کف اقیانوس این شکلی است"
+</div>
+
+## rodast_omiddana — post 72030
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72030_1779903276.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 آخرین جزئیات از جلسه امنیتی ترامپ در امریکا و نتانیاهو در اسرائیل برای حمله مجدد
+لینک یوتیوب:
+https://www.youtube.com/watch?v=YRZvsXOfPD0
+</div>
+
+## KiriMohems — post 48053
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48053_1779903277.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ :
+
+اگه کشورهای کصکش عربی به پیمان ابراهیم نپیوندن، ممکنه کلا توافقی با ایران نکنیم!
+عربستان سعودی، امارات، قطر و دیگران باید به توافقنامه‌های ابراهیم بپیوندن.
+آنها شروع به دادن چیزهایی که باید به ما بدهند کرده‌اند. اگر این کار را بکنند، عالی است.
+اگر نکنند، هگست آنها را تمام خواهد کرد.
+ما درباره هیچ گونه پرداخت پول صحبت نمی‌کنیم. ما کنترل پولی را که آنها ادعا می‌کنند مال خودشان است، در دست داریم. ما کنترل آن پول را حفظ خواهیم کرد.
+﻿
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48052
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید در توییتر به طور غیرمستقیم به گزارش رسانه‌های دولتی جمهوری اسلامی درباره پیش‌نویس تفاهم‌نامه بین آمریکا و ج.ا شاشید!
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48051
+
+<div align="center">
+  <img src="telegram/content/KiriMohems_48051_1779903279.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴گوز مشاهده شده در آسمان غرب تهران ناشی از حریق در یک برج مسکونی
+
+ملکی سخنگوی آتش نشانی تهران:
+حریق که از طبقه ۸ این برج آغاز شده بود توسط خایه داران آتش نشان مهار شد.
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48050
+
+<div align="center">
+  <a href="telegram/content/KiriMohems_48050_1779903280.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ درباره ایران:
+
+ایران قمبل کرده و به انجام یک توافق شل کرده.
+
+تا حالا بهشون نرسیده‌. ما ازشون راضی نیستیم، اما راضی میشیم؛ یا این یا اینکه باید کار رو جمع کنن
+
+اونا در حال مذاکره با توان کم هستن. شاید مجبور بشیم برگردیم و کار رو تمام کنیم؛ شاید هم نه
+
+#Helsinki
+@KiriMohems
+</div>
+
+## KiriMohems — post 48049
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴صداوسیما :
+تهران به پیش‌نویس اولیه و غیررسمی یه چارچوب توافق با آمریکا برای تموم کردن بگایی ها دست پیدا کرده
+#Helsinki
+@KiriMohems
+</div>
+
+## SportBaadNews — post 252903
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252903_1779903282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بن جیکوبزز: توافق اولیه بین بارسلونا و نیوکاسل به دست رسید مبلغ قرارداد 70 میلیون پوند + متغیرات @SportBaadNews
+</div>
+
+## SportBaadNews — post 252902
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252902_1779903282.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 توییت فابریزیو رومانو: گوردون در راه بارسلونا @SportBaadNews
+</div>
+
+## SportBaadNews — post 252901
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252901_1779903283.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 توییت فابریزیو رومانو: گوردون در راه بارسلونا
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اوه اوه
+</div>
+
+## SportBaadNews — post 252899
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252899_1779903283.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷 - نیمار به کمپ تمرینی تیم ملی برزیل ملحق شد @SportBaadNews
+</div>
+
+## SportBaadNews — post 252898
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252898_1779903284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇧🇷 - نیمار به کمپ تمرینی تیم ملی برزیل ملحق شد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️ رادیو کاتالونیا: بارسلونا در حال مذاکره با برناردو سیلوا هست تا این بازیکن به صورت رایگان به بارسا بیاد فلیک موافق نیست ولی دکو و لاپورتا فشار میارن تا فلیک رو قانع کنند با این انتقال موافقت کند
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252896
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252896_1779903284.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹فلیکس دیاز: رئال مادرید قراره نیکو پاز رو قبل از روز انتخابات در 7 ژوئن به تیم برگردونه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252895
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252895_1779903284.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ جرارد رومرو: ایجنت گوردون به بارسلونا اومده
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252894
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252894_1779903285.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣
+⚽️ فابریزیو رومانو: روی مسائل شخصی، توافق کامل بین آنتونی گوردون و بارسلونا انجام شده. بارسا مستقیم و رسمی با نیوکاسل وارد مذاکره شده که انتقال رو بین دو باشگاه نهایی کنه. بارسلونا می‌خواد سریع‌تر این انتقالو ببنده که قبل از باشگاه‌های لیگ برتری و بایرن…
+</div>
+
+## SportBaadNews — post 252893
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252893_1779903285.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تایمر چنل بارسامون 😂😂😂😂😂 اگه به هر دلیلی این انتقال صورت نگیره برای بارساییا خیلی بد میشه @SportBaadNews
+</div>
+
+## SportBaadNews — post 252892
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252892_1779903286.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ دیوید اورنشتین بسیار معتبر: پیشنهاد بارسلونا به نیوکاسل: 90 میلیون + متغیرها - تاکنون توافقی صورت نگرفته است @SportBaadNews
+</div>
+
+## SportBaadNews — post 252891
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252891_1779903286.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ دیوید اورنشتین بسیار معتبر: پیشنهاد بارسلونا به نیوکاسل: 90 میلیون + متغیرها - تاکنون توافقی صورت نگرفته است
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252890
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252890_1779903286.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇪🇸 | تاریخ داره تکرار میشه...
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252889
+
+<div align="center">
+  <img src="telegram/content/SportBaadNews_252889_1779903287.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+⚽️
+⚽️ کریستین فالک: کدوم کسکشی گفته گوردون قراره بره بارسا؟ بایرن از بارسا برای جذب گوردون جلوتره
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عشقتون صوفی رین
+🥵😍
+</div>
+
+## SportBaadNews — post 252887
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚽️
+🔻گیم بالاگه: بازار بارسلونا امسال داغه اونا قراره به قانون 1/1 برگردن پلن فعلا اینه:
+1- گوردون
+2- یک مهاجم شماره 9
+3- مدافع میانی
+4- حفظ رشفورد
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252886
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252886_1779903287.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨
+💣
+⚽️ فابریزیو رومانو: روی مسائل شخصی، توافق کامل بین آنتونی گوردون و بارسلونا انجام شده.
+
+بارسا مستقیم و رسمی با نیوکاسل وارد مذاکره شده که انتقال رو بین دو باشگاه نهایی کنه.
+
+بارسلونا می‌خواد سریع‌تر این انتقالو ببنده که قبل از باشگاه‌های لیگ برتری و بایرن مونیخ که هنوز پشت‌پرده فعالن، کارو تموم کنه.
+@SportBaadNews
+</div>
+
+## SportBaadNews — post 252885
+
+<div align="center">
+  <a href="telegram/content/SportBaadNews_252885_1779903288.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⚽️ فوووووووری از خوزه آلوارز: ممکنه تا چندساعت آینده آنتونی گوردون به بارسلونا بپیونده @SportBaadNews
+</div>
+
+## IranIntlTV — post 339277
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339277_1779903288.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در پاسخ به سوالی درباره کنترل تنگه هرمز توسط تهران و عمان گفت این تنگه برای همه باز خواهد بود و آب‌های بین‌المللی محسوب می‌شود. او تاکید کرد هیچ‌کس آن را کنترل نخواهد کرد و آمریکا بر آن نظارت خواهد داشت.
+
+ترامپ افزود کنترل تنگه بخشی از مذاکرات است و ایران تمایل دارد آن را در اختیار بگیرد، اما چنین اتفاقی نخواهد افتاد. او درباره عمان نیز گفت این کشور مانند دیگران رفتار خواهد کرد و در غیر این صورت آمریکا مجبور خواهد شد آن‌ها را منفجر کند.
+https://iranintl.com/202605270743
+</div>
+
+## IranIntlTV — post 339276
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339276_1779903289.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آلکسیا پوتیاس، برنده دو توپ طلای فوتبال زنان، پس از ۱۴ فصل حضور در باشگاه بارسلونا، از جمع آبی‌اناری‌ها جدا شد. باشگاه بارسلونا مراسم خداحافظی این بازیکن مطرح فوتبال زنان را در ورزشگاه نیوکمپ برگزار کرد و پوتیاس از این تیم جدا شد.
+
+🔹پوتیاس اعلام کرد هنوز درباره تیم بعدی‌اش تصمیم نگرفته و پس از ۱۴ سال پرافتخار، تابستان امسال بارسلونا را ترک خواهد کرد. ستاره ۳۲ ساله اسپانیایی در مراسم خداحافظی‌اش در نوکمپ گفت: «فوتبالم ادامه دارد، اما بهترین بخش دوران حرفه‌ای من حالا تمام شده است.»
+
+🔹برنده دو توپ طلای فوتبال زنان تاکید کرد هیچ تجربه‌ای با دوران حضورش در بارسا قابل مقایسه نیست: «هم‌تیمی‌ها، هواداران و این باشگاه همیشه خاص‌ترین بخش زندگی حرفه‌ای من خواهند بود.»
+
+🔹پوتیاس چهارشنبه آخرین بازی‌اش را برای بارسلونا انجام می‌دهد. او در این ۱۴ سال ۳۸ جام از جمله ۱۰ قهرمانی لیگ اسپانیا و چهار لیگ قهرمانان اروپا کسب کرد و با بیش از ۵۰۰ بازی و ۲۳۲ گل، به یکی از بزرگ‌ترین اسطوره‌های تاریخ باشگاه تبدیل شد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339275
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339275_1779903290.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیت هگست، وزیر جنگ آمریکا، در نشست کابینه در کاخ سفید درباره ایران گفت در هر دو دوره ریاست‌جمهوری ترامپ تنها یک نفر بوده که ایستاده و اعلام کرده ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.
+هگست با اشاره به عملیات خشم حماسی گفت این بار مانند جنگ‌های عراق و افغانستان عمل نشد، بلکه با رویکردی هوشمندانه و قاطع و با حداکثر قدرت کشندگی، ایران به زانو درآمد.
+او افزود نیروی دریایی ایران اکنون در کف خلیج فارس است، نیروی هوایی و پدافند آن آسیب دیده و هرچند ممکن است هنوز موشک داشته باشند، اما فعلا قادر به تولید بیشتر موشک، پهپاد یا کشتی نیستند.
+وزیر جنگ آمریکا گفت به همین دلیل ایران برای مذاکره اعلام آمادگی کرده است. او افزود هم‌زمان محاصره‌ای در سطح جهانی برقرار شده و ایران نتوانسته از بنادر خود واردات یا صادرات انجام دهد و اقتصادش به‌شدت آسیب دیده است.
+هگست تاکید کرد چه از مسیر مذاکره برای جلوگیری از دستیابی ایران به سلاح هسته‌ای و چه در صورت لزوم از مسیر نظامی، آمریکا آماده اقدام است و «اگر مجبور شویم دوباره به وزارت جنگ برمی‌گردیم تا کار را از آن راه تمام کنیم».
+https://iranintl.com/202605277423
+</div>
+
+## IranIntlTV — post 339274
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339274_1779903291.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید به دلیل شرایط موجود از جمله اعدام‌ها و مشکل معیشتی از وصل شدن اینترنت در ایران خوشحال نیست. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339273
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339273_1779903294.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیتراول با نیوشا صارمی، چهارشنبه ۶ خرداد
+
+@iranintltv
+</div>
+
+## IranIntlTV — post 339272
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339272_1779903295.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، در جلسه کابینه در کاخ سفید گفت نتیجه نهایی این است که ایران هرگز نباید سلاح هسته‌ای داشته باشد. او افزود وقایع اخیر بار دیگر یادآوری کرده که ایران بزرگ‌ترین حامی تروریسم در جهان است و نمی‌تواند به چنین سلاحی دست یابد.
+
+روبیو تاکید کرد ترجیح رییس‌جمهور همواره مذاکره و تلاش برای دستیابی به توافق از مسیر دیپلماسی بوده است و این روند از طریق استیو ویتکاف، جرد کوشنر و معاون رییس‌جمهور ادامه دارد.
+
+او گفت اگر توافقی قابل دستیابی باشد، آمریکا خواهان انجام آن است و نشانه‌هایی از پیشرفت دیده می‌شود. با این حال، اگر دیپلماسی نتیجه ندهد، گزینه‌های دیگری نیز در اختیار رییس‌جمهور است. روبیو تصریح کرد تا زمانی که ترامپ رییس‌جمهور باشد، ایران هرگز به سلاح هسته‌ای دست نخواهد یافت.
+https://iranintl.com/202605278237
+</div>
+
+## IranIntlTV — post 339270
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339270_1779903296.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در نشست کابینه در کاخ سفید درباره مذاکرات با جمهوری اسلامی گفت: «ایران نمی‌تواند بمب هسته‌ای داشته باشد. ممکن است مجبور شویم به آنجا برویم و کار را تمام کنیم.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339269
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339269_1779903298.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، چهارشنبه در نشست کابینه گفت جمهوری اسلامی به‌شدت خواهان دستیابی به توافق است، اما آمریکا هنوز از آن راضی نیست.
+
+ترامپ پیش‌تر گفت تهران در ازای واگذاری و تحویل اورانیوم با غنای بالا، هیچ امتیاز یا کاهش تحریمی دریافت نخواهد کرد.
+https://iranintl.com/202605273857
+</div>
+
+## IranIntlTV — post 339268
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339268" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | چهارشنبه ۶ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339267
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339267_1779903299.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری فارس، وابسته به سپاه پاسداران، به نقل از منابع آگاه نوشت دونالد ترامپ، رییس‌جمهوری آمریکا، ممکن است در ساعات آینده به‌صورت یک‌طرفه اعلام کند که توافق جمهوری اسلامی و آمریکا نهایی شده است.
+
+فارس نوشت این اقدام احتمالی از سوی ترامپ با هدف اعمال فشار و القای توافق به افکار عمومی، پیش از رفع کامل اختلافات، ارزیابی می‌شود.
+
+با این حال، یک عضو تیم مذاکره‌کننده جمهوری اسلامی در گفت‌وگو با فارس تاکید کرد هنوز برخی موارد حل‌نشده باقی مانده و تا زمانی که همه موضوعات مدنظر جمهوری اسلامی حل نشود، «هیچ توافقی در کار نخواهد بود».
+
+به گفته این منبع، جمهوری اسلامی در صورت رفع کامل این موارد، رسما نتیجه را اعلام خواهد کرد.
+https://iranintl.com/202605279960
+</div>
+
+## IranIntlTV — post 339266
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339266_1779903300.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت ایران به‌طور نسبی برگشته و مردم ایران دیشب در «برنامه» توانستند صدای خود را به ایران برسانند. امشب هم، بدون این‌که موضوع مشخصی داشته باشیم، «برنامه» را در اختیار شما می‌گذاریم تا بیایید و هر حرفی را که دارید، با ایران در میان بگذارید؛ پس اگر امشب اینترنت دارید، روی خط بیایید.
+
+«برنامه» صدای شماست.
+ما شما را، بدون نوبت، مستقیم از ایران روی خط می‌آوریم.
+بیایید و روایت خود را برای همیشه ثبت کنید.
+تاریخ با صدای شما نوشته می‌شود.
+
+برای شرکت در برنامه، همین حالا در واتس‌اپ پیام بدهید:
+۰۰۴۴۷۵۲۲۱۱۰۱۱۰
+۰۰۴۴۷۵۴۴۱۱۰۱۱۰
+۰۰۴۴۷۵۱۱۱۰۲۵۵۳
+«برنامه با کامبیز حسینی»
+«یک ایران صدای شما را می‌شنود»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339265
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339265_1779903301.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در گفت‌وگو با پی‌بی‌اس‌نیوز اعلام کرد که تهران در ازای واگذاری و تحویل اورانیوم با غنای بالا، هیچ امتیاز یا کاهش تحریمی دریافت نخواهد کرد و چنین توافقی شامل لغو تحریم‌ها نمی‌شود.
+https://iranintl.com/202605272170
+</div>
+
+## IranIntlTV — post 339264
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339264_1779903301.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پس از ۸۸ روز قطعی، اینترنت به‌صورت محدود و فیلترشده دوباره در ایران در دسترس قرار گرفته، اتفاقی که بار دیگر ارتباط ایرانیان داخل و خارج کشور را برقرار کرده و شبکه‌های اجتماعی را پر از واکنش‌های تازه کرده است.
+
+عادله بورنگ، عضو تحریریه ایران‌اینترنشنال، به واکنش کاربران می‌پردازد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339263
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339263_1779903303.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مجتبی خامنه‌ای برای اولین بار اسرائیل را تهدید کرد که تا ۱۵ سال آینده نابود می‌شود. وزیر خارجه اسرائیل هم او را به سرنوشت علی خامنه‌ای ارجاع داد. او در حالی این تهدید را مطرح کرده که از بیم نفوذ موساد، از سه ماه پیش مخفی شده و جسد پدرش هنوز در یخچال است.
+
+گزارشی از مجتبا پورمحسن
+@iranintltv
+</div>
+
+## IranIntlTV — post 339262
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339262_1779903306.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند با ارسال پیامی به ایران‌اینترنشنال می‌گوید به دلیل شرایط موجود از جمله اعدام‌ها و مشکل معیشتی از وصل شدن اینترنت در ایران خوشحال نیست. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339261
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339261_1779903308.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد یک نفتکش حامل فرآورده‌های نفتی متعلق به گروه کشتیرانی چینی کاسکو، چهارشنبه در حال عبور از تنگه هرمز بود؛ با این حال داده‌های کشتیرانی نشان می‌دهد تردد نفتکش‌ها در این مسیر همچنان محدود است.
+
+بر اساس این گزارش، پیش از آغاز جنگ علیه ایران در اسفند ۱۴۰۴، میانگین تردد روزانه کشتی‌ها از تنگه هرمز بین ۱۲۵ تا ۱۴۰ عبور بود، اما از آن زمان میانگین کلی عبور روزانه حدود ۱۱ کشتی بوده است.
+
+داده‌های رهگیری نشان می‌دهد در یک روز گذشته دو نفتکش حامل نفت خام نیز از تنگه هرمز عبور کرده‌اند و ۹ کشتی دیگر وارد خلیج فارس شده یا از آن خارج شده‌اند.
+
+شرکت کارگزاری نفتکش گیبسون اعلام کرد با وجود نشانه‌هایی از افزایش عبور نفتکش‌ها، جریان انتقال نفت و فرآورده‌های نفتی در مقایسه با دوران پیش از جنگ همچنان بسیار محدود است و بازگشت تردد به سطح پیشین به تضمین‌های امنیتی، پاکسازی مین‌ها و چارچوب تازه بیمه‌ای نیاز دارد.
+https://iranintl.com/202605278755
+</div>
+
+## IranIntlTV — post 339260
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339260_1779903309.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نیمار، ستاره تیم ملی برزیل، نگرانی‌ها درباره آخرین مصدومیتش را رد کرد و گفت مشکلی برای حضور در جام جهانی ۲۰۲۶ ندارد. او در گفت‌وگو با خبرنگاران درباره شرایط خود گفت: «مشکل چیه؟ کاملا سالم هستم.»
+
+🔹ستاره ۳۴ ساله برزیلی که برای سانتوس بازی می‌کند، سه‌شنبه شب از روی سکوهای ورزشگاه ویلا بلمیرو پیروزی ۳ بر صفر تیمش مقابل دپورتیوو کوئنکا در کوپا سودامریکانا را تماشا کرد؛ دیداری که توجه خبرنگاران را به وضعیت جسمانی او جلب کرد.
+
+🔹نیمار اخیرا در مسابقه مقابل کوریتیبا دچار التهاب در ناحیه ساق پا شد و همین مسئله نگرانی‌‌هایی درباره آمادگی او برای جام جهانی ایجاد کرد. با این حال، او در پاسخ به سوال خبرنگاران درباره وضعیت پایش گفت: «اینجاست، کاملا سالم!»
+
+🔹وقتی خبرنگاران از او پرسیدند آیا این مشکل می‌تواند برای حضورش در جام جهانی دردسرساز شود، نیمار با لحنی تند پاسخ داد: «مشکل چیه؟» او با این پاسخ کوتاه تلاش کرد به شایعات درباره احتمال غیبتش در جام جهانی پایان دهد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 339259
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339259_1779903310.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+افزایش قیمت محصولات بهداشتی در ایران پس از جنگ، بسیاری از زنان و دختران را ناچار به استفاده از گزینه‌های غیربهداشتی کرده است.
+
+آیه دریس، عضو تحریریه ایران‌اینترنشنال، به مناسبت روز جهانی بهداشت قاعدگی، در «پیوست» درباره بهداشت زنان در ایران و چالش‌های پیش‌ روی آنان می‌گوید
+@iranintltv
+</div>
+
+## IranIntlTV — post 339258
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339258_1779903312.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت خارجه فرانسه به العربیه اعلام کرد پاریس بخشی از جنگ در منطقه نیست و ماموریت بین‌المللی در تنگه هرمز صرفا ماهیتی دفاعی دارد و برای همراهی کشتی‌ها انجام می‌شود.
+
+این وزارتخانه تاکید کرد هرگونه باج‌خواهی تهران در تنگه هرمز باید متوقف شود و فرانسه برای بازگرداندن آزادی کشتیرانی در سریع‌ترین زمان ممکن تلاش می‌کند.
+
+وزارت خارجه فرانسه افزود با مقام‌های جمهوری اسلامی در تماس است و امانوئل مکرون و دونالد ترامپ نیز به‌طور مستمر درباره ایران گفت‌وگو می‌کنند. همچنین شروط پاریس برای رفع تحریم‌های اروپایی به تهران اعلام شده است.
+https://iranintl.com/202605270066
+</div>
+
+## IranIntlTV — post 339257
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339257_1779903313.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران‌اینترنشنال همچنان پیگیر دریافت گزارش‌ها و ثبت رویدادها در جریان کشتار مردم ایران در اعتراضات دی‌ماه است. اطلاعات رسیده، جزییات جدیدی از کشته شدن جاویدنامان حمیدرضا حدادی و سپهر موسوی‌فر را روایت می‌کند.
+
+فرنوش فرجی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15142
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15142_1779903315.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: از روند مذاکرات با ایران راضی نیستیم؛ گزینه نظامی همچنان روی میز است.
+
+▪️ وی اعلام کرد واشینگتن از روند فعلی مذاکرات با ایران رضایت ندارد.
+▪️ او هشدار داد اگر توافق «قابل‌قبولی» حاصل نشود، آمریکا ممکن است دوباره به اقدام نظامی متوسل شود
+▪️ ترامپ تأکید کرده ایران باید به‌صورت شفاف از دستیابی به سلاح هسته‌ای صرف‌نظر کند و مذاکرات فعلی هنوز به سطح مطلوب آمریکا نرسیده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15141
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15141_1779903316.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️مزدور کلمبیایی که به اسارت ارتش روسیه در آمد !!‌
+
+💢ویدئو منتشرشده از صحنه اسارت یک فرد معرفی‌شده به‌عنوان «مزدور کلمبیایی» در درگیری‌های مرتبط با اوکراین حاکی از آن است که نیروهای روسی پس از اسارت، از هویت او سؤال کرده و زمانی که مشخص شده تبعه اوکراین نیست، او را شهروند کلمبیا معرفی کرده است.
+
+💢در این ویدئو یکی از نظامیان روس در مکالمه‌ای کوتاه و غیررسمی با او به زبان انگلیسی از کشورش سؤال کرده و در واکنش به پاسخ «کلمبیا»، جمله‌ای طعنه آمیز به او میگوید:
+
+▪️برادر به روسیه خوش آمدی ...
+
+💢در ادامه این گزارش آمده است که وضعیت حقوقی این فرد در چارچوب اسیران جنگی محل بحث است؛ چرا که ادعا شده برخی نیروهای روسی، افراد غیر اوکراینیِ حاضر در میدان نبرد را در دسته «مزدور» طبقه‌بندی می‌کنند. با این حال، طبق قواعد شناخته‌شده حقوق بین‌الملل بشردوستانه و کنوانسیون‌های ژنو، وضعیت اسارت و رفتار با اسیران جنگی باید بر اساس معیارهای مشخص حقوقی تعیین شود، نه صرفاً تابعیت یا برداشت میدانی.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15140
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15140_1779903318.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢نت بلاکس
+
+
+💢 اتصال اینترنت ایران اکنون برای ۲۴ ساعت در حالت بازیابی قرار داشته است. خدمات همچنان به شدت فیلتر شده باقی مانده و محدودیت‌های جدیدی روی پیام‌رسان‌ها و فروشگاه‌های اپلیکیشن در مقایسه با سطح پیش از ژانویه اعمال شده است.
+
+درخواست‌ها برای یک اینترنت آزاد و باز، فراتر از خطوط سیاسی قرار دارند و باید شنیده شوند.
+
+💢میزان اختلالات در شبکه از دیروز بسیار بیشتر شده است، بسیاری از سرویس‌های گوگل و کلودفلر بسته شده اند و حتی قابلیت استفاده از گوگل پلی و اپ استور نیز وجود ندارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15139
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15139_1779903319.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇷🇺رئیس روس اتم: روسیه تصمیم گرفته است که بازگشت کارکنان خود به نیروگاه هسته‌ای بوشهر در ایران را به تعویق بیندازد.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15138
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15138_1779903320.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تکذیب شکایت اعضای شورای عالی فضای مجازی برای جلوگیری از وصل‌شدن اینترنت
+
+«رضا تقی‌پور» عضو شورای عالی فضای مجازی: شکایت بابت تاسیس نهاد موازی فراقانونی انجام شد. هرگز موافق قطع اینترنت نبوده و نیستم.
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15137
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15137_1779903320.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ
+
+«الان دارم به بعضی از این دموکرات‌ها انتقاد می‌کنم. واقعاً آدم‌های خنگی هستند.
+
+گفتم فکرش را بکنید. E را بردارید، U بگذارید. می‌شوند دوموکرات (احمق‌کرات)!»
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15136
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15136_1779903322.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢حتی با تحویل اورانیوم‌ها هم خبری از لغو تحریم‌ها نیست!
+
+♦️ترامپ در گفتگو با شبکه پی‌بی‌اس اعلام کرد که ایران حتی در ازای دست کشیدن از اورانیوم‌های با غنای بالای خود، از کاهش تحریم‌ها بهره‌مند نخواهد شد!
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15135
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15135_1779903322.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کاخ سفید گزارش‌های تلویزیون دولتی ایران درباره پیش‌نویس جدید توافق را رد کرد
+
+▪️ کاخ سفید به‌طور قاطع گزارش‌های منتشرشده در رسانه‌های دولتی ایران درباره ارائه پیش‌نویس جدید یادداشت تفاهم (MOU) برای توافق صلح با آمریکا را تکذیب کرد
+▪️ واشینگتن می‌گوید هنوز هیچ متن نهایی یا پیش‌نویس جدیدی تأیید نشده است
+▪️ این تکذیب در حالی مطرح می‌شود که طی ساعات اخیر روایت‌های متناقضی درباره وضعیت مذاکرات منتشر شده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15134
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15134_1779903323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 گزارش CSIS: آمریکا ممکن است تا ۳ سال برای بازسازی ذخایر موشکی خود زمان نیاز داشته باشد
+
+▪️ یک گزارش جدید از Center for Strategic and International Studies هشدار داده ذخایر موشک‌های کلیدی آمریکا پس از جنگ با ایران به‌شدت کاهش یافته است.
+▪️ موجودی موشک‌های Tomahawk، Patriot و THAAD به‌طور قابل‌توجهی افت کرده و بازسازی آن‌ها ممکن است چند سال طول بکشد
+▪️ این گزارش از ایجاد یک «پنجره آسیب‌پذیری» برای آمریکا در غرب اقیانوس آرام و همزمان با افزایش تنش با China خبر می‌دهد
+▪️ با وجود افزایش بودجه دفاعی و تلاش برای بالا بردن تولید، کارشناسان می‌گویند ظرفیت فعلی صنایع نظامی آمریکا برای جبران سریع این کمبود کافی نیست
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15133
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15133_1779903323.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+برای پوشش سریع‌تر و دقیق‌تر اخبار، دایرکت پرشین ترند از این به بعد برای دریافت خبرها و اطلاعات مخاطبان فعاله 📩
+
+اگر خبر، تصویر، ویدیو یا اطلاعات مهم و دست‌اولی دارید که فکر می‌کنید ارزش بررسی و انتشار داره، می‌تونید ارسال کنید.
+
+فقط لطفاً:
+
+* پیام‌ها کوتاه و مستقیم باشن
+* اصل خبر یا موضوع در همان پیام اول نوشته بشه
+* از سلام و احوالپرسی جداگانه خودداری کنید
+* اگر منبع، عکس یا ویدیو دارید همراهش بفرستید
+
+به دلیل حجم بالای پیام‌ها ممکنه امکان پاسخ به همه دایرکت‌ها وجود نداشته باشه، اما همه موارد مهم بررسی میشن 🙏
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15132
+
+
+
+
+## Persian_Trend_Official — post 15131
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15131_1779903324.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔹آغاز تخلیه شهر بزرگ صور در پی هشدار ارتش اسرائیل
+
+پس از هشدار تخلیه از سوی ارتش رژیم صهیونیستی برای ساکنان شهر بندری صور، ده‌ها هزار نفر شروع به حرکت به سمت مناطق شمالی کرده‌اند.
+
+
+👩‍💻@PhantomDirective
+
+
+📣@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15130
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15130_1779903326.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇮🇱
+🆔 اسرائیل اولین هواپیمای سوخت‌رسان هوایی بوئینگ KC-46 پگاسوس را امروز از ایالات متحده دریافت کرده است.
+
+
+
+👩‍💻@PhantomDirective
+
+
+🆔@persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15129
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15129_1779903329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حادثه در بزرگترین مجتمع پتروشیمی ایران در عسلویه
+
+
+📢۱ نفر جان باخت و ۲ تن مصدوم شدند.
+
+‌روابط عمومی شرکت دماوند انرژی عسلویه:
+
+‌ ظهر امروز چهارشنبه ششم  خرداد ماه ۱۴۰۵ در ساعت ۱۱:۳۵ ، حادثه‌ای در واحد هوای این شرکت رخ داد که متأسفانه منجر به جان‌باختن یکی از کارکنان و مصدومیت دو نفر دیگر شد.
+
+💣پتروشیمی دماوند در تاریخ ۶ آپریل هم توسط نیروی هوایی اسرائیل و آمریکا مورد هدف قرار گرفته بود.
+</div>
+
+## Persian_Trend_Official — post 15128
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15128_1779903329.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇺🇸 پست جدید ترامپ در تروث سوشال:
+</div>
+
+## Persian_Trend_Official — post 15127
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15127_1779903330.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 هدف قرار گرفتن یکی از سامانه های گنبد آهنین اسرائیلی توسط پهپاد حزب‌الله
+</div>
+
+## Persian_Trend_Official — post 15126
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15126_1779903333.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇱🇧
+🇮🇱
+🇱🇧 حمله هوایی به شهر زفتا.
+</div>
+
+## Persian_Trend_Official — post 15125
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15125_1779903335.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ همراه اول امروز در پیامی به کاربران اینترنت پرو اعلام کرد در صورت تمایل می‌توانند اینترنت خود را به حالت قبل برگردانند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15124
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15124_1779903335.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتصال به اینترنت سخت‌تر از روزهای قبل شده. 🗿
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 17:35
 ---
 
