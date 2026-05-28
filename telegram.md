@@ -7,6 +7,259 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 05:18
+---
+
+## ChizBergerz — post 46861
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46861" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینم یکی دیگه مخصوص رایتل و ایرانسل
+🚀
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46860
+
+<div align="center">
+  <a href="https://t.me/ChizBergerz/46860" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نپستر قوی مخصوص رایتل و ایرانسل🔥
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46859
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46859_1779932895.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما زیرنویس زده ۳ انفجار تو بندرعباس رخ داده و همزمان مجری میگه نشونه‌ای از انفجار نیست😂😂😂😂😂😂😂
+
+@ChizBergerz
+</div>
+
+## ChizBergerz — post 46858
+
+<div align="center">
+  <a href="telegram/content/ChizBergerz_46858_1779932896.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎯شانستو #رایگان امتحان کن 
+⚠️
+
+
+🤔 میدونستی توی #وینرو میتونی رایگان شرط ببندی؟
+
+
+👍تنها کاری که باید بکنی اینه که عضو سایتش بشید و 
+🤩
+🤩
+🤩 هزارتومان جایزه بگیرید بدون نیاز به واریز
+
+
+💖تنها سایت مورد اعتماد ما با بونوس های کاملا واقعی و رویایی:
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان a6
+
+📱 @winro_io
+</div>
+
+## rodast_omiddana — post 72064
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72064_1779932897.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨درود
+امشب ساعت۳بامداد
+توی مسجد سلیمان،یه پهپاد اومد یه جایی رو زد،بعدش پدافند۲۳میلیمتری شروع کرد به تیراندازی،ولی چیزی نزد
+حدودا ۲دیقه این زد و خورد ادامه داشت.
+البته فقط زد بود ،خوردی در کار بود😄
+</div>
+
+## rodast_omiddana — post 72063
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72063_1779932897.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨برگام..
+زیرنویس زده 3 انفجار در بندر عباس رخ داده ولی خبرنگار میگه خبری نیست و انفجاری رخ نداده...
+مگه داریم....!
+</div>
+
+## rodast_omiddana — post 72062
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72062_1779932899.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 خبرگزاری CBS:
+"یک سایت نظامی در خاک ایران هدف حمله قرار گرفت."
+</div>
+
+## rodast_omiddana — post 72061
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72061_1779932899.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+🚨 زیرنویس صدا و سیما الان:
+"چند صدای انفجار در بندعباس شنیده شد"
+همچنین رویترز به نقل از یک مقام آمریکایی مدعی حمله به یک موقعیت نظامی در بندرعباس شد.
+</div>
+
+## rodast_omiddana — post 72060
+
+<div align="center">
+  <a href="telegram/content/rodast_omiddana_72060_1779932899.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨دوتا سوخترسان الان در آسمان عراق
+ساعت ۳:۳۰ بامداد پنجشنبه ۷ خرداد
+</div>
+
+## IranIntlTV — post 339334
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339334_1779932901.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم به نقل از یک منبع آگاه نظامی گزارش داد ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت، اما پس از شلیک نیروی دریایی سپاه، این نفتکش مجبور به توقف و بازگشت شد.
+پیش‌ترآکسیوس به نقل از یک مقام ارشد آمریکایی گزارش داد جمهوری اسلامی چهار پهپاد انتحاری را به سوی یک کشتی نیروی دریایی آمریکا و یک کشتی تجاری شلیک کرد، اما نیروهای آمریکا این پهپادها را سرنگون کردند.
+
+https://iranintl.com/202605282248
+</div>
+
+## IranIntlTV — post 339325
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هشت روایت کوتاه از هشت زندگی ناتمام.
+از شاهین‌شهر تا تهرانپارس، از کرج تا زنجان؛ جوانانی که بعضی تازه وارد زندگی مشترک، کار یا آینده‌ای تازه شده بودند، در خیابان‌های ایران هدف گلوله قرار گرفتند. بعضی در آغوش خانواده جان دادند، بعضی با تیر خلاص کشته شدند و بعضی حتی پس از مرگ، حقیقت کشته‌شدنشان انکار شد.
+روزبه صفری هلیسادی، مجتبی انصاری‌فرد، اشکان شهبازی، ساینا نظام‌دوست، صفا فرزانفر، رضا کاووسی حیدری، عرشیا براری و آرمین سلطان‌محمدی؛
+جاویدنامان انقلاب ملی ایرانیان.
+این نام‌ها سند خشونتی است که بر مردم ایران گذشت؛ و یادشان بخشی از راهی است که تا آزادی ادامه دارد.
+#جاویدنامان_انقلاب_ملی_ایرانیان
+</div>
+
+## Persian_Trend_Official — post 15156
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15156_1779932901.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تسنیم: امریکا به یک زمین سوخته در حوالی بندرعباس حمله کرده!
+
+تسنیم از نقل یک مقام نظامی می‌گوید: ساعاتی پیش یک نفتکش آمریکایی با خاموش کردن سیستم راداری خود قصد عبور از تنگه هرمز را داشت که با اقدام سریع و قاطع نیروی دریایی سپاه و شلیک به سمت آن، مجبور به توقف و بازگشت شد.
+
+در مقابل، ارتش امریکا به زمین سوخته‌ای در اطراف بندرعباس شلیک کرد که صدای انفجارها مربوط به این ماجرا بوده است؛ این شلیک هیچ خسارت جانی یا مالی به همراه نداشته است.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15155
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15155_1779932902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام دیگر آمریکایی در گفتگو با شبکه ان‌بی‌سی نیوز گفته است که پس از مجموعه‌ای از حملات موشکی، پهپادی و قایق‌های کوچک توسط سپاه پاسداران، امشب حملات بسیار محدود و بسیار دقیقی توسط ارتش ایالات متحده انجام شده است.
+
+این حملات محدود ولی بسیار دقیق ارتش ایالات متحده در نزدیکی شهر بندرعباس در جنوب ایران انجام شده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15154
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15154_1779932902.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در همین حین یک پهپاد اسرائیلی خودرویی را در نزدیکی شهر عدلون در جنوب لبنان مورد هدف حمله خود قرار داد.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15153
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15153_1779932903.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صداوسیما پس از تایید خبر حمله امریکا توسط رسانه های خبری متعدد: نشانه‌ایی از انفجار در بندر عباس دیده نشده است!
+
+صداوسیما می‌گوید برخی از مردم صدای این انفجار را شنیده اند(!) و هیچ یک از مقام‌های رسمی پیرو این موضوع هیچ اطلاعیه رسمی نداده اند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15152
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15152_1779932903.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرهایی که از ترور علی عظمایی جانشین سردار تنگسیری دست به دست می‌شود برای اولین بار توسط منابع خبری نامعتبر و زرد منتشر شده.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15151
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام آمریکایی در مصاحبه با شبکه سی‌بی‌اس نیوز ادعا کرد با وجود حملاتی که امشب انجام شده آتش بس همچنان پابرجا تلقی می‌شود.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 15150
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15150_1779932904.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس به نقل از یک مقام ارشد امریکایی می‌گوید طرف ایرانی چهار پهپاد انتحاری به سمت یک ناو نیروی دریایی امریکا و یک شناور تجاری شلیک کرده است.
+
+به گفته اکسیوس نیروهای آمریکایی این پهپادها را رهگیری و همچنین یک واحد پهپادی را قبل از آنکه پهپادی شلیک کند منهدم کردند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 03:26
 ---
 
